@@ -1,6 +1,6 @@
-# TechiDaily
+# Fox Cloud Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://fox-cloud.techidaily.com](https://fox-cloud.techidaily.com)
 
 ## Publish
 
