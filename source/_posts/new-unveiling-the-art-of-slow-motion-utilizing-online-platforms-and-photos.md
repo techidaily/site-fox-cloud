@@ -1,0 +1,133 @@
+---
+title: "\"[New] Unveiling the Art of Slow Motion  Utilizing Online Platforms & Photos\""
+date: 2024-06-17T12:36:08.137Z
+updated: 2024-06-18T12:36:08.137Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] Unveiling the Art of Slow Motion: Utilizing Online Platforms & Photos\""
+excerpt: "\"This Article Describes [New] Unveiling the Art of Slow Motion: Utilizing Online Platforms & Photos\""
+keywords: "\"Slow Motion Techniques,Photography in Slow-Motion,Video Editing Slow-Motion,Online Platform Use,Slow-Motion Online Tutorials,Photo Enhancement Slow-Motion,Slow-Motion Digital Art\""
+thumbnail: https://thmb.techidaily.com/c68e5dfe066870e624209e946a88b5eb21db8406cf2fae44c9a446c53d02efdc.jpg
+---
+
+## Unveiling the Art of Slow Motion: Utilizing Online Platforms & Photos
+
+# How to make slow motion video with Photos App and Online
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+While the [Photos app in Windows 10](https://www.microsoft.com/en-us/p/microsoft-photos/9wzdncrfjbh4) has been out for a couple years, many people are not aware of all its features. Given the way Microsoft has added powerful features to Photos, it has the capability to offer much more to users. One such feature is the option to add the effect of slow motion in Windows 10 using the Photos app. We will explain how you can use the slow motion feature in Photos, along with an option to add the effect of slow motion online.
+
+* [**Part1: How to Use Slow Motion in Windows 10**](#part1)
+* [**Part2: Customizing the Slow Motion Effect**](#part2)
+* [**Part3: How to Edit in Slow Motion Online**](#part3)
+
+## Part 1：How to Use Slow Motion in Windows 10
+
+There is no need to spend hundreds of dollars on a video program if you need to perform some basic editing and effects on your videos. For instance, you can add the slow motion effect using the Photos app that comes pre-installed on Windows 10 computers.
+
+Navigate to the folder where your video file is located and right click on it. You will go to “open with” and then choose the Photos app. When it is open in the application, you can click on “Edit & Create” and then go to “Add slo-mo”.
+
+![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/slow-motion-photos-app.jpg)
+
+If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
+
+## Part 2：Customizing the Slow Motion Effect
+
+When you are using the Photos app to add a slow motion effect to your videos, you can tweak it to your liking. You will be able to select the speed using a slider, which lets you get the precise slow motion effect that you desire.
+
+There is also the handy option of being able to select the portion of your video where you want to add this effect. Say you are producing a longer video, where you want the effect in place for a few seconds.
+
+Now you can select the beginning and end point using the bottom slider on the Photos app. Choose the precise starting and ending of the slow motion effect, and then watch through your video to ensure it is exactly as you want.
+
+![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
+
+We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
+
+You can even create multiple versions of the file with the slow motion effect applied in different ways. Then you can watch the videos you just created to decide on the best version.
+
+**You may also like:** [How to Use Story Remix to Edit a Video in Windows 10 Photos >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 3: How to Edit in Slow Motion Online
+
+If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/)to add a slow motion effect to your content.
+
+### EZGif
+
+**Step 1: Select Video**
+
+You can choose a file from your computer to add it onto the site, before you will add the effect of slow motion online. It is even possible to add files through an online URL.
+
+**Step 2: Upload**
+
+Click on the “upload video” button so that it can be added into the database. You will be limited to videos that are less than 100MB. If your video is larger, you may want to use a separate program to reduce its size before adding it to EZGif.com.
+
+![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
+
+**Step 3: Output**
+
+The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
+
+![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
+
+## Conclusion
+
+Now that you have understood how to add the effect of slow motion in Windows 10 Photos, you will be able to tweak your videos even more. The Photos application has many other features that you may want to check out, which will help you edit images and videos.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-harmonizing-hue-and-shade-the-finest-4k-displays-reviewed/"><u>In 2024, Harmonizing Hue and Shade  The Finest 4K Displays Reviewed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-visual-perfection-select-the-best-monitors-for-creative-work/"><u>2024 Approved  Visual Perfection  Select the Best Monitors for Creative Work</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-echo-fabricator-bundle/"><u>In 2024, Echo Fabricator Bundle</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/social-media-melody-ownership-laws-for-2024/"><u>Social Media Melody Ownership Laws for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/rewind-revolution-iphones-time-turning-ability-for-2024/"><u>Rewind Revolution  IPhone's Time-Turning Ability for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-selecting-peak-frames-per-second-for-slow-motion-cinema-for-2024/"><u>[Updated] The Ultimate Guide to Selecting Peak Frames Per Second For Slow-Motion Cinema for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-audio-interface-innovations-for-optimal-podcasting-for-2024/"><u>[New] Audio Interface Innovations for Optimal Podcasting for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-perfect-poster-design-removing-borders-from-canva-images/"><u>In 2024, Perfect Poster Design  Removing Borders From Canva Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/from-jarring-edits-to-seamless-inshot-integration-for-2024/"><u>From Jarring Edits to Seamless Inshot Integration for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-video-to-cartoon-converter-tips-tricks-and-best-practices-for-2024/"><u>New Video to Cartoon Converter Tips, Tricks, and Best Practices for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-s23plus-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy S23+ Phone FRP Lock</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-revealed-the-5-superior-mac-compatible-audio-mixers-for-2024/"><u>New Revealed The 5 Superior Mac-Compatible Audio Mixers for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-pro-editors-top-list-best-portable-devices-for-visual-storytelling/"><u>In 2024, Pro-Editors' Top List  Best Portable Devices for Visual Storytelling</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-perfecting-pitch-and-volume-in-discord-chats-via-voicemod-adjustments/"><u>[Updated] Perfecting Pitch & Volume in Discord Chats via VoiceMod Adjustments</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-apple-iphone-15-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On Apple iPhone 15 How to Bypass?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-stories-incorporating-natural-bokeh-effects/"><u>[Updated] In 2024, Instagram Stories  Incorporating Natural Bokeh Effects</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-tricks-to-prevent-fb-video-advertisements-on-screen-for-2024/"><u>[New] Tricks to Prevent FB Video Advertisements on Screen for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-realme-gt-3-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Realme GT 3 Phone When You Forget the Password</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-photoshop-guide-realistic-3d-text-creation-steps/"><u>2024 Approved  Photoshop Guide  Realistic 3D Text Creation Steps</u></a></li>
+</ul></div>
