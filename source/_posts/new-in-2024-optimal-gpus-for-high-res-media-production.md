@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimal GPUs for High Res Media Production"
-date: 2024-06-17T13:08:49.896Z
-updated: 2024-06-18T13:08:49.896Z
+date: 2024-07-02T12:34:05.601Z
+updated: 2024-07-03T12:34:05.601Z
 tags: 
   - screen-recording
   - ai video
@@ -119,7 +119,7 @@ Editing the 4K footage captured on Smartphones, action or professional video cam
 
 * Aimed only at video editing professionals and gamers
 
-If you are looking for a graphics card that supports 8K video playback and makes [editing 4K videos](https://tools.techidaily.com/wondershare/filmora/download/)look easy, then you should look no further. Like all models from the Nvidia’s RTX Super Series, GeForce RTX 2080 delivers stunning performances even while you are editing large numbers of 4K video files or rendering large 3D animations.
+If you are looking for a graphics card that supports 8K video playback and makes [editing 4K videos](https://tools.techidaily.com/wondershare/filmora/download/) look easy, then you should look no further. Like all models from the Nvidia’s RTX Super Series, GeForce RTX 2080 delivers stunning performances even while you are editing large numbers of 4K video files or rendering large 3D animations.
 
 The card’s real-time ray tracing capabilities make it a perfect choice for gaming and streaming, as you can play all the latest video games at max settings if you opt for GeForce RTX 2080\. Furthermore, this model is also VR ready and it comes with game ready drivers that allow you to start a new gaming session as soon as you install this graphics card on your computer.
 
