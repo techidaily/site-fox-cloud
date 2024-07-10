@@ -1,7 +1,7 @@
 ---
 title: "\"Horizon Hurdlers  Celebrating the Most Staying Power Drones\""
-date: 2024-06-17T12:33:14.583Z
-updated: 2024-06-18T12:33:14.583Z
+date: 2024-07-09T20:11:49.332Z
+updated: 2024-07-10T20:11:49.332Z
 tags: 
   - screen-recording
   - ai video
@@ -145,7 +145,7 @@ The Yuneec Q500+ is a ready-to-fly drone that is loaded with a 16 megepixel, 108
 
 Now, you must have a clearer insight of drones with longest flight time. You can choose from 22 minutes to 30 minutes. Apart from owning the longest flight time, the flying range is also longer than we thought.
 
-If you need to edit video after finish shooting drone video, we recommend using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to make professional video. It supports real 4K video editing, and the video stabilization will make your video stable and smooth. Download it now to have a try![![Download Win Version](https://images.wondershare.com/filmora/article-images/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/article-images/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+If you need to edit video after finish shooting drone video, we recommend using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to make professional video. It supports real 4K video editing, and the video stabilization will make your video stable and smooth. Download it now to have a try ![![Download Win Version](https://images.wondershare.com/filmora/article-images/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/article-images/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 

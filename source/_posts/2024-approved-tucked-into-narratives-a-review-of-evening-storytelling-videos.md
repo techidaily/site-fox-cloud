@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Tucked Into Narratives  A Review of Evening Storytelling Videos\""
-date: 2024-06-17T12:02:16.558Z
-updated: 2024-06-18T12:02:16.558Z
+date: 2024-07-09T20:11:45.452Z
+updated: 2024-07-10T20:11:45.452Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ Beautiful
 
 **_"Wonderful story. Reminds me of the time I played lead orange in the stage production."_**
 
-**_\-[Bevo-13678](https://www.imdb.com/review/rw7307902/?ref%5F=ext%5Fshr%5Flnkef%5F=tt%5Furv%5Fusr)_**
+**_\-[Bevo-13678](https://www.imdb.com/review/rw7307902/?ref%5F=ext%5Fshr%5Flnkef%5F=tt%5Furv%5Fusr) _**
 
 Watch this video <https://www.youtube.com/watch?v=75NQK-Sm1YY>.
 
