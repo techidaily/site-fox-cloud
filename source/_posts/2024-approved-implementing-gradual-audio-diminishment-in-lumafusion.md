@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Implementing Gradual Audio Diminishment in Lumafusion\""
-date: 2024-07-09T20:30:28.821Z
-updated: 2024-07-10T20:30:28.821Z
+date: 2024-07-12T16:12:16.574Z
+updated: 2024-07-13T16:12:16.574Z
 tags: 
   - screen-recording
   - ai video
@@ -151,3 +151,52 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-a-closer-look-at-stale-vr-landscapes-what-changes/"><u>[Updated] In 2024, A Closer Look at Stale VR Landscapes  What Changes?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-ultimate-ig-dashboard-unraveling-user-engagement-patterns/"><u>2024 Approved  The Ultimate IG Dashboard  Unraveling User Engagement Patterns</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-free-audio-to-text-conversion/"><u>[New] 2024 Approved  Free Audio to Text Conversion</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ourney-through-virtual-realms-on-youtubes-channel/"><u>[New] Journey Through Virtual Realms on YouTube's Channel</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mi-drone-4k-flight-insights-and-features/"><u>Mi Drone 4K  Flight Insights & Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-leveraging-temporal-illusions-in-cinematography-for-2024/"><u>[Updated] Leveraging Temporal Illusions in Cinematography for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/step-by-step-to-premium-audio-with-audacity-for-2024/"><u>Step-by-Step to Premium Audio with Audacity for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/instant-mirth-mastery-your-shortcut-to-ifunny-memes-for-2024/"><u>Instant Mirth Mastery  Your Shortcut to iFunny Memes for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-sony-fdr-x1000-videography-masterpiece-study/"><u>[Updated] In 2024, The Sony FDR-X1000 Videography Masterpiece Study</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/social-media-savvy-your-guide-to-success-for-2024/"><u>Social Media Savvy  Your Guide to Success for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-navigating-color-grading-a-look-at-luts-significance/"><u>[New] In 2024, Navigating Color Grading  A Look at LUT's Significance</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-essential-guide-to-crafting-engaging-haul-videos/"><u>[Updated] 2024 Approved  The Essential Guide to Crafting Engaging Haul Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-decipherment-insiders-look-at-xvideo-hub-review/"><u>[New] The Ultimate Decipherment  Insider's Look at XVideo Hub Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-dive-into-editing-excellence-a-comprehensive-guide-to-powerdirector-app-2024/"><u>[Updated] Dive Into Editing Excellence  A Comprehensive Guide to PowerDirector App 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-top-free-video-smoothers-for-professional-looking-footage/"><u>New 2024 Approved Top Free Video Smoothers for Professional-Looking Footage</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-m4r-converter-101-key-facts-to-get-you-started/"><u>2024 Approved M4R Converter 101 Key Facts to Get You Started</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-leading-graphics-for-high-res-media-creation/"><u>[New] In 2024, Leading Graphics for High Res Media Creation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-free-top-10-best-drawing-software-for-mac/"><u>[New] 2024 Approved  FREE Top 10 Best Drawing Software for Mac</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-talecraft-triumphs-the-leading-academies-in-narrative-arts/"><u>[Updated] 2024 Approved  Talecraft Triumphs  The Leading Academies in Narrative Arts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-innovations-in-mobile-photography-a-look-at-iphone-x/"><u>[Updated] 2024 Approved  Innovations in Mobile Photography  A Look at iPhone X</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ideal-choices-for-comprehensive-movement-recording/"><u>[New] Ideal Choices for Comprehensive Movement Recording</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mellow-your-playlist-device-specific-techniques/"><u>[New] 2024 Approved  Mellow Your Playlist  Device-Specific Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-a-comprehensive-look-at-merging-youtube-content-into-instagrams-story-feature/"><u>[New] In 2024, A Comprehensive Look at Merging YouTube Content Into Instagram's Story Feature</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-hdr-photoshop-how-to-create-hdr-images-in-photoshop-like-a-pro/"><u>[Updated] In 2024, HDR Photoshop  How to Create HDR Images in Photoshop Like a Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/innovating-visual-stories-through-hyperlapse/"><u>Innovating Visual Stories Through Hyperlapse</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-boost-your-files-future-with-these-20-best-in-class-no-cost-services/"><u>[New] 2024 Approved  Boost Your Files' Future with These 20 Best-in-Class No-Cost Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-dive-into-a-world-of-timelessness-crafting-slow-motion-videos-using-mobile-apps/"><u>[Updated] In 2024, Dive Into a World of Timelessness  Crafting Slow Motion Videos Using Mobile Apps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterful-motion-graphics-for-texts/"><u>2024 Approved  Masterful Motion Graphics for Texts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-radiance-routines-pro-tips-for-video-illumination-for-2024/"><u>[New] Radiance Routines  Pro Tips for Video Illumination for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-harnessing-dynamic-range-expert-hdr-creation-in-adobe/"><u>[New] 2024 Approved  Harnessing Dynamic Range  Expert HDR Creation in Adobe</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-win-customer-trust-incorporating-these-20-marketing-expressions/"><u>[Updated] 2024 Approved  Win Customer Trust  Incorporating These 20 Marketing Expressions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-understanding-youtubes-user-interaction-options/"><u>2024 Approved  Understanding YouTube's User Interaction Options</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/mastering-the-technique-playing-videos-in-slow-motion-on-your-iphone-like-a-pro-for-2024/"><u>Mastering the Technique Playing Videos in Slow Motion on Your iPhone Like a Pro for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-linkedin-luminaries-chatting-with-snapchat/"><u>[New] In 2024, LinkedIn Luminaries Chatting with Snapchat</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-realities-redefined-the-metaverse-vs-omniverse-showdown-explained/"><u>[Updated] Realities Redefined  The Metaverse Vs. Omniverse Showdown Explained</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unleashing-the-power-of-voice-ms-words-speech-recognition-features/"><u>[New] In 2024, Unleashing the Power of Voice  MS Word's Speech Recognition Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-compile-of-premium-tiktok-backdrop-options/"><u>[Updated] In 2024, Compile of Premium TikTok Backdrop Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-photoshops-role-in-crafting-stunning-hdr-visuals-for-2024/"><u>[Updated] Photoshop's Role in Crafting Stunning HDR Visuals for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elevate-your-edits-pro-level-photo-color-techniques/"><u>[New] In 2024, Elevate Your Edits  Pro-Level Photo Color Techniques</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-personalize-videos-adding-captions-in-the-photos-app/"><u>How to Personalize Videos  Adding Captions in the Photos App</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-how-to-design-and-deploy-bespoke-ringtone-options-for-whatsapp-users/"><u>[Updated] In 2024, How to Design & Deploy Bespoke Ringtone Options for WhatsApp Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/seamlessly-scaling-photos-and-videos-via-iphone-features-for-2024/"><u>Seamlessly Scaling Photos & Videos via iPhone Features for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-immediate-aspect-alteration-assistant/"><u>[Updated] Immediate Aspect Alteration Assistant</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-choosing-the-top-10-affordable-image-converters-online/"><u>[Updated] In 2024, Choosing the Top 10 Affordable Image Converters Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-video-vibrance-10-tips-for-dynamic-color-manipulation/"><u>[New] In 2024, Video Vibrance  10 Tips for Dynamic Color Manipulation</u></a></li>
+</ul></div>
