@@ -1,0 +1,184 @@
+---
+title: "\"Becoming a Snapshot Wizard  Top Positions for iPhone Photos\""
+date: 2024-07-29T07:55:20.701Z
+updated: 2024-07-30T07:55:20.701Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes Becoming a Snapshot Wizard: Top Positions for iPhone Photos\""
+excerpt: "\"This Article Describes Becoming a Snapshot Wizard: Top Positions for iPhone Photos\""
+keywords: "IPhone Snapshot Tips,IPhone Photo Positions,Snapshot Wizard Guide,Best iPhone Snap Techniques,Capture with Ease on iPhone,Perfect iPhone Snapshot,Enhance iPhone Photos"
+thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b1b8e67663aad45fe3a9f4b0.png
+---
+
+## Becoming a Snapshot Wizard: Top Positions for iPhone Photos
+
+# How to Find the Good iPhone Photography Angles
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ A great photo isn't defined by the number of pixels it has, but with the unique perspective of a scene, it presents to the viewer. Inexperienced photographers have a tendency to photograph things in their immediate surroundings, but in time they develop their unique ways of finding unusual angles from which they photograph scenes.
+
+ In this article, we are going to introduce you to different types of shots that can help you find a perfect angle for each and every of your iPhone photos.
+
+## How to Find Perfect Angles for Your iPhone Photos
+
+ Learning how to use different shot angles will enable you to take better photos with your iPhone. Let's have a look at some of the commonly used camera angles in photography as well as some tips that will enable you to improve your iPhone photography skills.
+
+#### 1\.  Close Ups
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
+![close-up-angle.](https://images.wondershare.com/filmora/article-images/close-up-angle.jpg)
+
+ Image resource: Digital Care Solutions
+
+ A close up is the type of shot that depicts only a small fraction of a scene or a detail. These shots are frequently used for portraits that show only a portion of a human face or some interesting detail. Furthermore, product photography relies heavily on close-ups because it often depicts fruit, and all sorts of tiny objects, that would be too small to photograph in a wide-angle shot.
+
+ There are two different ways in which you can create a close-up. iPhone cameras allow you to zoom in on the subject of your photo, but if the object is too far away, using the zoom may blur and ruin the photo completely. The alternative is to get as close as possible to the object you want to take the picture of, because you won't have to rely too much on the zoom features and you'll be able to separate the subject of the photo from its background.
+
+#### 2\.  Low-Angle Shots
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![low-angle-shot-photography](https://images.wondershare.com/filmora/article-images/low-angle-shot-photography.jpg)
+
+ Image resource: google
+
+ Even though we often don't think about it, our field of vision strongly influences the way we think about pictures. The most common way to take a photo is to place the camera at the height of your eye level, and for that reason, any camera position that is located below this point is considered a low-angle shot.
+
+ This type of shot is frequently used in nearly all niches of photography, but it is best suited for portraits and street or architecture photography. Low angle shot makes figures and objects in your photos look bigger than they really are, which often has a strong impression on the viewer.
+
+#### 3\.  Straight Up - Take Pictures of things above you
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![straight-shots-iphone](https://images.wondershare.com/filmora/article-images/straight-shots-iphone.jpg)
+
+ Image resource: Digital Photography Review
+
+ Raising your head up from time to time to see what is directly above you, may not be such a bad idea for any aspiring iPhone photographer because it will enable you to snap a photo from a unique perspective. Forests, skyscrapers or starry skies are all perfect scenery for straight up shots, however, if the scene doesn't have enough light try to avoid holding your iPhone in your hand, because you might end up with a blurry picture.
+
+ Straight up shots require a lot of attention to picture composition since they provide numerous ways to use basic and advanced image composition techniques. The greatest downside of straight up shots is that they are largely dependent on the immediate surroundings of a photographer.
+
+#### 4\.  Shoot from the height of your hip
+
+ Holding your iPhone at the height of your hip is another simple and effective way to find an angle that offers a unique perspective of the scene. Shooting from the hip is especially useful if you want to use your iPhone for Street photography because it makes the act of taking a photo much less obvious. Spontaneity is probably the most important aspect of street photography, and if nobody realizes you are taking pictures, the photos will look more candid.
+
+ Framing might a bit more complicated since you can't really look at your display while you are taking a picture but if you use this type of a shot frequently your ability to create perfectly framed photos without even looking will improve significantly.
+
+#### 5\.  Bird's Eye View
+
+![bird-eye-view-shots](https://images.wondershare.com/filmora/article-images/bird-eye-view-shots.jpg)
+
+ Image resource: Google
+
+ Looking down on a beautiful view impresses everyone, but putting yourself in a position to watch the world from a top of a mountain or even a building requires a certain level of preparation. However, a bird's eye view angle can be captured on any location, and you just need to place yourself above the subject of your photo. This type of shot can be used for portraits, areal shots, and even breathtaking landscapes, but all objects depicted in bird's eye view photos will appear smaller than they actually are.
+
+ Stairwells or even chairs can be used to take a high vantage point, but you must also make sure that your iPhone is perfectly stable and avoid camera shakes at any cost.
+
+#### 6\.  Use a Frame Within a Frame
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
+![use-frame-photography](https://images.wondershare.com/filmora/article-images/use-frame-photography.jpg)
+
+ Image resource: Chris Utano Photography
+
+ All photos have a rectangular shape, and depicting the same shape within a photo creates instant dynamics between the shape you captured in a photo and its literal shape. A frame can be literally anything from a window in your room to a crack in the wall or even an old photo frame, and each item you use as a frame will give the photo a special atmosphere.
+
+ Even though frames are an incredibly fun way to create photos, they obstruct the view of the spectator which is why figuring out how to incorporate a frame into the composition of your shot may take some patience and practice.
+
+#### 7\.  Use Transparent Objects as Lens Filters
+
+![shoot-trought-another-subject](https://images.wondershare.com/filmora/article-images/shoot-trought-another-subject.jpg)
+
+ Image resource: Digital Photo Secrets
+
+ You don't have to know anything about camera lens filters in order to use them. Your sunglasses, glasses of water or any other transparent or reflecting surface can be used as a filter through which you take pictures.
+
+ If you take a photo through a glass of water you'll be able to create a distorted image of the view behind the glass. Taking photos through transparent objects can be a lot of fun, but it is often more complicated than it seems. Controlling aperture, exposure or focus manually from your iPhone may help you get better results because you'll be able to decide where the focal point of the photo will be or fine-tune the amount of light your iPhone camera can pick up.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/updated-10-advanced-pixlr-editing-hacks-for-stunning-photos/"><u>[Updated] 10 Advanced Pixlr Editing Hacks for Stunning Photos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-the-social-media-labyrinth-for-virality/"><u>[Updated] Mastering the Social Media Labyrinth for Virality</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/10-advanced-techniques-to-master-with-canva-designer/"><u>10 Advanced Techniques to Master with Canva Designer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-androidiphones-ultimate-arvr-game-list/"><u>2024 Approved  Android/iPhone's Ultimate AR/VR Game List</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-artistry-in-your-pocket-the-bestiary-of-top-8-iphone-drawing-apps/"><u>2024 Approved  Artistry in Your Pocket  The Bestiary of Top 8 iPhone Drawing Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elite-workplace-cloud-data-haven/"><u>2024 Approved  Elite Workplace Cloud Data Haven</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-exploring-periscopes-offerings-no-cost-entry-and-signup-process/"><u>2024 Approved  Exploring Periscope's Offerings  No Cost Entry & Signup Process</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-guard-your-gallery-with-gratis-cloud-and-paid-storage-tiers/"><u>2024 Approved  Guard Your Gallery with Gratis Cloud & Paid Storage Tiers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-high-definition-showdown-projection-systems-versus-tv-in-4k-world/"><u>2024 Approved  High-Definition Showdown  Projection Systems versus TV in 4K World</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-innovative-ai-tools-to-spark-your-podcast-written-name/"><u>2024 Approved  Innovative AI Tools to Spark Your Podcast' Written Name</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-join-the-metaverse-meme-revolution-quick-tips-for-original-creators/"><u>2024 Approved  Join the Metaverse Meme Revolution - Quick Tips for Original Creators</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-ifunny-meme-downloads-and-fun/"><u>2024 Approved  Mastering iFunny Meme Downloads & Fun</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-network-live-broadcasts-via-vlc/"><u>2024 Approved  Mastering Network Live Broadcasts via VLC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-srt-file-sharing-on-social-platforms/"><u>2024 Approved  Mastering SRT File Sharing on Social Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-premium-animated-design-kits/"><u>2024 Approved  Premium Animated Design Kits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-premium-matchmakers-15-perfect-gear-compatible-with-gopro/"><u>2024 Approved  Premium Matchmakers  15 Perfect Gear Compatible with GoPro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-image-hoarders-destination-list/"><u>2024 Approved  Prime Image Hoarders' Destination List</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-vhs-illusions-to-enhance-film-projects/"><u>2024 Approved  Prime VHS Illusions to Enhance Film Projects</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-revolutionize-your-editing-with-fcps-premier-tools/"><u>2024 Approved  Revolutionize Your Editing with FCP's Premier Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-modern-shoppers-guide-to-360-degree-imaging-tech/"><u>2024 Approved  The Modern Shopper's Guide to 360-Degree Imaging Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-ultimate-path-to-becoming-an-fcp-specialist/"><u>2024 Approved  The Ultimate Path to Becoming an FCP Specialist</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-watchers-whispers-essential-websites-for-got-sound-files/"><u>2024 Approved  The Watchers' Whispers  Essential Websites for GoT Sound Files</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-apple-iphone-14-pro-max-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>How to Change GPS Location on Apple iPhone 14 Pro Max Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-vivo-v29-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Vivo V29 FRP Bypass Instantly</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-nokia-c12-plus-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Nokia C12 Plus Phone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-pro-landscape-capture-iphone-killer-secrets-revealed/"><u>In 2024, Pro Landscape Capture  IPhone Killer Secrets Revealed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/infuse-vibrancy-mastering-music-integration-in-social-media-videos-for-2024/"><u>Infuse Vibrancy  Mastering Music Integration in Social Media Videos for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/secrets-to-more-likes-on-your-tiktok-unpacks/"><u>Secrets to More Likes on Your TikTok Unpacks</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/tackling-interoperability-failure-on-windows-10/"><u>Tackling Interoperability Failure on Windows 10</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+</ul></div>
