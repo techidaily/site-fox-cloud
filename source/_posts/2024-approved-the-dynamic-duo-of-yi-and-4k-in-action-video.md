@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Dynamic Duo of Yi and 4K in Action Video\""
-date: 2024-07-12T16:19:49.239Z
-updated: 2024-07-13T16:19:49.239Z
+date: 2024-08-08T10:34:35.602Z
+updated: 2024-08-09T10:34:35.602Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/13887af25c31ebc0af7fa01bee84ac625b343ea77
 
 # Yi 4K + Action Camera Complete Review
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -114,10 +118,16 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -144,3 +154,64 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-syncing-with-symphonies-music-on-whatsapp-status/"><u>[New] Syncing with Symphonies  Music on WhatsApp Status</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-echoes-in-the-stream-full-year-tweet-video-analysis/"><u>[Updated] Echoes in the Stream - Full Year Tweet Video Analysis</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-perfect-360-videography-streaming-tips-for-youtube/"><u>2024 Approved  Perfect 360 Videography  Streaming Tips for YouTube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-7-nft-generators-to-turn-your-artwork-into-nfts/"><u>2024 Approved  Top 7 NFT Generators to Turn Your Artwork Into NFTs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-cloud-picks-price-and-performance-comparison/"><u>2024 Approved  Top Cloud Picks  Price & Performance Comparison</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-tale-architecting-network/"><u>2024 Approved  Top Tale Architecting Network</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-ultimate-guide-selecting-the-top-8-tripods-for-high-res-cameras/"><u>2024 Approved  Ultimate Guide  Selecting the Top 8 Tripods for High-Res Cameras</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-ultimate-selection-top-7-high-definition-camcorders-for-dynamic-shots/"><u>2024 Approved  Ultimate Selection  Top 7 High-Definition Camcorders for Dynamic Shots</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-understanding-sns-hdr-pros-role-in-hdr-editing/"><u>2024 Approved  Understanding SNS HDR Pro's Role in HDR Editing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-unleash-your-inner-editor-with-these-premium-androidpc-apps/"><u>2024 Approved  Unleash Your Inner Editor with These Premium Android/PC Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unlocking-deep-sleep-with-asmr-strategies/"><u>2024 Approved  Unlocking Deep Sleep with ASMR Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unlocking-sierra-icloud-drive-integrations-and-usage/"><u>2024 Approved  Unlocking Sierra iCloud Drive Integrations & Usage</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unveiling-the-secrets-of-captivating-imagery-puzzles/"><u>2024 Approved  Unveiling the Secrets of Captivating Imagery Puzzles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-visual-delight-expertly-ranked-top-8k-televisions-reviewed/"><u>2024 Approved  Visual Delight  Expertly Ranked Top 8K Televisions Reviewed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-vlc-and-mpc-showdown-whats-your-preference-for-video/"><u>2024 Approved  VLC and MPC Showdown  What's Your Preference for Video?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-vr-in-schools-the-evolving-educational-sphere/"><u>2024 Approved  VR in Schools  The Evolving Educational Sphere</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-win-and-mac-photo-magic-turn-images-to-cutouts-effortlessly/"><u>2024 Approved  Win & Mac Photo Magic  Turn Images to Cutouts Effortlessly</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-infinix-note-30-vip-racing-edition-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Infinix Note 30 VIP Racing Edition to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/48-hour-memelore-creation-via-kinemaster-for-2024/"><u>48-Hour Memelore  Creation via KineMaster for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/5-leading-edge-4k-tvs-for-gamers-for-2024/"><u>5 Leading Edge 4K TVs for Gamers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/7-best-budget-friendly-dvd-players-for-computers-for-2024/"><u>7 Best Budget-Friendly DVD Players for Computers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/a-comprehensive-guide-to-vr-travel-adventures-for-2024/"><u>A Comprehensive Guide to VR Travel Adventures for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/a-practical-guide-to-downloading-audio-content-from-pinterest-for-2024/"><u>A Practical Guide to Downloading Audio Content From Pinterest for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/accelerating-your-creative-process-high-quality-3d-models-tools-for-2024/"><u>Accelerating Your Creative Process  High-Quality 3D Models Tools for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/action-packed-snapshots-the-bold-polaroid-xs-100i-review-for-2024/"><u>Action-Packed Snapshots  The Bold Polaroid XS 100I Review for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/advanced-dynamic-typographic-options-for-2024/"><u>Advanced Dynamic Typographic Options for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ae-text-and-title-styles-guide-for-2024/"><u>AE Text & Title Styles Guide for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/alternative-views-to-googles-ar-sticker-experience-for-2024/"><u>Alternative Views to Google's AR Sticker Experience for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/androidiphones-finest-top-10-cost-effective-image-enhancers-ranked-for-2024/"><u>Android/iPhone's Finest – Top 10 Cost-Effective Image Enhancers Ranked for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/apex-level-clarity-convert-high-res-videos/"><u>Apex-Level Clarity  Convert High-Res Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/apk-journey-to-gaming-bliss-funimate-pro-guide/"><u>APK Journey to Gaming Bliss  Funimate Pro Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/asmr-quality-meets-economic-realities-for-2024/"><u>ASMR Quality Meets Economic Realities for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/audio-alchemy-mixing-techniques-for-sound-fusion-with-davinci-resolve/"><u>Audio Alchemy  Mixing Techniques for Sound Fusion with DaVinci Resolve</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/audio-harmony-seekers-perfecting-video-moods/"><u>Audio Harmony Seekers  Perfecting Video Moods</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/basics-of-weaving-a-narrative-thread-for-2024/"><u>Basics of Weaving a Narrative Thread for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/become-a-meme-genius-the-best-8-gif-making-methods-for-2024/"><u>Become a Meme Genius  The Best 8 GIF-Making Methods for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/begin-a-new-era-of-editing-with-xps-video-suite-for-2024/"><u>Begin a New Era of Editing with Xp's Video Suite for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/benq-sw320-monitor-review-a-leap-into-4k-territory-for-2024/"><u>BenQ SW320 Monitor Review  A Leap Into 4K Territory for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/best-practices-for-advanced-ae-plug-ins-for-2024/"><u>Best Practices for Advanced AE Plug-Ins for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/beyond-a-single-lens-discover-the-top-11-angle-capable-cams/"><u>Beyond a Single Lens  Discover the Top 11 Angle-Capable Cams</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/beyond-vlc-a-deep-dive-into-media-players-for-2024/"><u>Beyond VLC  A Deep Dive Into Media Players for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/boosting-stability-and-speed-more-ram-for-minecraft/"><u>Boosting Stability & Speed  More RAM for Minecraft</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-macs-audio-problem-how-to-restore-sounds-on-your-device/"><u>Fixing Mac's Audio Problem: How to Restore Sounds on Your Device</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How to Stop Google Chrome from Tracking Your Location On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-y78-5g-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Vivo Y78 5G to New Android? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Life360 Notify When You Log Out On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-navigating-optimal-youtube-aesthetics-for-maximum-engagement/"><u>In 2024, Navigating Optimal YouTube Aesthetics for Maximum Engagement</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-ultimate-no-cost-voice-modifier-transform-your-valorant-gameplay/"><u>In 2024, Ultimate No-Cost Voice Modifier  Transform Your Valorant Gameplay</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-nba-livestream-a-list-of-15-essentials-for-2024/"><u>Mastering NBA Livestream  A List of 15 Essentials for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/newly-tested-foldable-iphone-preview-of-price-points-arrival-schedule-technical-specs-and-latest-tech-rumors/"><u>Newly Tested Foldable iPhone - Preview of Price Points, Arrival Schedule, Technical Specs and Latest Tech Rumors</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-infinix-hot-30-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Infinix Hot 30 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-realme-c33-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-role-of-the-paperclip-maximizer-problem-within-advanced-ai-systems/"><u>The Role of the Paperclip Maximizer Problem Within Advanced AI Systems</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-google-pixel-7a-by-fonelab-android-recover-music/"><u>The way to get back lost music from Google Pixel 7a</u></a></li>
+</ul></div>

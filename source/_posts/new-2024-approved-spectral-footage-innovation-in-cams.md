@@ -1,0 +1,197 @@
+---
+title: "\"[New] 2024 Approved  Spectral Footage  Innovation in Cams\""
+date: 2024-08-08T10:44:06.661Z
+updated: 2024-08-09T10:44:06.661Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] 2024 Approved: Spectral Footage: Innovation in Cams\""
+excerpt: "\"This Article Describes [New] 2024 Approved: Spectral Footage: Innovation in Cams\""
+keywords: "\"Cam Tech Innovate,Spectral Camera,Innovative Cam Design,Cutting-Edge Cameras,Spectral Imaging Tech,Advanced Cams Innovation,New Spectral Cam Model\""
+thumbnail: https://thmb.techidaily.com/0ca2747bace885998e167d601fb15c3166c8be683eacac54f4c7c14302087724.jpg
+---
+
+## Spectral Footage: Innovation in Cams
+
+# Drift Innocations Ghost-S Action Camera Review
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+ Some of you may find Drift Ghost-S larger and heavier than other competing action cameras but you cannot decline this fact that it offers impressive battery life with built in type preview screen. People who demand amazing image quality with smaller image dimensions are advised to go for Drift Ghost-S device. This action camera excels in terms of features, quality and long life services. Professionals rate this camera as top action camera model due to perfect combination of features, image quality and battery life.
+
+ Ghost S follows the same design as that of HD Ghost and its bullet shaped model assists athletes in easy scene recording. The overall weight of this device is 5.9 ounces so it can be easily paired with goggles or strapped over helmet. The 2 inch LCD screen is protected with Gorilla Glass protection and the wide angle lens can cover views up to 160 degree. You will have plenty of mounting options with Drift Ghost-S device and it always stays safe with quick connect clip. Further, this device can be easily controlled from Wi-Fi remote and the outstanding combination of audio and video make it significantly stunning and fragile camera.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![drift-ghost-s-image](https://images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
+
+[Check price at Amazon](https://www.amazon.com/gp/product/B00GJRCPRO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00GJRCPRO&linkId=02d9f7ab2afeae8b2f0e96dcd1f5f44b)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Complete Review for Drift Ghost-S
+
+#### **Specs table:**
+
+| **Item name**           | Drift Ghost-S                                                  |                      |                                                                                        |
+| ----------------------- | -------------------------------------------------------------- | -------------------- | -------------------------------------------------------------------------------------- |
+| **Manufacture**         | Drift (US)                                                     |                      |                                                                                        |
+| **Price:**              | Official:$299.99                                               |                      |                                                                                        |
+| **Date available**      | November 2013                                                  |                      |                                                                                        |
+| **Basic Specification** |                                                                |                      |                                                                                        |
+| **Weight**              | 171g only                                                      | **Shape**            | Bullet shaped                                                                          |
+| **Memory**              | MicroSD/SDHC/SDXC (memory capacity can go up to 64GB)          | **Dimensions**       | 105x52x33mm                                                                            |
+| **Battery**             | (3.5 Hours of Continuous Shooting) 1700MAH Lithium Ion Battery | **Waterproof**       | Waterproof to the Depth of 9' (3m)                                                     |
+| **Image resolution**    | Up to 12mp                                                     | **Video resolution** | Up to 1080P/60fps                                                                      |
+| **Display**             | 2" LCD Screen with Gorilla Glass                               | **Modes**            | Shock Proof to 2M drop, Freeze Proof to -10°C, Drift DataLink Wi-Fi Enabled &Drift App |
+
+#### **Pros and Cons**
+
+| **Pros**                                                                     | **Cons**                                                                                          |
+| ---------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------- |
+| It can capture videos with 1080P/60fps resolution level.                     | Many competing action camera models can offer better image and video quality in same price range. |
+| Comes with Large display and Swivelling lens                                 | Little bit heavier and larger design                                                              |
+| This device is Waterproof even without housing                               | You will not be able to enjoy 4K recording with this device                                       |
+| You will get a remote with the package                                       | You need to spend more to get its protective case.                                                |
+| Its big battery can serve users up to 3.5 hours with 1080p resolution level. |                                                                                                   |
+
+#### **What is inside the Box:**
+
+ When you will open your Drift Ghost S package then following things will come out:
+
+1. (Mini-B) USB cable type Microphone Extension Cable
+2. Wrist Strap
+3. Waterproof rear hatch
+4. Curved and Flat adhesive mount
+5. Goggle mount
+6. Universal clip
+7. Connection Hatch
+8. Rechargeable Battery
+9. Remote Control
+10. Ghost-S
+
+#### **Design and Accessories:**
+
+ As already discussed Ghost S device is a bit larger as well as bulkier then other action cameras. But the best part is that its bigger size allows storage of much powerful battery. You will be able to record up to 210 minutes with 1080p and 30fps setting. This bullet shaped camera is not preferably used with wrist and chest mount but people find it ideal choice for helmet mount. There are four different buttons on the top portion of camera that can be used for basic camera settings.
+
+ As already discussed Ghost S device is a bit larger as well as bulkier then other action cameras. But the best part is that its bigger size allows storage of much powerful battery. You will be able to record up to 210 minutes with 1080p and 30fps setting. This bullet shaped camera is not preferably used with wrist and chest mount but people find it ideal choice for helmet mount. There are four different buttons on the top portion of camera that can be used for basic camera settings.
+
+#### **Video and Photo Quality:**
+
+ Video and photo quality of Drift Ghost S is good enough as compared to other competing devices in the same price range. You can easily set recording to different modes for capturing footage with customized resolution level and frame rates. The wide angle focus create much better views for adventure sports lovers that is why this camera is often purchased by travellers.
+
+ With Ghost S you can easily record videos at 1080p resolution and frame rates can be adjusted to 60, 50, 30 and 25fps. The field of view can be easily adjusted to 160, 127 and 90 degree as per need. If you start recording at 960p then frame rate can be adjusted to 48fps whereas if you need to slow down videos then it is good to switch to 720p. With 960p and 720p the FOV limits to 160 degrees. The video compression level can be also adjusted with ease by choosing high bit rates or normal mode.
+
+ It is possible to record footage with Ghost S in high bit rate as well as in normal mode. The still quality is 12MP that offers crystal clear views. When you use normal bit rate at 1080p then edges of videos appear jagged and interlaced. But this issue can be slightly resolved with high bit rate settings. If you want to switch to time lapse mode then it is possible to adjust shoot timings to 10, 5, 3, 2, 1 and 0.5 second intervals. With burst mode setting, you can easily capture 5 or 10 impressive shots within each second.
+
+#### **Wi-Fi and Apps:**
+
+ The Ghost S device comes with built in Wi-Fi facility and it assists in better remote control. You can also use interactive camera applications on Android and iOS platforms and the best thing to know is that they make footage adjustments much easier. With these advanced applications, users can easily set field of view, frame rate and exposure along with triggered recording settings. It is also possible to enjoy live view of shoots via smart phone applications but it may lead to little lag. You would love to copy all captured videos and photographs to your smart phone via these camera applications.
+
+#### **Battery Life and Storage:**
+
+ This camera consists of a Micro SDXC type card slot that can easily support cards up to 64 GB capacities. Other than this, your camera possesses Mini-HDMI ports, Mini-USB ports and a large size battery that can support long hour recording. With this big size battery you can easily record up to 3.5 hours with 1080p settings at 30fps frame rate. And if you go ahead with reduced resolution levels then it is possible to record for much longer duration.
+
+#### **The Bottom Line:**
+
+ There is no doubt to say that Drift Ghost S device comes with large screen and intuitive control options. You can also preview you footage before uploading it on any social media platform. Although this device is much costlier as compared to Ghost HD but at the same time possesses all incredible features as like impressive video recording modes. User's rate its battery life best among all action cameras as it can serve for many hours even with high resolution video mode. You will also get good support from company through emails and from their customer support section of official website. The versatility and unique design of Drift Ghost S make it a must buy device.
+
+#### **Recommend best video editing software for action camera users**
+
+ If you want to take your video content to the next level with some video editing without being completely overwhelmed, you will definitely want to give [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) (originally Wondershare Video Editor) a try. The software offers a free trial period which allows you to try before buy. Well-designed intuitive interface enables anyone to master the program within minutes.
+
+ What’s more, it has all the features you will need to make you feel like a pro. Simple editing functionalities like trimming, cropping, merging, adjusting speed, fast or slow motion, mosaic etc. will meet most of your demands. Besides all that, advanced features like split screen, green screen, filters&overlay effects, together with hundreds of licensed music, motion elements, transiton effects etc will definitely turn your video into something extraordinary with the least amount of effort. Check to video below to get an overview of this gorgeous video editing program:
+
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-bridging-format-gaps-with-srt-transformations/"><u>[New] 2024 Approved  Bridging Format Gaps with SRT Transformations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-from-shopping-spree-to-stardom-editing-your-haul-video/"><u>[New] 2024 Approved  From Shopping Spree to Stardom  Editing Your Haul Video</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unveiling-the-secrets-to-smm-mastery-a-comprehensive-guide-in-10-stages/"><u>[New] 2024 Approved  Unveiling the Secrets to SMM Mastery  A Comprehensive Guide in 10 Stages</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-chromatic-charisma-mastering-colorful-filters-on-snapchat/"><u>[New] Chromatic Charisma  Mastering Colorful Filters on Snapchat</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-determining-best-video-frames-per-second-fps-rate/"><u>[New] Determining Best Video Frames Per Second (FPS) Rate</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-hustle-smart-listen-hard-top-tasks-for-podcast-enthusiasts-for-2024/"><u>[New] Hustle Smart, Listen Hard  Top Tasks for Podcast Enthusiasts for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-camstudio-full-features-analysis/"><u>[New] In 2024, CamStudio Full Features Analysis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-selecting-perfect-unboxing-tunes-a-guide/"><u>[New] In 2024, Selecting Perfect Unboxing Tunes  A Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-depth-guide-best-audio-techniques-on-windows/"><u>[New] In-Depth Guide  Best Audio Techniques on Windows</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-typhoon-h-unveiled-yuneecs-aerial-marvel-for-2024/"><u>[New] Typhoon H Unveiled  Yuneec's Aerial Marvel for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-expert-techniques-for-streamers-on-macos/"><u>[Updated] 2024 Approved  Expert Techniques for Streamers on macOS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unveiling-filmoras-most-attractive-edits/"><u>[Updated] 2024 Approved  Unveiling Filmora's Most Attractive Edits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-videographic-velocity-top-cams-for-smoothly-snapped-slow-motion/"><u>[Updated] 2024 Approved  Videographic Velocity  Top Cams for Smoothly Snapped Slow Motion</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-chucklechamber-endless-options-to-spread-smiles-for-2024/"><u>[Updated] ChuckleChamber  Endless Options to Spread Smiles for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevate-your-canva-video-game-editing-and-mixing-soundtracks-for-2024/"><u>[Updated] Elevate Your Canva Video Game  Editing & Mixing Soundtracks for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-guide-to-fb-video-repositories-windows-and-macos/"><u>[Updated] Guide to FB Video Repositories  Windows & macOS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ultimate-visual-experience-eizos-4k-monitor-reviewed/"><u>[Updated] In 2024, Ultimate Visual Experience  EIZO's 4K Monitor Reviewed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-inside-the-world-of-vivacut-expert-editor-review-2024/"><u>[Updated] Inside the World of VivaCut  Expert Editor Review 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-iphone-night-pics-101-enhancing-dark-images/"><u>[Updated] IPhone Night Pics 101  Enhancing Dark Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-navigating-the-best-html5-video-player-landscape-for-2024/"><u>[Updated] Navigating the Best HTML5 Video Player Landscape for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-theta-s-unveiled-a-thorough-assessment/"><u>[Updated] Theta S Unveiled  A Thorough Assessment</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-essential-10-family-friendly-movies-for-summertime-bliss/"><u>2024 Approved  Essential 10 Family-Friendly Movies for Summertime Bliss</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-the-ultimate-pathway-to-vimeo-recording/"><u>2024 Approved  The Ultimate Pathway to Vimeo Recording</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-ultimate-tech-guide-handling-srt-on-a-mac/"><u>2024 Approved  The Ultimate Tech Guide  Handling SRT on a Mac</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-upgrade-your-content-creation-process-via-youtube-studio/"><u>2024 Approved  Upgrade Your Content Creation Process via YouTube Studio</u></a></li>
+<li><a href="https://extra-information.techidaily.com/brilliant-backdrops-using-light-to-enchant-audiences-for-2024/"><u>Brilliant Backdrops  Using Light to Enchant Audiences for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/effortless-video-organization-on-mac-top-8-metadata-editors/"><u>Effortless Video Organization on Mac Top 8 Metadata Editors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ensuring-smooth-sailing-for-iphone-xs-face-recognition-for-2024/"><u>Ensuring Smooth Sailing for iPhone X's Face Recognition for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/from-closed-to-open-mastering-srt-files-in-macos/"><u>From Closed to Open  Mastering SRT Files in macOS</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/high-res-horizon-a-comprehensive-look-at-the-sony-xperia-xz-for-2024/"><u>High-Res Horizon - A Comprehensive Look at the Sony Xperia XZ for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-infinix-zero-30-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring Infinix Zero 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-connoisseurs-compendium-budget-friendly-photography-havens/"><u>In 2024, Connoisseur's Compendium  Budget-Friendly Photography Havens</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-iphone-11-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On iPhone 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-list-of-picture-protection-software/"><u>In 2024, The Ultimate List of Picture Protection Software</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-samsung-galaxy-m34-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Samsung Galaxy M34 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/insightful-evaluation-androids-photography-tool-lightroom/"><u>Insightful Evaluation  Android's Photography Tool, Lightroom</u></a></li>
+<li><a href="https://extra-information.techidaily.com/leading-10-lenses-revolutionizing-photography/"><u>Leading 10 Lenses Revolutionizing Photography</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigate-and-watch-harnessing-netflixs-picture-in-picture-functionality-for-2024/"><u>Navigate and Watch  Harnessing Netflix's Picture-in-Picture Functionality for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/revive-your-lg-tvs-netflix-function-discover-these-19-easy-fixes-for-seamless-viewing/"><u>Revive Your LG TV's Netflix Function: Discover These 19 Easy Fixes for Seamless Viewing</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unsticking-iphone-from-headphones-mode-a-guide-with-8-proven-fixes/"><u>Unsticking iPhone From Headphones Mode: A Guide with 8 Proven Fixes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/zero-fee-techniques-for-vibrant-video-text-effects-for-2024/"><u>Zero-Fee Techniques for Vibrant Video Text Effects for 2024</u></a></li>
+</ul></div>
