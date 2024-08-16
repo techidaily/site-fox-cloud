@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Panasonic’s HX-A1 Wearable Cam Examined - A Detailed Review\""
-date: 2024-07-12T16:07:18.264Z
-updated: 2024-07-13T16:07:18.264Z
+date: 2024-08-15T18:06:17.653Z
+updated: 2024-08-16T18:06:17.653Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,9 @@ thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -63,6 +66,9 @@ thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Accessories in the box
 
  The box obviously contains one of the best products from Panasonic which is the camera but also has little surprising accessories which will alleviate your shooting experience.
@@ -100,6 +106,9 @@ thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d
 
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Features
 
 #### **1. Video and photo quality**
@@ -128,6 +137,9 @@ thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d
 
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
  The minor drawbacks in A1 are completely understandable. With its decent picture quality and plenty of other features such as SFDW formula, it can be rightly said that Panasonic has created a fine budget camera which is worth investing. There is always a way to capture your fun and thrills and Panasonic HX-A1 gets along your making it a capable action camera!
@@ -135,6 +147,9 @@ thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -162,3 +177,54 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-maximizing-team-output-8-excellent-facebook-planners-revealed/"><u>[New] 2024 Approved  Maximizing Team Output  8 Excellent Facebook Planners Revealed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfecting-your-shots-action-cameras-for-skisnowboarding/"><u>[New] 2024 Approved  Perfecting Your Shots  Action Cameras for Ski/Snowboarding</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-achieving-effortless-seams-in-inshot-videos-for-2024/"><u>[New] Achieving Effortless Seams in Inshot Videos for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-building-striking-podcast-branding-logo-design-guide/"><u>[New] Building Striking Podcast Branding  Logo Design Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-android-lightroom-app-breakdown-a-complete-review/"><u>[New] In 2024, Android Lightroom App Breakdown  A Complete Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-beaming-login-logout-directions/"><u>[New] In 2024, Beaming Login / Logout Directions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pickup-vs-the-rest-which-dominates-in-androids-photo-editing-field/"><u>[New] In 2024, PickUp Vs. The Rest  Which Dominates in Android's Photo Editing Field</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-reassessing-the-updates-to-sonys-s6500-bdhd-player/"><u>[New] In 2024, Reassessing the Updates to Sony's S6500 BD/HD Player</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-validate-video-rights-a-guide-to-pre-uploading-on-tiktok/"><u>[New] In 2024, Validate Video Rights  A Guide to Pre-Uploading on TikTok</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-depth-vita-video-editing-analysis-and-step-by-step-guide/"><u>[New] In-Depth Vita Video Editing Analysis & Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-the-art-of-youtubing-avoiding-the-top-8-newbie-errors/"><u>[New] Mastering the Art of YouTubing  Avoiding the Top 8 Newbie Errors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ranking-the-best-8-websites-with-shimmering-3d-and-text/"><u>[New] Ranking the Best  8 Websites with Shimmering 3D & Text</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-z2-play-analysis-next-gen-tech-insights/"><u>[Updated] 2024 Approved  Z2 Play Analysis  Next-Gen Tech Insights</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-glimpse-into-the-digital-frontier-todays-vr-for-2024/"><u>[Updated] A Glimpse Into the Digital Frontier  Today's VR for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-cutting-edge-tips-for-android-time-lapse-capture-mastery-2024/"><u>[Updated] Cutting-Edge Tips for Android Time-Lapse Capture Mastery 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-demystifying-av1-encoding-basics/"><u>[Updated] Demystifying AV1 Encoding Basics</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-hobbyist-to-pro-optimal-cameras-for-youtubing-for-2024/"><u>[Updated] From Hobbyist to Pro  Optimal Cameras For YouTubing for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-amplifying-online-videos-best-5-tools-and-tricks/"><u>[Updated] In 2024, Amplifying Online Videos  Best 5 Tools & Tricks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-belly-laughs-exclusive-access-to-freebies/"><u>[Updated] In 2024, Belly Laughs  Exclusive Access to Freebies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-strategizing-your-data-space-pre-eminent-cloud-services/"><u>[Updated] In 2024, Strategizing Your Data Space  Pre-Eminent Cloud Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unlocking-apples-audio-world-a-download-guide-for-ios-users/"><u>[Updated] In 2024, Unlocking Apple's Audio World  A Download Guide for iOS Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-making-a-buzz-aesthetic-strategies-for-podcast-brands-for-2024/"><u>[Updated] Making a Buzz  Aesthetic Strategies for Podcast Brands for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-step-by-step-from-twitter-videosyoutube-songs-to-scribbled-mp3-files/"><u>[Updated] Step-by-Step  From Twitter Videos/YouTube Songs to Scribbled MP3 Files</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-step-by-step-to-adobe-cloud-success-and-non-adobe-options/"><u>[Updated] Step-by-Step to Adobe Cloud Success & Non-Adobe Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-role-of-storytelling-in-presenting-market-research-findings/"><u>[Updated] The Role of Storytelling in Presenting Market Research Findings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-10-vrvirtual-reality-apps-for-iphoneandroid/"><u>[Updated] Top 10 VR/Virtual Reality Apps for iPhone/Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-distinguished-top-5-tiny-yet-powerful-cameras/"><u>2024 Approved  Distinguished Top 5 Tiny Yet Powerful Cameras</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevating-your-unboxing-craft-techniques-for-skyro-written-by-user/"><u>2024 Approved  Elevating Your Unboxing Craft  Techniques for Skyro Written by User</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-free-video-credits-pro-the-best-suggestions-1-6/"><u>2024 Approved  Free Video Credits Pro - The Best Suggestions #1-6</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-next-gen-thrills-with-intova-x-action-tech/"><u>2024 Approved  Next-Gen Thrills with Intova X Action Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-new-era-of-advertising-embracing-the-metaverse/"><u>2024 Approved  The New Era of Advertising  Embracing the Metaverse</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/ban-blinking-behemoth-easy-guide/"><u>Ban Blinking Behemoth: Easy Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-your-youtube-channels-for-accurate-monetization-practices-for-2024/"><u>Check Your YouTube Channels for Accurate Monetization Practices for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dessert-dialogues-discovering-chocolate-across-cultures/"><u>Dessert Dialogues: Discovering 'Chocolate' Across Cultures</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/digital-dimensions-metaverse-vs-omniverse-explained-for-2024/"><u>Digital Dimensions  Metaverse Vs. Omniverse Explained for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/drones-and-stabilization-your-ultimate-camera-gimbal-selection-for-2024/"><u>Drones & Stabilization  Your Ultimate Camera Gimbal Selection for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevating-vlogging-to-new-heights-yi-hero-reviewed-for-2024/"><u>Elevating Vlogging to New Heights  Yi Hero Reviewed for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Asus ROG Phone 7? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-share-videos-on-facebook-in-2024/"><u>How to Share Videos on Facebook, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-photographers-roadmap-to-stunning-hdr-portraits/"><u>In 2024, The Photographer's Roadmap to Stunning HDR Portraits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mi-drone-reviewed-capturing-landscapes-in-full-resolution/"><u>MI Drone Reviewed  Capturing Landscapes in Full Resolution</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-free-divx-video-trimming-tools-top-picks/"><u>New 2024 Approved Free Divx Video Trimming Tools Top Picks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/selecting-perfect-unboxing-tunes-a-guide-for-2024/"><u>Selecting Perfect Unboxing Tunes  A Guide for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-techniques-for-when-d3dx930dll-is-nowhere-to-be-found/"><u>Troubleshooting Techniques for When d3dx9_30.dll Is Nowhere to Be Found</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-how-to-restoring-and-reinstalling-windows-on-dell-laptops/"><u>Ultimate How-To: Restoring and Reinstalling Windows on Dell Laptops</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/voice-changer-expertise-unlocking-morphvox-potential-for-2024/"><u>Voice Changer Expertise  Unlocking MorphVOX Potential for 2024</u></a></li>
+</ul></div>

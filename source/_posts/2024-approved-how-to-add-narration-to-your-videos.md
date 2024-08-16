@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Add Narration to Your Videos\""
-date: 2024-07-12T16:06:21.791Z
-updated: 2024-07-13T16:06:21.791Z
+date: 2024-08-15T18:07:10.682Z
+updated: 2024-08-16T18:07:10.682Z
 tags: 
   - screen-recording
   - ai video
@@ -44,11 +44,17 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
@@ -62,6 +68,9 @@ You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Some Tips for Recording Narration
 
 Try playing the clip in the preview window to get a sense of what you want to say fits well with the space available in the project.
@@ -72,6 +81,9 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -85,9 +97,15 @@ It can also help make a connection with your audience because you can be relatin
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Should you use narration in your next project?
 
 The best way to learn something is by doing it. So the next time you record a video, think about how you could augment your video project with narration.
@@ -127,3 +145,36 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-expert-tips-on-choosing-the-best-youtube-to-avi-software/"><u>[New] 2024 Approved  Expert Tips on Choosing the Best YouTube-to-AVI Software</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-pace-perfection-on-instagram-a-guide-to-tempo-tweaks/"><u>[New] 2024 Approved  Pace Perfection on Instagram  A Guide to Tempo Tweaks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-pranksters-paradise-iphone-memes/"><u>[New] Pranksters' Paradise - iPhone Memes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-discover-unlimited-stories-free-extensions-and-mobile-marvels/"><u>[Updated] In 2024, Discover Unlimited Stories – FREE Extensions & Mobile Marvels</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-quick-and-simple-ipad-conversion-turn-jpgpng-into-pdf/"><u>[Updated] Quick and Simple iPad Conversion  Turn JPG/PNG Into PDF</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-reversing-a-youtube-strike-a-guide/"><u>[Updated] Reversing a YouTube Strike  A Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-a-collection-of-inspiration-5-best-book-video-tts/"><u>2024 Approved  A Collection of Inspiration  5 Best Book Video TTs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-a-tale-of-high-quality-mobility-sony-xperia-xz-summary/"><u>2024 Approved  A Tale of High-Quality Mobility  Sony Xperia XZ Summary</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-cinematic-speed-top-cameras-for-slow-motion-videography/"><u>2024 Approved  Cinematic Speed  Top Cameras for Slow Motion Videography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-dusk-rising-the-fade-out-process/"><u>2024 Approved  Dusk Rising  The Fade Out Process</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-essential-tools-for-adding-framing-to-digital-pictures-2023-edition/"><u>2024 Approved  Essential Tools for Adding Framing to Digital Pictures - 2023 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-final-cut-pro-full-using-guide/"><u>2024 Approved  Final Cut Pro Full Using Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-game-changing-tvs-for-ps5-and-xbox-series-x-enthusiasts/"><u>2024 Approved  Game-Changing TVs for PS5 & Xbox Series X Enthusiasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-google-image-mastery-rapid-and-remarkable-mosaics-created/"><u>2024 Approved  Google Image Mastery  Rapid & Remarkable Mosaics Created</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-how-to-get-more-likes-on-your-tiktok-unboxing-video/"><u>2024 Approved  How to Get More Likes on Your TikTok Unboxing Video?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-innovative-techniques-for-unique-canon-timelapse-vids/"><u>2024 Approved  Innovative Techniques for Unique Canon Timelapse Vids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-ios-and-android-leading-10-apps-for-captivating-stickers-on-images/"><u>2024 Approved  IOS & Android  Leading 10 Apps for Captivating Stickers on Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-on-the-lookout-for-economical-vr-experience-china/"><u>2024 Approved  On the Lookout for Economical VR Experience (China)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-perfect-extras-for-precision-in-yi-4k-cameras/"><u>2024 Approved  Perfect Extras for Precision in YI 4K Cameras</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-8-virtual-vision-composition-program/"><u>2024 Approved  Prime 8 Virtual Vision Composition Program</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-proven-audacity-strategies-for-top-quality-recordings/"><u>2024 Approved  Proven Audacity Strategies for Top-Quality Recordings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-quick-launch-to-laughter-ifunnys-meme-app-made-simple/"><u>2024 Approved  Quick Launch to Laughter  IFunny's Meme App Made Simple</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-recapture-image-purity-with-these-premium-photo-editors-online/"><u>2024 Approved  Recapture Image Purity with These Premium Photo Editors Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-revolutionizing-your-phones-storage-space-with-these-47-effective-video-trimmers/"><u>2024 Approved  Revolutionizing Your Phone's Storage Space with These 47 Effective Video Trimmers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-finest-unboxing-content-15-top-ranked-youtube-vids/"><u>2024 Approved  The Finest Unboxing Content  15 Top-Ranked YouTube Vids</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/decipher-youtubes-mysteries-with-advanced-insights-from-social-blade/"><u>Decipher YouTube's Mysteries with Advanced Insights From Social Blade</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/facebooks-top-10-most-watched-music-moments/"><u>Facebook's Top 10 Most-Watched Music Moments</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/galaxy-of-knowledge-sql-data-rebooting/"><u>Galaxy of Knowledge: SQL Data Rebooting</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-apple-iphone-6-plus-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from Apple iPhone 6 Plus Safe and Legal</u></a></li>
+</ul></div>

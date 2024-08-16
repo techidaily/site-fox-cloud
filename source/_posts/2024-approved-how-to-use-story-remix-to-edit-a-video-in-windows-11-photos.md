@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Use Story Remix to Edit a Video in Windows 11 Photos\""
-date: 2024-07-12T16:11:52.724Z
-updated: 2024-07-13T16:11:52.724Z
+date: 2024-08-15T18:01:58.410Z
+updated: 2024-08-16T18:01:58.410Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,9 @@ How to create a Story Remix project automatically –
    3. Give a name and tap on **OK**.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/start-remix-video.jpg)
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 
    1. After the above process gets over, the content gets scanned to automatically create a video adding styles, transitions, and music. The final preview of the project is displayed thereafter.
    2. You can rearrange the content by tapping **Remix it for me** button.
@@ -77,6 +80,9 @@ Here is the guide –
    3. Tap on the **Add** button and give a name.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-random-min.jpg)
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 
 1. Hit on **Create video** afterwards.
 2. Now, you can preview, edit or share your video.
@@ -95,7 +101,13 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 2. You can select one theme from the listed options namely, "No theme", "Adventure", "Chilled", "Classic", "Electric", "Joy" and "Loved". Preview the selected theme and if satisfied, click on "Done".
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Adding image duration
 
 While adding media to the timeline in Story Mix, you will see that there is a default timeline for each image. To adjust the duration, you can do –
@@ -103,6 +115,9 @@ While adding media to the timeline in Story Mix, you will see that there is a de
 Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 
 ### Adding custom text
 
@@ -111,19 +126,31 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 3. Hit ‘Done’ after that.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
+<!-- affiliate ads begin -->
 
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
 2. Preview the changes and click ‘Done’.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 
 ### Trimming video clips
 
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
 2. Hit ‘Done’ in the end.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: How to add 3D effects to a Story Remix project
 
 Adding 3D special effects to video clips is one of the lucrative features of Photos app.
@@ -149,6 +176,9 @@ Now, pick the app or contact and send the video.
 
 Recent videos are found on ‘Collections’ section if they are auto created. Otherwise, all the Story Remix files are located permanently on ‘Creations’ section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 From this article, we are sure that you have got plenty to learn about Story Remix. This wonderful feature from Windows 10 Photos is going to win hearts.
@@ -187,3 +217,43 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-best-jpg-to-gif-tools-online-free-and-easy/"><u>[New] 2024 Approved  Best JPG to GIF Tools Online, Free and Easy</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-iphone-users-unobstructed-tiktok-video-access/"><u>[New] 2024 Approved  IPhone Users  Unobstructed TikTok Video Access</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-lens-and-light-essential-camera-movements-every-novice-needs/"><u>[New] 2024 Approved  Lens & Light  Essential Camera Movements Every Novice Needs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mastering-the-craft-of-background-image-acquisition/"><u>[New] 2024 Approved  Mastering the Craft of Background Image Acquisition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-selecting-the-perfect-wedding-countdown-clock-for-android-and-ios-devices/"><u>[New] 2024 Approved  Selecting the Perfect Wedding Countdown Clock for Android & iOS Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-stealthy-sound-softening-with-garageband/"><u>[New] 2024 Approved  Stealthy Sound Softening with Garageband</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-essential-non-xsplit-video-splitters-for-2024/"><u>[New] Essential Non-Xsplit Video Splitters for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-achieving-excellence-in-your-android-video-brightness/"><u>[New] In 2024, Achieving Excellence in Your Android Video Brightness</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-deciphring-virtuality-metaverse-and-multiverse-distinction/"><u>[New] In 2024, Deciphring Virtuality  Metaverse & Multiverse Distinction</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unlock-the-full-potential-of-your-iphone-photos/"><u>[New] In 2024, Unlock the Full Potential of Your iPhone Photos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-mastering-the-art-of-live-image-capturing-on-screens/"><u>[New] Mastering the Art of Live Image Capturing on Screens</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-pantheon-of-popularity-reddits-top-10-posts/"><u>[New] The Pantheon of Popularity  Reddit's Top 10 Posts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-capturing-landscapes-with-mi-drone-4k-analysis/"><u>[Updated] 2024 Approved  Capturing Landscapes with MI Drone 4K Analysis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-discover-best-alternatives-to-gopro-15-camera-choices/"><u>[Updated] 2024 Approved  Discover Best Alternatives to GoPro  15 Camera Choices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-embark-on-digital-explorations-vr-tour-basics/"><u>[Updated] 2024 Approved  Embark on Digital Explorations  VR Tour Basics</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-progressive-array-of-chat-initiators-for-attracting-podcast-audience/"><u>[Updated] 2024 Approved  Progressive Array of Chat-Initiators for Attracting Podcast Audience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-using-b-roll-to-enhance-cinematic-quality/"><u>[Updated] 2024 Approved  Using B-Roll to Enhance Cinematic Quality</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-boost-image-impact-top-iphone-and-android-sticker-augmenting-tools-for-2024/"><u>[Updated] Boost Image Impact  Top iPhone and Android Sticker Augmenting Tools for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-chromebooks-best-vocal-transformers-the-top-5-chrome-apps/"><u>[Updated] Chromebook's Best Vocal Transformers  The Top 5 Chrome Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-crafting-dynamic-speed-up-videos/"><u>[Updated] In 2024, Crafting Dynamic Speed-Up Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-fb-videos-made-quick-proximity-tricks-for-instant-uploaddownload/"><u>[Updated] In 2024, FB Videos Made Quick  Proximity Tricks for Instant Upload/Download</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-immerse-in-ideas-multitasking-activities-for-podcast-fans/"><u>[Updated] In 2024, Immerse in Ideas  Multitasking Activities for Podcast Fans</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-insight-into-quadcopters-functionality-uncovered/"><u>[Updated] Insight Into Quadcopters  Functionality Uncovered</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-8-ios-pencil-programs-perfected-for-ipados-for-2024/"><u>[Updated] Top 8 iOS Pencil Programs Perfected for iPadOS for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-canon-editing-kit-freepay-for-luts-included/"><u>[Updated] Ultimate Canon Editing Kit - Free/Pay for LUTs Included</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-full-screen-tips-for-premiere-pro-users/"><u>[Updated] Ultimate Full Screen Tips for Premiere Pro Users</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-zero-money-high-quality-ranks-of-best-recording-apps/"><u>[Updated] Zero Money, High Quality  Ranks of Best Recording Apps</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unpacking-the-essentials-mastering-adobes-storage-solutions-and-their-rival-alternatives/"><u>2024 Approved  Unpacking The Essentials  Mastering Adobe's Storage Solutions & Their Rival Alternatives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/beat-coffee-stain-effects-with-ioss-complimentary-red-eye-fix-app/"><u>Beat Coffee Stain Effects with iOS's Complimentary Red-Eye Fix App</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-best-live-sound-experience-service/"><u>In 2024, Best Live Sound Experience Service</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-leading-techniques-for-effective-webp-to-jpeg-change/"><u>In 2024, Leading Techniques for Effective WebP to JPEG Change</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-leveraging-video-technology-in-teaching-practices/"><u>In 2024, Leveraging Video Technology in Teaching Practices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-ace-2-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Ace 2</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/revolutionize-post-production-the-best-11-tutorials-on-color-workflow/"><u>Revolutionize Post-Production  The Best 11 Tutorials on Color Workflow</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/starting-point-for-motion-visual-effects/"><u>Starting Point for Motion Visual Effects</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-drone-editors-playbook-a-comprehensive-guide-for-2024/"><u>The Drone Editor's Playbook  A Comprehensive Guide for 2024</u></a></li>
+</ul></div>

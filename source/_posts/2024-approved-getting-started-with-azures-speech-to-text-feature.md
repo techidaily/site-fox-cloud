@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Getting Started with Azure's Speech-to-Text Feature\""
-date: 2024-07-12T16:11:36.950Z
-updated: 2024-07-13T16:11:36.950Z
+date: 2024-08-15T18:02:13.960Z
+updated: 2024-08-16T18:02:13.960Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,9 @@ If you're not good with programming languages, use Speech CLI, a command tool th
 
 It is also worth noting that Azure Speech Studio supports keyword recognition or keyword spotting. You can generate keyword recognition models and specify any short phrase or word. Users can also personalize keywords with the correct punctuations. And best of all, there is no extra cost for customizing keywords.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Step by Step Guide to Transcribe Speech to Text with Microsoft Speech Studio
 
 Now let's learn how to use Microsoft Azure speech recognition services. Remember, the conversion may not be accurate if the audio has lots of domain-industry jargon or ambient noises. Therefore, use crisp-clear audio with an external mic or train the software to recognize specific words or keywords. Let's get started!
@@ -49,6 +52,9 @@ Step2After creating a Microsoft Azure portal, you'll see all Azure services. Cli
 Step3The program will take a while to deploy an instance. Now tap Keys and endpoints on the left pane and copy the key and region identifier as you may need them later on.
 
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
 
@@ -74,6 +80,9 @@ When you want to make perfect videos, you can use Filmora's STT feature. Wonders
 
 What's more, now Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription in Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### Top Adavantages of Filmora STT
 
 * Supports direct transcription of bilingual subtitles.
@@ -97,6 +106,10 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 
 ### 2\. Google Docs - Free
 
@@ -117,6 +130,9 @@ Step3Click the Microphone icon to start dictating texts on Google Docs. After di
 ### 3. Audtext
 
 ![micrsoft azure speech to text alternative audtext](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-7.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 
 If Google's voice recognition service is too slow for your liking, consider Audtext. It's a highly rated online program that uses cutting-edge machine learning technology to transcribe audio to text in 60+ languages. You can easily train this program to identify the speaker in your interview or podcast file.
 
@@ -130,6 +146,9 @@ Step2Drag-n-drop your video or audio file on the program and then choose the tra
 
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Final Words
 
 Up to this point, you should be ready to get started with the **Microsoft Cognitive Services Speech**. The speech-to-text feature allows you to convert unlimited voices to text on your computer. However, the program can be challenging to set up if you're not a techie.
@@ -143,6 +162,9 @@ In that case, use a more straightforward option like Google Docs to dictate text
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 
 
 <ins class="adsbygoogle"
@@ -164,3 +186,71 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-livestream-titans-clash-facebook-live-and-youtube-vs-twitter-spaces/"><u>[New] 2024 Approved  Livestream Titans Clash  Facebook LIVE & YouTube Vs. Twitter Spaces</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-full-picture-of-ustream-and-analogous-services/"><u>[New] 2024 Approved  The Full Picture of Ustream & Analogous Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unlocking-vlcs-potential-for-mpeg-4-and-diverse-file-alterations/"><u>[New] 2024 Approved  Unlocking VLC's Potential for MPEG-4 and Diverse File Alterations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-altering-game-console-speech-ps5ps4-upgrades-for-2024/"><u>[New] Altering Game Console Speech  PS5/PS4 Upgrades for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-aquatic-adventures-unveiled-tips-on-captivating-underwater-video-with-a-gopro/"><u>[New] In 2024, Aquatic Adventures Unveiled  Tips on Captivating Underwater Video with a GoPro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-leveraging-azures-voice-recognition-for-advanced-solutions-for-2024/"><u>[New] Leveraging Azure's Voice Recognition for Advanced Solutions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-the-nuances-of-sound-reduction-in-pp-projects/"><u>[New] Navigating the Nuances of Sound Reduction in PP Projects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-premium-memory-compatible-with-sony-a7-cams/"><u>[New] Premium Memory Compatible with Sony A7 Cams</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-secure-survival-housing-in-minecraft-for-2024/"><u>[New] Secure Survival Housing in Minecraft for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-skys-brilliance-top-10-hd-renditions-websites/"><u>[New] Sky's Brilliance  Top 10 HD Renditions Websites</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-superior-sound-top-10-podcast-recording-mics-for-2024/"><u>[New] Superior Sound  Top 10 Podcast Recording Mics for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unlocking-the-power-of-music-in-engaging-video-content-for-2024/"><u>[New] Unlocking the Power of Music in Engaging Video Content for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-clearer-sounds-a-video-editing-guide/"><u>[New] Unveiling Clearer Sounds  A Video Editing Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-best-intro-editors-for-app-devices/"><u>[Updated] 2024 Approved  Best Intro Editors for App Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-voice-conversion-tools-for-vlogging-professionals/"><u>[Updated] 2024 Approved  Best Voice Conversion Tools for Vlogging Professionals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-simplified-steps-for-photo-motion-blur-in-photoshop/"><u>[Updated] 2024 Approved  Simplified Steps for Photo Motion Blur in Photoshop</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-boost-your-snapchat-speed-a-basic-beginners-guide-for-2024/"><u>[Updated] Boost Your Snapchat Speed  A Basic Beginner's Guide for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-comprehensive-strategies-for-windows-media-players-audio-operations-for-2024/"><u>[Updated] Comprehensive Strategies for Windows Media Player's Audio Operations for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-essential-free-templates-for-mastering-after-effects/"><u>[Updated] Essential FREE Templates for Mastering After Effects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-funnyfilmmaker-quick-comic-creation/"><u>[Updated] FunnyFilmMaker  Quick Comic Creation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-essential-iphones-podcast-tools-ranked-5/"><u>[Updated] In 2024, Essential iPhones Podcast Tools Ranked #5</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-premier-20-unrestricted-pubg-montage-samples/"><u>[Updated] In 2024, Premier 20 Unrestricted PUBG Montage Samples</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-streamlined-audiovisual-sequencing-in-audacity/"><u>[Updated] In 2024, Streamlined Audiovisual Sequencing in Audacity</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-ifunny-meme-journey-downloading-made-easy/"><u>[Updated] In 2024, The iFunny Meme Journey  Downloading Made Easy</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unplugging-pauses-from-social-streams-a-2023-approach-to-fixing-livestream-issues/"><u>[Updated] In 2024, Unplugging Pauses From Social Streams  A 2023 Approach to Fixing Livestream Issues</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-vibrant-visual-photo-assemblies-for-joyful-living/"><u>[Updated] In 2024, Vibrant Visual Photo Assemblies for Joyful Living</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-innovation-in-minimization-the-finest-selection-of-43-mobile-video-trimming-apps-for-2024/"><u>[Updated] Innovation in Minimization  The Finest Selection of 43 Mobile Video Trimming Apps for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-master-your-virtual-reality-journey-which-option-suits-you-better-portable-mobile-or-connected-tethered-in-2024/"><u>[Updated] Master Your Virtual Reality Journey  Which Option Suits You Better - Portable (Mobile) or Connected (Tethered), In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-tales-on-the-silver-screen-writing-for-cinema-for-2024/"><u>[Updated] Tales on the Silver Screen  Writing for Cinema for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-techniques-to-effortlessly-attain-professional-graphic-content-for-2024/"><u>[Updated] Techniques to Effortlessly Attain Professional Graphic Content for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-tips-for-sharper-images-on-google-meet-calls/"><u>[Updated] Top Tips for Sharper Images on Google Meet Calls</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-twitter-video-frame-changer-for-2024/"><u>[Updated] Twitter Video Frame Changer for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-20-essential-free-online-photo-tinkering-apps/"><u>2024 Approved  20 Essential Free Online Photo Tinkering Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-complete-critique-the-ultimate-review-for-bublcam-360-camera/"><u>2024 Approved  Complete Critique  The Ultimate Review for Bublcam 360 Camera</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-expert-insights-on-powerdirector-24-review/"><u>2024 Approved  Expert Insights on PowerDirector '24 Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-expert-psd-text-framing/"><u>2024 Approved  Expert PSD Text Framing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-in-depth-analysis-of-green-screen-technology-in-kinemaster/"><u>2024 Approved  In-Depth Analysis of Green Screen Technology in Kinemaster</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-superior-economical-live-camera-snapper/"><u>2024 Approved  Superior Economical Live Camera Snapper</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-samsung-galaxy-m34-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Samsung Galaxy M34 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-secure-steps-to-regain-lost-fb-account-control/"><u>8 Secure Steps to Regain Lost FB Account Control</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-practical-approach-to-zoom-meetings/"><u>A Practical Approach to Zoom Meetings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/apex-productions-audit-studio-25-breakdown-2023-for-2024/"><u>Apex Productions Audit  Studio 25 Breakdown, 2023 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/aspire-to-the-best-4k-monitors-ranking-top-ten-for-2024/"><u>Aspire to the Best 4K Monitors Ranking Top-Ten for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/at-lp120xusb-a-game-changer-for-vintage-record-lovers/"><u>AT-LP120XUSB - A Game Changer for Vintage Record Lovers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boosting-your-channels-free-tips-for-youtube-video-popularity-for-2024/"><u>Boosting Your Channels  Free Tips for YouTube Video Popularity for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/download-diva-a-guide-to-free-skype-tone-resources/"><u>Download Diva  A Guide to Free Skype Tone Resources</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-resolve-windows-update-error-code-0x8007001f/"><u>Fixing the Issue: Resolve Windows Update Error Code 0X8007001F</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-13-pro-max-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 13 Pro Max without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-all-you-need-to-know-about-downloading-wm6/"><u>In 2024, All You Need to Know About Downloading WM6</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-automated-opener-your-srt-files-windows-and-mac/"><u>In 2024, Automated Opener  Your SRT Files, Windows & Mac</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-best-video-and-sound-capture-apps-for-artistic-visionaries/"><u>In 2024, Best Video & Sound Capture Apps for Artistic Visionaries</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-discovering-the-magic-filmora-editors-top-10-highlights/"><u>In 2024, Discovering the Magic  Filmora Editor's Top 10 Highlights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-fundamental-constructs-in-creating-effective-fb-ad-copy/"><u>In 2024, Fundamental Constructs in Creating Effective FB Ad Copy</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-version-of-magicard-rio-pro-driver-compatible-with-recent-windows-systems-windows-11817-download-now/"><u>Latest Version of Magicard Rio Pro Driver: Compatible with Recent Windows Systems (Windows 11/8.1/7) - Download Now</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-the-art-of-reducing-discords-cpu-drain-strategies-and-tips/"><u>Mastering the Art of Reducing Discord's CPU Drain: Strategies and Tips</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-say-goodbye-to-frustration-easy-filmora-discount-codes-for-2024/"><u>New Say Goodbye to Frustration Easy Filmora Discount Codes for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-connection-challenges-11-solutions-for-your-airpods-and-iphone-dilemma/"><u>Overcoming Connection Challenges: 11 Solutions for Your AirPods and iPhone Dilemma</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pioneering-through-the-terrain-of-mixed-reality-for-2024/"><u>Pioneering Through the Terrain of Mixed Reality for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/reddits-hidden-gems-5-tips-for-novices-to-master-engagement-metrics/"><u>Reddit's Hidden Gems  5 Tips for Novices to Master Engagement Metrics</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-risk-of-leveraging-ai-language-models-like-chatgpt-for-malware-generation/"><u>The Risk of Leveraging AI Language Models Like ChatGPT for Malware Generation</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-sudden-shutdowns-dealing-with-superpowered-account-issues-on-pc/"><u>Troubleshooting Sudden Shutdowns: Dealing with Superpowered Account Issues on PC</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlock-the-secrets-retrieving-windows-11-wireless-network-passwords-made-easy/"><u>Unlock the Secrets: Retrieving Windows 11 Wireless Network Passwords Made Easy</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-vivo-y100a-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo Y100A Phone Password Without Factory Reset Full Guide Here</u></a></li>
+</ul></div>

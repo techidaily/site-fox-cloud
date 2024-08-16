@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Ultimate Action Recorder  An Overview of Panasonic's HX-A1\""
-date: 2024-07-12T16:14:26.375Z
-updated: 2024-07-13T16:14:26.375Z
+date: 2024-08-15T17:59:34.285Z
+updated: 2024-08-16T17:59:34.285Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,9 @@ thumbnail: https://thmb.techidaily.com/9452709ea5278a965307bf042e7d92a12b881e1c8
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Specification
 
 | Review Price                | $101.95 (Amazon)                                                                             |
@@ -63,6 +66,9 @@ thumbnail: https://thmb.techidaily.com/9452709ea5278a965307bf042e7d92a12b881e1c8
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## Accessories in the box
 
  The box obviously contains one of the best products from Panasonic which is the camera but also has little surprising accessories which will alleviate your shooting experience.
@@ -100,6 +106,9 @@ thumbnail: https://thmb.techidaily.com/9452709ea5278a965307bf042e7d92a12b881e1c8
 
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Features
 
 #### **1. Video and photo quality**
@@ -128,6 +137,9 @@ thumbnail: https://thmb.techidaily.com/9452709ea5278a965307bf042e7d92a12b881e1c8
 
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
  The minor drawbacks in A1 are completely understandable. With its decent picture quality and plenty of other features such as SFDW formula, it can be rightly said that Panasonic has created a fine budget camera which is worth investing. There is always a way to capture your fun and thrills and Panasonic HX-A1 gets along your making it a capable action camera!
@@ -135,6 +147,9 @@ thumbnail: https://thmb.techidaily.com/9452709ea5278a965307bf042e7d92a12b881e1c8
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -160,3 +175,48 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-how-to-optimize-your-browsing-with-ffxp/"><u>[New] 2024 Approved  How to Optimize Your Browsing with FFXP</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-ultimate-blend-top-5-monitors-for-seamless-color-grading/"><u>[New] 2024 Approved  The Ultimate Blend  Top 5 Monitors for Seamless Color Grading</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-vibrant-user-account-creation-pathway/"><u>[New] 2024 Approved  Vibrant User Account Creation Pathway</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-selection-of-8-instagram-schedulers-for-phones/"><u>[New] In 2024, The Ultimate Selection of 8 Instagram Schedulers for Phones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-into-the-abyss-and-beyond-shadowbearer-vs-daybeam/"><u>[New] Into the Abyss and Beyond  Shadowbearer Vs Daybeam</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-kinetic-mastery-in-your-pocket-a-2023-review-of-kinemaster-on-android/"><u>[New] Kinetic Mastery in Your Pocket  A 2023 Review of KineMaster on Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-overlooked-marvels-free-transcription-tools-for-macos-for-2024/"><u>[New] Overlooked Marvels  Free Transcription Tools for macOS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-premier-pros-pathway-to-perfect-sound-cutting/"><u>[New] Premier Pro's Pathway to Perfect Sound Cutting</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-revolutionize-your-audio-pazera-free-extractor-insights-for-2024/"><u>[New] Revolutionize Your Audio  Pazera Free Extractor Insights for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-pathway-to-seamless-system-enhancement-in-macos-11-big-sur/"><u>[New] The Pathway to Seamless System Enhancement in macOS 11 Big Sur</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-prevent-and-mend-streaming-hiccups-in-fb-livestran/"><u>[Updated] 2024 Approved  How to Prevent and Mend Streaming Hiccups in FB Livestran</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-professional-gear-tips-gopro-edition/"><u>[Updated] 2024 Approved  Professional Gear Tips  GoPro Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-decoding-digital-domain-dynamics-metaverse-edition/"><u>[Updated] Decoding Digital Domain Dynamics  Metaverse Edition</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-fast-track-missing-snap-finders-for-2024/"><u>[Updated] Fast-Track Missing Snap Finders for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-from-canvas-to-ledger-the-ultimate-list-of-nft-engines-for-artists-for-2024/"><u>[Updated] From Canvas to Ledger  The Ultimate List of NFT Engines for Artists for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-harmonized-technology-judgments-by-experts/"><u>[Updated] Harmonized Technology Judgments by Experts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-6-best-video-translators-to-translate-a-video/"><u>[Updated] In 2024, 6 Best Video Translators to Translate a Video</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-a-primer-on-using-azures-voice-to-text-service/"><u>[Updated] In 2024, A Primer on Using Azure's Voice-to-Text Service</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-an-owners-guide-to-playlist-permutations-in-yt/"><u>[Updated] In 2024, An Owner's Guide to Playlist Permutations in YT</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-awesome-igtv-channels-that-deliver-quality-content/"><u>[Updated] In 2024, Awesome IGTV Channels That Deliver Quality Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-djis-minis-and-air-2-free-fun-luts-for-ultimate-mixes/"><u>[Updated] In 2024, DJI's Minis & Air 2  Free, Fun LUTS for Ultimate Mixes</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-turn-your-google-meet-into-a-youtube-live-event/"><u>[Updated] In 2024, How To Turn Your Google Meet Into a YouTube Live Event</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-nailing-the-perfect-shot-a-guide-to-instagram-videos/"><u>[Updated] In 2024, Nailing the Perfect Shot  A Guide to Instagram Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-ultimate-guide-to-cam-alternatives-not-like-gopro/"><u>[Updated] In 2024, The Ultimate Guide to Cam Alternatives Not Like GoPro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-prime-websites-to-acquire-custom-youtube-ringtones/"><u>[Updated] Prime Websites to Acquire Custom YouTube Ringtones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-spectrum-screens-a-new-film-language-for-2024/"><u>[Updated] Spectrum Screens  A New Film Language for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-leading-edge-in-film-making-equipment-top-10-list-for-2024/"><u>[Updated] The Leading Edge in Film-Making Equipment - Top 10 List for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unlock-the-secrets-to-creating-instagram-hits-with-engaging-unboxing-videos/"><u>[Updated] Unlock the Secrets to Creating Instagram Hits with Engaging Unboxing Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mx-player-pro-next-gen-streaming-tool/"><u>2024 Approved  MX Player Pro  Next-Gen Streaming Tool</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-the-complete-process-recording-youtube-livestream-on-multiple-platforms/"><u>2024 Approved  The Complete Process  Recording YouTube Livestream on Multiple Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/celebrity-inspired-glamour-videos/"><u>Celebrity-Inspired Glamour Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-x-flip-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Vivo X Flip PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-free-photo-editing-tricks-unveiling-iphones-hidden-features/"><u>In 2024, Free Photo Editing Tricks  Unveiling iPhone's Hidden Features</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-locked-vivo-x90s-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Vivo X90S Phone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-leading-choices-no-fee-versatile-live-streaming-tools-for-every-device/"><u>In 2024, Leading Choices  No-Fee, Versatile Live Streaming Tools for Every Device</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/itel-data-retrieval-tool-restore-lost-data-from-itel-a60s-by-fonelab-android-recover-data/"><u>Itel Data Retrieval tool – restore lost data from Itel A60s</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/precision-cutting-on-iphone-best-practices-and-apps/"><u>Precision Cutting on iPhone  Best Practices and Apps</u></a></li>
+<li><a href="https://driver-install.techidaily.com/synchronize-package-with-hardware/"><u>Synchronize Package with Hardware</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/1719818195170-the-display-settings-could-not-be-saved-solved/"><u>The Display Settings Could Not Be Saved [Solved]</u></a></li>
+</ul></div>
