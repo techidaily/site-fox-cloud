@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Navigating Quick File Scan in Windows\""
-date: 2024-07-12T15:52:23.353Z
-updated: 2024-07-13T15:52:23.353Z
+date: 2024-09-01T10:47:04.258Z
+updated: 2024-09-02T10:47:04.258Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,9 @@ Step4 After a successful installation, find the file you want to preview and sel
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
 Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years. But are we going to see QuickLook coming to Windows 10/11 anytime soon? According to sources, plans are already underway to add this feature to Microsoft Windows and rename it Peek. After selecting a file on Explorer, simply tap the Shift + Space bar to preview the content. Like the macOS version, you can preview PDFs, Excels, Words, images, videos, audio, and pretty much anything.
@@ -70,6 +73,9 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: Frequently Asked Questions
 
 #### 1\. Which digital file formats are compatible with QuickLook?
@@ -84,6 +90,9 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 This guidepost is another testament that your PC has massive hidden abilities. With QuickLook for Windows, you can preview any document, image, or media file with a single click. And don’t forget to install the QuickLook plugins from GitHub to unlock the program’s full potential.
@@ -119,3 +128,39 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-the-art-of-multi-media-sharing-on-instagram/"><u>[New] 2024 Approved  Mastering the Art of Multi-Media Sharing on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-online-spaces-for-youtube-traffic-increase/"><u>[New] 2024 Approved  Top Online Spaces for YouTube Traffic Increase</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-darklight-studio-lightrooms-cheap-equivalents/"><u>[New] Darklight Studio  Lightroom's Cheap Equivalents</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-innovative-pathways-select-7-tools-for-artwork-conversion-to-nfts/"><u>[New] In 2024, Innovative Pathways  Select 7 Tools for Artwork Conversion to NFTs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-finest-cams-to-document-snow-sports/"><u>[New] In 2024, The Finest Cams to Document Snow Sports</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-optimal-zoom-settings-for-microsoft-teams-communication/"><u>[New] Optimal Zoom Settings for Microsoft Teams Communication</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-audio-enhanced-video-screen-record/"><u>[Updated] 2024 Approved  Audio-Enhanced Video Screen Record</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-iphone-shutterbug-secrets-perfecting-reflections-in-water/"><u>[Updated] 2024 Approved  IPhone Shutterbug Secrets  Perfecting Reflections in Water</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-tomtom-bandit-action-camera-review-2023/"><u>[Updated] 2024 Approved  TomTom Bandit Action Camera Review 2023</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-guide-to-sustaining-longer-gopro-battery-life/"><u>[Updated] A Guide to Sustaining Longer GoPro Battery Life</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevate-your-space-top-cloud-choices-for-2024/"><u>[Updated] Elevate Your Space  Top Cloud Choices for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-essentials-of-choosing-a-drone-vibration-controller/"><u>[Updated] Essentials of Choosing a Drone Vibration Controller</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-exploring-metaverse-vs-multi-meva-key-differences-explained/"><u>[Updated] Exploring Metaverse Vs. Multi-Meva  Key Differences Explained</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gamers-galaxy-a-thousand-stars-in-gaming/"><u>[Updated] In 2024, Gamers' Galaxy  A Thousand Stars in Gaming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-zero-cost-youtube-intros-essential-tips-and-templates/"><u>[Updated] In 2024, Mastering Zero-Cost YouTube Intros  Essential Tips & Templates</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-streamlining-color-correction-leveraging-look-up-tables-from-cg-central/"><u>[Updated] In 2024, Streamlining Color Correction  Leveraging Look-Up Tables From CG Central</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-instagram-soundtracks-download-and-design-your-own-for-2024/"><u>[Updated] Instagram Soundtracks  Download & Design Your Own for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-precision-in-color-expert-guides-on-adjustment-and-grading/"><u>[Updated] Precision in Color  Expert Guides on Adjustment & Grading</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-revolutionary-video-editor-top-tier-clarity-for-2024/"><u>[Updated] Revolutionary Video Editor  Top-Tier Clarity for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/comprehensive-breakdown-of-polarr-photo-editors-features-for-2024/"><u>Comprehensive Breakdown of Polarr Photo Editor's Features for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/demystifying-zoom-your-complete-guide-for-win11-users-for-2024/"><u>Demystifying Zoom  Your Complete Guide for Win11 Users for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/hashtags-in-harmony-twitter-and-tiktoks-10-viral-vids/"><u>Hashtags in Harmony  Twitter and TikTok's 10 Viral Vids</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-100-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Honor 100 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-find-x7-ultra-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Oppo Find X7 Ultra Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-how-to-seamless-setup-of-ifunny-meme-toolkit/"><u>In 2024, How-To  Seamless Setup of iFunny Meme Toolkit</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-trendsetting-images-their-histories/"><u>In 2024, Trendsetting Images  Their Histories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-winter-wonderland-in-beijing-olympic-year-2022/"><u>In 2024, Winter Wonderland in Beijing, Olympic Year 2022</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722972023786-instant-boost-to-connectivity-how-to-easily-find-and-download-wireless-drivers/"><u>Instant Boost to Connectivity: How to Easily Find & Download Wireless Drivers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/maximizing-velocity-in-real-time-periscope-livestreams-for-2024/"><u>Maximizing Velocity in Real-Time Periscope Livestreams for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/ranking-the-leading-video-conferencing-applications-for-2024/"><u>Ranking the Leading Video Conferencing Applications for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ultimate-panzoid-framework-assemblage-for-2024/"><u>Ultimate Panzoid Framework Assemblage for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-nokia-g310s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Nokia G310s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+</ul></div>
