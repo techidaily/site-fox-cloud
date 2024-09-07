@@ -1,7 +1,7 @@
 ---
 title: "\"Adding Captions and Text  A Guide for Photo Titles in Microsoft Photos for 2024\""
-date: 2024-07-12T15:41:20.639Z
-updated: 2024-07-13T15:41:20.639Z
+date: 2024-09-06T00:10:34.595Z
+updated: 2024-09-07T00:10:34.595Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,12 @@ thumbnail: https://thmb.techidaily.com/8d6fc5e965f8f403ab26d9d65a1bca0fa8c0fcf47
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -42,11 +48,23 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
@@ -68,10 +86,22 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 ## Conclusion
@@ -80,6 +110,12 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -106,3 +142,44 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-best-8-video-chat-apps-on-android-for-more-than-four/"><u>[New] 2024 Approved Best 8 Video Chat Apps on Android for More Than Four</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-skys-champions-of-staying-power-top-10-drones/"><u>[New] 2024 Approved Sky's Champions of Staying Power (Top 10 Drones)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-canvas-hidden-gems-for-crafting-visual-magic-for-2024/"><u>[New] Canva's Hidden Gems for Crafting Visual Magic for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-decoding-periscope-pricing-benefits-and-signup-information/"><u>[New] Decoding Periscope Pricing, Benefits & Signup Information</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-portable-cost-free-software-transforming-laptop-viewers/"><u>[New] In 2024, Portable, Cost-Free Software Transforming Laptop Viewers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-shared-sights-untold-histories-revealed-for-2024/"><u>[New] Shared Sights Untold Histories Revealed for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-8-drawing-apps-for-ipados/"><u>[New] Top 8 Drawing Apps for iPadOS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-all-about-srt-essential-information-made-easy/"><u>[Updated] 2024 Approved All About SRT Essential Information Made Easy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-pixels-into-panoramas-cutting-edge-edits-for-exceptional-results/"><u>[Updated] 2024 Approved Pixels Into Panoramas Cutting-Edge Edits for Exceptional Results</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-precision-and-savings-combined-top-asmr-microphones-within-reach/"><u>[Updated] 2024 Approved Precision & Savings Combined Top ASMR Microphones Within Reach</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-total-control-over-youtube-playback-silence-previews/"><u>[Updated] 2024 Approved Total Control Over YouTube Playback Silence Previews</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-voice-logging-and-retention-system-iphone-x2/"><u>[Updated] 2024 Approved Voice Logging & Retention System, iPhone X2</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-color-enhancement-made-easy-the-role-of-luts-in-photos-for-2024/"><u>[Updated] Color Enhancement Made Easy The Role of LUTs in Photos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-essential-diy-filmmaking-tricks-for-top-notch-results-for-2024/"><u>[Updated] Essential DIY Filmmaking Tricks for Top-Notch Results for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-experts-pathway-navigating-fullscreen-realms-in-premiere-pro-for-2024/"><u>[Updated] Expert's Pathway Navigating Fullscreen Realms in Premiere Pro for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-leveraging-synergies-how-to-choose-ideal-youtube-duosgroups/"><u>[Updated] In 2024, Leveraging Synergies How to Choose Ideal YouTube Duos/Groups</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-olympic-zenith-highlighting-snowboard-x-races/"><u>[Updated] In 2024, Olympic Zenith Highlighting Snowboard X Races</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-optimizing-television-access-to-facebook-events/"><u>[Updated] In 2024, Optimizing Television Access to Facebook Events</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-prioritize-savings-with-the-best-6-affordable-camera-brands-for-2024/"><u>[Updated] Prioritize Savings with the Best 6 Affordable Camera Brands for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-artisans-touch-skillfully-applying-face-centric-motion-blur-using-picsart/"><u>[Updated] The Artisan’s Touch Skillfully Applying Face-Centric Motion Blur Using Picsart</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-premier-guide-to-cost-free-video-editors/"><u>[Updated] The Premier Guide to Cost-Free Video Editors</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-youtube-to-mp4-blueprint/"><u>[Updated] The Ultimate YouTube to MP4 Blueprint</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-premium-steadicam-brands-for-drones-and-camera-work/"><u>2024 Approved Premium Steadicam Brands for Drones and Camera Work</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-motorola-razr-40-ultra-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Motorola Razr 40 Ultra PC | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-11-pro-ios-system-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone 11 Pro iOS System? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-sprinkle-some-glitter-on-your-photos-ios-and-androids-prime-10-apps/"><u>In 2024, Sprinkle Some Glitter on Your Photos IOS & Android's Prime 10 Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-top-mac-speech-to-text-apps-youre-not-aware-of/"><u>In 2024, Top Mac Speech-to-Text Apps You're Not Aware Of</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-online-sources-for-3d-glitter-text-designs/"><u>In 2024, Top Online Sources for 3D Glitter Text Designs</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-splice-video-editor-for-mac-free-download-and-start-creating/"><u>New In 2024, Splice Video Editor for Mac Free Download and Start Creating</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/proficient-use-of-audacity-for-high-quality-recordings/"><u>Proficient Use of Audacity for High-Quality Recordings</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price-in-2024/"><u>Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price, In 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/sharp-launches-initial-batch-of-oled-enabled-roku-smart-televisions/"><u>Sharp Launches Initial Batch of OLED-Enabled Roku Smart Televisions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unleashing-iphones-potential-for-dynamic-shots/"><u>Unleashing iPhone’s Potential for Dynamic Shots</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/unveiling-streaming-secrets-the-best-5-cams-for-gamers/"><u>Unveiling Streaming Secrets The Best 5 Cams for Gamers</u></a></li>
+<li><a href="https://win-answers.techidaily.com/unveiling-the-truth-behind-the-postponed-launch-of-assassins-creed-valhalla/"><u>Unveiling the Truth Behind the Postponed Launch of Assassin's Creed Valhalla</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/vlc-mastery-essential-tips-and-secret-features/"><u>VLC Mastery Essential Tips and Secret Features</u></a></li>
+</ul></div>

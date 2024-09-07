@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Low-Cost, Superior Circular Lenses for Photos & Videos\""
-date: 2024-09-01T11:00:31.822Z
-updated: 2024-09-02T11:00:31.822Z
+date: 2024-09-06T00:11:55.433Z
+updated: 2024-09-07T00:11:55.433Z
 tags: 
   - screen-recording
   - ai video
@@ -22,18 +22,42 @@ thumbnail: https://thmb.techidaily.com/d63b36b5c666fd9de9fccce4561bf07299ad84d39
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
 
 If you want to try making your own 360-degree videos and pictures, you probably aren't looking for a top of the line camera. You're certainly not looking to drop thousands of dollars on one. Fortunately, there are some affordable options available to you.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. [Ricoh Theta S](https://theta360.com/en/about/theta/s.html)
 
 First, an offering from Ricoh, the Ricoh Theta S. This pocket-sized camera costs around $350 and is super simple to use. It has exactly one button for taking photos or videos. The camera can connect via USB or HDMI, but is also Wi-Fi capable, allowing you to transfer footage to your iPhone. This camera shoots at 14 megapixels, and 30 fps. There are several apps associated with it: one allowing you to edit your videos, as well as one that acts as a live-view feed and remote control to make shooting even easier.
 
 ![affordable 360 camera - Ricoh Theta S](https://images.wondershare.com/filmora/article-images/affordable-360-camera-ricoh-theta-s.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Related article:** [Full review for Ricoh Theta S >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## 2\. [360fly 4K](https://www.360fly.com/360fly-4k.html)
@@ -51,7 +75,10 @@ Giroptic also makes a 360-degree camera, simply named the Giroptic 360cam, that 
 Have a quick review on Giroptic from this video:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 4\. [Kodak PixPro SP360 4K](https://kodakpixpro.com/Americas/cameras/vrcamera/sp3604k/)
 
@@ -59,42 +86,36 @@ Kodak, one of the older names in photography, offers the Kodak PixPro SP360 4K A
 
 A wonderful day with PixPro SP360 4K:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## 5\. [LG360 cam](http://www.lg.com/us/mobile-accessories/lg-LGR105.AVRZTS-360-cam)
 
 The LG360 cam retails for around $200, making it one of the cheapest phones on the market, and was designed to work with the company's G5 smartphone, though it also works with an iPhone. It captures 2K, 360-degree video, and 5.1 channel surround sound, as well as allowing you to use only one of its two lenses for 180-degree image capture. It's a small camera with no built-in display, but the companion app acts as a remote control and lets you view your recording in real-time.
 
 Check a detailed review about LG360 Cam from this video
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. [ALLie Camera](https://allie.camera/)
 
 The ALLie Camera retails for $499 and uses two fisheye lenses to take its 4096x2048 video. One interesting feature is the 10 built-in infrared LEDs that allow you to film in dark environments with a full 360-degree view. Its integrated microphone and speaker allows two-way audio so that users can communicate. Its app lets you view the footage from anywhere and, if your mobile device has gyroscopic motion sensors, change your perspective while viewing footage by tilting and moving the screen. In addition to the app, recording and playback is available through the subscription-based ALLieCam Cloud.
 
 Check a detailed review about Allie Camera from this video
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. [Panono](https://www.panono.com/)
 
 Panono, a spherical camera retailing for around $549 is unique in using 36 lenses to take 108 MP photos and videos, avoiding the use of wide-angle lenses. It can be thrown safely, as well as supporting a universal mounting system. Final stitching together of the many images into a coherent photo or video requires sending the files to a cloud device, but the image quality more than makes up for it.
 
 Check this video to see how to take 360 pictures with Panono:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. [Centr](https://www.centr.org/)
 
 Centr, a 360-degree cam funded on Kickstarter, retails for $399 and uses 4 110-degree lenses to capture its video. It has built-in image stitching technology, meaning that users don't need to use a desktop app or a cloud service to view the final video. It takes 20 MP photos and 4K video at 60 fps.
 
 Check a detailed review about Centr 360 camera:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. [Bublcam](https://www.bublcam.com/)
 
 One of the most expensive cameras in this line-up at around $800, Bublcam uses 4 110-degree lenses to take spherical photos and videos. Taking 14 MP images and 1080p video, it's a hit with photographers for image quality. In addition to this, it has stabilization features activated when the camera is in motion, to keep shaky camera work from ruining your video.
@@ -103,21 +124,30 @@ One of the most expensive cameras in this line-up at around $800, Bublcam uses 4
 
 Bublcam's unboxing review:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 10\. [Nikon Key Mission 360](https://www.nikonusa.com/en/nikon-products/action-cameras/index.page)
 
 Finally, Nikon's upcoming Key Mission 360 camera is built for action. It's a pocket-sized device with dual lenses, and it's meant to be rugged. Nikon advertises that it will be waterproof to 100 feet, and stand up to dust, shock, and cold. The app uses a simple swipe interface to let you get a panoramic view of everything you recorded. The expected retail price is $499.
 
 See more details about Nikon Key Mission 360 camera from this video:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 These 10 options are only some of the 360-degree cameras that are upcoming or already on the consumer market. Most of them cost a bit more than a new phone and shoot a pretty nice video. While the video and images can be enjoyed on your computer screen, VR headsets come highly recommended for getting the full effect. So get out there and try this new way of capturing experiences to share with your friends and family. The world awaits.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
