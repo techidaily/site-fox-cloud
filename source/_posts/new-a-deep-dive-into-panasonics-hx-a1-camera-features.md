@@ -1,7 +1,7 @@
 ---
 title: "\"[New] A Deep Dive Into Panasonic's HX-A1 Camera Features\""
-date: 2024-07-12T15:37:06.664Z
-updated: 2024-07-13T15:37:06.664Z
+date: 2024-09-11T00:46:50.736Z
+updated: 2024-09-12T00:46:50.736Z
 tags: 
   - screen-recording
   - ai video
@@ -32,9 +32,37 @@ thumbnail: https://thmb.techidaily.com/9d3732c41a53a8a22c767ec42385e845ec206bbdb
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Design and Usability
 
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
@@ -62,6 +90,20 @@ thumbnail: https://thmb.techidaily.com/9d3732c41a53a8a22c767ec42385e845ec206bbdb
 | Waterproof, dustproof, shockproof and freeze proof. No additional housing or case needed to take it underwater as a replacement glass cover for lens is also included. | Not compatible for 4K shooting                                                                         |
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Accessories in the box
 
@@ -98,6 +140,40 @@ thumbnail: https://thmb.techidaily.com/9d3732c41a53a8a22c767ec42385e845ec206bbdb
 
  Wind jammer and strap adapter can be other accessories which you can buy. Wind jammer help in making the audio clearer during windy conditions and strap adapter helps in connecting the camera to the floatation strap, neck strap or key ring. This pretty device is very catchy to the eyes, after all ![Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Features
 
 #### **1. Video and photo quality**
@@ -125,6 +201,20 @@ thumbnail: https://thmb.techidaily.com/9d3732c41a53a8a22c767ec42385e845ec206bbdb
 #### **6. Image APP**
 
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Conclusion
 
@@ -156,6 +246,67 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/fixed-how-do-i-convert-zip-file-into-srt-file/"><u>[Fixed!] How Do I Convert Zip File Into Srt File?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-from-current-applications-to-future-drone-horizons/"><u>[New] 2024 Approved From Current Applications to Future Drone Horizons</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-innovative-methods-to-utilize-dynamic-images-on-ios/"><u>[New] 2024 Approved Innovative Methods to Utilize Dynamic Images on iOS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-short-segment-screenplay-snippet/"><u>[New] 2024 Approved Short Segment Screenplay Snippet</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-stunning-iphone-macro-photos-made-simple/"><u>[New] 2024 Approved Stunning iPhone Macro Photos Made Simple</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-apex-of-high-res-viewing-best-4k-screens-on-macs/"><u>[New] 2024 Approved The Apex of High-Res Viewing - Best 4K Screens on Macs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-automatic-youtube-video-transition-tips-for-facebook-users/"><u>[New] Automatic YouTube Video Transition Tips for Facebook Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-cardboard-contrast-google-to-samsung-gear-headset/"><u>[New] Cardboard Contrast Google to Samsung Gear Headset</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-enhancing-your-video-with-professional-voice-overs-for-2024/"><u>[New] Enhancing Your Video with Professional Voice Overs for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-exploring-affordable-cloud-storage-solutions-for-2024/"><u>[New] Exploring Affordable Cloud Storage Solutions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-in-depth-training-on-googles-advanced-speech-to-text-feature/"><u>[New] In 2024, In-Depth Training on Google's Advanced Speech to Text Feature</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-pros-picks-top-10-mic-technology-for-podcasters/"><u>[New] In 2024, The Pros' Picks Top 10 Mic Technology for Podcasters</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pro-level-snapshot-techniques-maximizing-zoomed-photo-and-video-experience/"><u>[New] Pro-Level Snapshot Techniques Maximizing Zoomed Photo and Video Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-deciphering-the-auto-cut-functionality-in-imovie/"><u>[Updated] 2024 Approved Deciphering the Auto-Cut Functionality in iMovie</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-from-concept-to-completion-an-instagram-video-strategy-manual/"><u>[Updated] 2024 Approved From Concept to Completion An Instagram Video Strategy Manual</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-speech-recognition-made-easy-your-route-to-streamlined-workflows-with-microsoft-words-features/"><u>[Updated] 2024 Approved Speech Recognition Made Easy Your Route to Streamlined Workflows with Microsoft Word's Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-time-warp-techniques-harnessing-classic-80s-visual-flair-in-videos/"><u>[Updated] 2024 Approved Time Warp Techniques Harnessing Classic 80S Visual Flair in Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-beginners-guide-to-simple-yet-effective-filming-gear-for-2024/"><u>[Updated] Beginner's Guide to Simple, Yet Effective Filming Gear for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-essential-mac-streaming-apps-uncovering-the-best-5-for-2024/"><u>[Updated] Essential Mac Streaming Apps Uncovering the Best 5 for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-convert-youtube-to-mp4-safely-in-2024/"><u>[Updated] How to Convert YouTube to MP4 Safely, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-total-byte-requirement-for-24-hours-of-movie-viewing/"><u>[Updated] In 2024, Total Byte Requirement for 24 Hours of Movie Viewing</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-screenflow-masterclass-taking-your-mac-projects-to-the-next-level-for-2024/"><u>[Updated] ScreenFlow Masterclass Taking Your Mac Projects to the Next Level for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-spark-joy-with-these-14-playful-text-animations/"><u>[Updated] Spark Joy with These 14 Playful Text Animations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-swift-shuffling-strategies-efficiently-send-data-home/"><u>[Updated] Swift Shuffling Strategies Efficiently Send Data Home</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-time-efficient-a-comprehensive-guide-to-srt-to-txt-switching-for-2024/"><u>[Updated] Time Efficient A Comprehensive Guide to SRT to TXT Switching for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-live-performances-best-audio-platforms/"><u>[Updated] Top Live Performances Best Audio Platforms</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-reel-them-in-a-step-by-step-approach-to-livestreaming-on-youtube/"><u>2024 Approved Reel Them In A Step-by-Step Approach to Livestreaming on Youtube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/capturing-clarity-a-look-at-screensnapelite/"><u>Capturing Clarity A Look at 'ScreenSnapElite'</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/complete-guide-installing-idt-high-definition-audio-codec-on-windows-10/"><u>Complete Guide: Installing IDT High Definition Audio Codec on Windows 10</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/decoding-photovideo-imports-in-windows-11-deep-dive/"><u>Decoding Photo/Video Imports in Windows 11 Deep Dive</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-power-of-chatgpt-in-personal-healthcare-learn-why-its-worth-considering-now/"><u>Discover the Power of ChatGPT in Personal Healthcare – Learn Why It's Worth Considering Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-to-revamp-stories-panel-with-reels-rooms/"><u>Facebook To Revamp Stories Panel With Reels, Rooms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/guffaw-on-your-phone-hysterical-site-listings-for-2024/"><u>Guffaw on Your Phone Hysterical Site Listings for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/how-to-obtain-high-quality-unrestricted-photography-for-2024/"><u>How To Obtain High-Quality, Unrestricted Photography for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-resolve-a-503-service-unavailable-web-page-issue-in-minutes/"><u>How to Resolve a 503 Service Unavailable Web Page Issue in Minutes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-affordable-high-definition-cams-for-adventure-enthusiasts/"><u>In 2024, Affordable High Definition Cams for Adventure Enthusiasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-focusflexzoom-7-detailed-resizing-at-a-glance/"><u>In 2024, FocusFlexZoom 7 Detailed Resizing at a Glance</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-keep-your-viewers-hooked-6-compelling-video-types/"><u>In 2024, Keep Your Viewers Hooked 6 Compelling Video Types</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-power-of-pacing-keeping-your-audience-glued-to-the-screen/"><u>In 2024, The Power of Pacing Keeping Your Audience Glued to the Screen</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-drone-buying-roadmap-pre-purchase-essentials/"><u>In 2024, The Ultimate Drone Buying Roadmap Pre-Purchase Essentials</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-ultimate-selection-of-free-streaming-options-reviewed/"><u>In 2024, Ultimate Selection of Free Streaming Options Reviewed</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-xiaomi-redmi-note-12-pro-4g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Xiaomi Redmi Note 12 Pro 4G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/psyche-up-with-customized-console-voices-for-2024/"><u>Psyche Up with Customized Console Voices for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/savvy-saving-with-20-best-free-storage-services-up-to-1tb-for-2024/"><u>Savvy Saving with 20 Best Free Storage Services, Up To 1TB for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/speedy-iphone-timelapses-made-simple/"><u>Speedy iPhone Timelapses Made Simple</u></a></li>
+<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-samsung-galaxy-a23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/top-software-solutions-for-ios-deleted-note-retrieval-and-data-recovery/"><u>Top Software Solutions for iOS Deleted Note Retrieval & Data Recovery</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-notch-grid-crafting-made-simple-our-expertly-selected-10-tools-for-2024/"><u>Top-Notch Grid Crafting Made Simple Our Expertly Selected 10 Tools for 2024</u></a></li>
+</ul></div>
 
 
 

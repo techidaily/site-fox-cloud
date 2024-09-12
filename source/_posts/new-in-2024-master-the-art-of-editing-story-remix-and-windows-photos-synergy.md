@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Master the Art of Editing  Story Remix & Windows Photos Synergy\""
-date: 2024-07-12T15:37:13.430Z
-updated: 2024-07-13T15:37:13.430Z
+date: 2024-09-11T00:46:58.981Z
+updated: 2024-09-12T00:46:58.981Z
 tags: 
   - screen-recording
   - ai video
@@ -51,6 +51,20 @@ Go to **Start** menu and open **Windows Photos**. you can see videos and photos 
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part 2: How to create Story Remix automatically and randomly
 
 In this part of the article, we would elaborate creation of Story Remix in different ways. The content is auto-generated or you can manually create it from scratch. The automatic method has themes, transitions, and soundtracks within.
@@ -67,6 +81,34 @@ How to create a Story Remix project automatically –
    2. You can rearrange the content by tapping **Remix it for me** button.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-name-video.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Part 3: How to create a Story Remix project from scratch
 
@@ -96,6 +138,20 @@ A theme is a built-in feature in Photos, just like music, filters, and text styl
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-theme-min.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Adding image duration
 
 While adding media to the timeline in Story Mix, you will see that there is a default timeline for each image. To adjust the duration, you can do –
@@ -103,6 +159,20 @@ While adding media to the timeline in Story Mix, you will see that there is a de
 Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-duration-min.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Adding custom text
 
@@ -112,6 +182,34 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-text-min.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Adding motion
 
 1. Firstly, choose the content from the timeline and hit on ‘Motion’. Now, select camera motion style from ‘Zoom in center’/’Zoom in right’/’Pan left’/’Tilt up’ etc.
@@ -119,10 +217,38 @@ Tap the ‘Duration’ button > pick another value or manually set the seconds.
 
 ![story remix](https://images.wondershare.com/filmora/article-images/story-remix-motion-min.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Trimming video clips
 
 1. Pick the video from timeline and choose ‘Trim’ button. Mark the trim area and click ‘Play’ to preview.
 2. Hit ‘Done’ in the end.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Part 5: How to add 3D effects to a Story Remix project
 
@@ -159,7 +285,35 @@ If you want to edit video, we recommend [Wondershare Filmora](https://tools.tech
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Shanoon Cox
 
@@ -183,6 +337,48 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-2-ways-to-fade-audio-in-ableton/"><u>[New] 2024 Approved 2 Ways to Fade Audio in Ableton</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-beginners-guide-to-solo-youtube-broadcasting-from-yourphone/"><u>[New] 2024 Approved Beginner's Guide to Solo YouTube Broadcasting From Yourphone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-reimagining-editing-processes-the-revolutionary-world-of-magix-video-pro-x/"><u>[New] 2024 Approved Reimagining Editing Processes The Revolutionary World of Magix Video Pro X</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-essential-procedures-instilling-stopwatch-capabilities-in-broadcast-encoders-for-2024/"><u>[New] Essential Procedures Instilling Stopwatch Capabilities in Broadcast Encoders for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-glassify-privacy-webcam-panel-for-2024/"><u>[New] Glassify Privacy Webcam Panel for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastery-of-color-grading-premiere-pros-lut-capabilities-for-2024/"><u>[New] Mastery of Color Grading Premiere Pro's LUT Capabilities for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-vlc-software-basics-for-macos-for-2024/"><u>[New] Navigating VLC Software Basics for MacOS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pinnacle-color-balance-pro/"><u>[New] Pinnacle Color Balance Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-proven-strategies-for-masterful-fisheye-photography-for-2024/"><u>[New] Proven Strategies for Masterful Fisheye Photography for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-refine-your-virtual-interactions-learning-to-use-zooms-filters-for-2024/"><u>[New] Refine Your Virtual Interactions Learning to Use Zoom's Filters for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-tier-drones-for-sale-today-for-2024/"><u>[New] Top-Tier Drones for Sale Today for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-your-ultimate-guide-to-choosing-the-right-virtual-reality-headset-for-you-mobile-vs-tethered-in-2024/"><u>[New] Your Ultimate Guide to Choosing the Right Virtual Reality Headset for You Mobile vs Tethered, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-altering-game-console-speech-ps5ps4-upgrades/"><u>[Updated] Altering Game Console Speech PS5/PS4 Upgrades</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-experience-unparalleled-reality-top-10-pc-headsets-for-in-depth-vr-video-for-2024/"><u>[Updated] Experience Unparalleled Reality Top 10 PC Headsets for In-Depth VR Video for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-zero-to-hero-steps-to-construct-your-channels-backlinks/"><u>[Updated] From Zero to Hero Steps to Construct Your Channel's Backlinks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-full-detailed-manual-on-morphvox-voice-alteration-techniques-for-2024/"><u>[Updated] Full-Detailed Manual on MorphVOX Voice Alteration Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-10-most-affordable-cloud-vendors-listed-for-2024/"><u>[Updated] Top 10 Most Affordable Cloud Vendors Listed for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-transform-your-shots-with-understanding-luts/"><u>2024 Approved Transform Your Shots with Understanding LUTs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Razr 40? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/how-to-enhance-your-photos-with-titled-content-win-11/"><u>How to Enhance Your Photos with Titled Content (Win 11)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-xs-max-to-other-iphone-12-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone XS Max To Other iPhone 12 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-access-your-apple-iphone-15-pro-max-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Access Your Apple iPhone 15 Pro Max When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-xiaomi-13-ultra-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Xiaomi 13 Ultra FRP Bypass</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/masterful-use-of-luts-in-obs-studio-for-professional-results/"><u>Masterful Use of LUTs in OBS Studio for Professional Results</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mastering-transitions-kinemasters-step-by-step-tutorial/"><u>Mastering Transitions Kinemaster's Step-by-Step Tutorial</u></a></li>
+<li><a href="https://win-blog.techidaily.com/maximizing-your-gaming-pace-with-improved-fps-techniques-in-tainted-grail-conquest/"><u>Maximizing Your Gaming Pace with Improved FPS Techniques in Tainted Grail: Conquest</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/optimizing-your-mac-for-big-sur-release/"><u>Optimizing Your Mac for Big Sur Release</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/swiftly-start-sharing-joy-installing-the-ifunny-meme-app/"><u>Swiftly Start Sharing Joy Installing the iFunny Meme App</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-fixing-your-laptops-stubborn-monochrome-screen-error/"><u>Troubleshooting and Fixing Your Laptop's Stubborn Monochrome Screen Error</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-transform-your-gopro-clips-a-step-by-step-mac-video-editing-guide/"><u>Updated In 2024, Transform Your GoPro Clips A Step-by-Step Mac Video Editing Guide</u></a></li>
+</ul></div>
 
 
 

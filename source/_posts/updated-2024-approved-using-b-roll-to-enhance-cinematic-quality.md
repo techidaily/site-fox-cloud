@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Using B-Roll to Enhance Cinematic Quality\""
-date: 2024-07-12T15:33:50.585Z
-updated: 2024-07-13T15:33:50.585Z
+date: 2024-09-11T00:51:43.634Z
+updated: 2024-09-12T00:51:43.634Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,20 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 3\. What types of b roll are there?
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
@@ -47,6 +61,20 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 2\. Visual detail b roll footage
 
@@ -56,9 +84,37 @@ Including archival material in your video allows your audience to experience a p
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 5\. Atmospheric b roll footage
 
@@ -72,9 +128,43 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Conclusion
 
@@ -107,6 +197,54 @@ We sincerely hope that this post will be of use to you in making your films more
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-2-ways-to-fade-audio-in-ableton/"><u>[New] 2024 Approved 2 Ways to Fade Audio in Ableton</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-beginners-guide-to-solo-youtube-broadcasting-from-yourphone/"><u>[New] 2024 Approved Beginner's Guide to Solo YouTube Broadcasting From Yourphone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-reimagining-editing-processes-the-revolutionary-world-of-magix-video-pro-x/"><u>[New] 2024 Approved Reimagining Editing Processes The Revolutionary World of Magix Video Pro X</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unlocking-your-iphones-audio-library-with-top-podcast-strategies/"><u>[New] 2024 Approved Unlocking Your iPhone's Audio Library with Top Podcast Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-expertly-edit-extravagant-tiktoks-your-key-to-less-overloaded-drafts/"><u>[New] In 2024, Expertly Edit Extravagant TikToks Your Key to Less Overloaded Drafts</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-facebook-group-video-downloader/"><u>[New] In 2024, Facebook Group Video Downloader</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-revolutionize-virtuality-top-7-devices-for-success/"><u>[New] In 2024, Revolutionize Virtuality - Top 7 Devices for Success</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-depth-look-at-inshot-video-editing-powerhouse-in-2024/"><u>[New] In-Depth Look at InShot Video Editing Powerhouse, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastery-of-color-grading-premiere-pros-lut-capabilities-for-2024/"><u>[New] Mastery of Color Grading Premiere Pro's LUT Capabilities for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-vlc-software-basics-for-macos-for-2024/"><u>[New] Navigating VLC Software Basics for MacOS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pinnacle-color-balance-pro/"><u>[New] Pinnacle Color Balance Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-proven-strategies-for-masterful-fisheye-photography-for-2024/"><u>[New] Proven Strategies for Masterful Fisheye Photography for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-refine-your-virtual-interactions-learning-to-use-zooms-filters-for-2024/"><u>[New] Refine Your Virtual Interactions Learning to Use Zoom's Filters for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-evolutionary-saga-of-vr-worlds/"><u>[New] The Evolutionary Saga of VR Worlds</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-pros-and-cons-of-hero-series-vs-polaroids-video-editors/"><u>[Updated] 2024 Approved Pros & Cons of Hero Series Vs. Polaroid's Video Editors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-altering-game-console-speech-ps5ps4-upgrades/"><u>[Updated] Altering Game Console Speech PS5/PS4 Upgrades</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-cinematic-projects-utilizing-movie-maker-on-windows-8-pcs/"><u>[Updated] Crafting Cinematic Projects Utilizing Movie Maker on Windows 8 PCs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-experience-unparalleled-reality-top-10-pc-headsets-for-in-depth-vr-video-for-2024/"><u>[Updated] Experience Unparalleled Reality Top 10 PC Headsets for In-Depth VR Video for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-full-detailed-manual-on-morphvox-voice-alteration-techniques-for-2024/"><u>[Updated] Full-Detailed Manual on MorphVOX Voice Alteration Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-guffaw-glory-top-downloads-of-jingles-for-2024/"><u>[Updated] Guffaw Glory Top Downloads of Jingles for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-become-a-freelance-transcriber-tips-and-tricks-for-youtube-content/"><u>[Updated] In 2024, Become a Freelance Transcriber Tips and Tricks for YouTube Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-dissecting-vr-a-modern-cinematic-tech/"><u>[Updated] In 2024, Dissecting VR A Modern Cinematic Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-smooth-shooting-secured-choosing-ideal-tripods-and-gimbals/"><u>[Updated] In 2024, Smooth Shooting Secured Choosing Ideal Tripods & Gimbals</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-eye-catchers-of-tomorrow-discovering-6-future-oriented-genres/"><u>2024 Approved Eye Catchers of Tomorrow Discovering 6 Future-Oriented Genres</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/5-easy-ways-to-record-youtube-videos-for-2024/"><u>5 Easy Ways to Record YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/complete-setup-blueprint-for-wm6/"><u>Complete Setup Blueprint for WM6</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/essential-guide-to-15-free-online-photo-enhancement-tools-of-2023/"><u>Essential Guide to #15 Free Online Photo Enhancement Tools of 2023</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/explore-these-6-powerful-instagram-reel-tools/"><u>Explore These 6 Powerful Instagram Reel Tools</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-the-issue-of-non-responsive-search-in-windows-11-top-tips/"><u>Fixing the Issue of Non-Responsive Search in Windows 11 – Top Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/how-to-enhance-your-photos-with-titled-content-win-11/"><u>How to Enhance Your Photos with Titled Content (Win 11)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-honor-x8b-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Honor X8b Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mastering-transitions-kinemasters-step-by-step-tutorial/"><u>Mastering Transitions Kinemaster's Step-by-Step Tutorial</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/optimizing-your-mac-for-big-sur-release/"><u>Optimizing Your Mac for Big Sur Release</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/resolved-windows-11-kernel-error-fixes-and-prevention-tips/"><u>Resolved: Windows 11 Kernel Error Fixes and Prevention Tips</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-art-of-haul-video-production-and-editing-techniques-for-2024/"><u>The Art of Haul Video Production and Editing Techniques for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-review-unveiling-the-latest-innovations-in-computer-components/"><u>Tom's Tech Review: Unveiling the Latest Innovations in Computer Components</u></a></li>
+</ul></div>
 
 
 

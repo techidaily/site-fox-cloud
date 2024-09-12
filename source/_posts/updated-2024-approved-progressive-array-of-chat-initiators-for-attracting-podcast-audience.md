@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Progressive Array of Chat-Initiators for Attracting Podcast Audience\""
-date: 2024-07-12T15:33:48.206Z
-updated: 2024-07-13T15:33:48.206Z
+date: 2024-09-11T00:51:40.948Z
+updated: 2024-09-12T00:51:40.948Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,41 @@ The best podcast questions to ask guests differ according to your niche and the 
 
 ![podcast questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-1.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 The best way is to divide your questions into different categories.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Great Icebreaker/Intro Questions
 
@@ -49,11 +83,45 @@ Here are some icebreaker questions that you can ask to start an interview.
 9. What is one of your greatest challenges in life?
 10. How did you meet your spouse or partner?
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Leading Question
 
 A leading question suggests a particular answer to the question that the questioner desires. These questions mostly have a yes or no answer. However, if you extract your question from the answer just given by the guest of the podcast, it is also a leading question.
 
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Some leading questions that you can ask are discussed below.
 
@@ -72,6 +140,20 @@ Some leading questions that you can ask are discussed below.
 13. What do you mean by that?
 14. Can you give an example?
 15. What do you suggest to our audience who are facing the same problems?
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Comparison Questions
 
@@ -133,9 +215,37 @@ You can get the best information from the person you are interviewing if you do 
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### What happened next?
 
 If your guest is overwhelmed by the emotions and has stopped before completing his answer, help him achieve it by asking, "What Happened Next?" Use a softer tone while asking this question.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### What were your feelings when this happened?
 
@@ -158,6 +268,20 @@ So you see how this can continue to move forward by simply mirroring your guest.
 
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part 4\. Podcast Questions to Avoid Asking
 
 Avoiding asking wrong questions is as important as asking good questions. Some questions will negatively impact your podcast's quality, so avoid asking such questions. Here are some questions that you should not ask.
@@ -167,6 +291,20 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Questions you anticipate will result in a "yes" should be avoided, as a simple "yes" adds little value to the interview for those listening.
 * Similarly, avoid asking questions to which you can predict the answer will be a "no."
 * Avoid questions that might offend your guest.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
@@ -205,6 +343,59 @@ Consider the following when picking which of the above questions to use on your 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-break-the-ice-how-to-make-a-hit-youtube-reaction-in-just-15-minutes-or-less/"><u>[New] 2024 Approved Break the Ice - How to Make a Hit YouTube Reaction in Just 15 Minutes or Less</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-action-camera-showdown-sj-cam-s6-takes-the-spotlight/"><u>[New] Action Camera Showdown SJ-CAM S6 Takes the Spotlight</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-copyright-concern-unscheduled-video-displacement/"><u>[New] Copyright Concern Unscheduled Video Displacement</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-demystifying-the-purpose-what-is-a-blue-image-on-facebook/"><u>[New] Demystifying the Purpose What Is a Blue Image on Facebook?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-eye-opening-experience-selecting-best-for-vr-gaming/"><u>[New] Eye-Opening Experience Selecting Best for VR Gaming</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-googles-advanced-upload-techniques-for-podcasters-for-2024/"><u>[New] Google's Advanced Upload Techniques for Podcasters for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-beyond-basics-advanced-imaging-and-video-with-hero5-black/"><u>[New] In 2024, Beyond Basics Advanced Imaging & Video with Hero5 Black</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-insiders-pick-of-advanced-audio-software-a-vtubers-guide/"><u>[New] In 2024, Insider's Pick of Advanced Audio Software A Vtuber's Guide</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-maximizing-video-visibility-top-strategies-on-fb/"><u>[New] In 2024, Maximizing Video Visibility Top Strategies on FB</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-strategic-marketing-websites-for-youtube-videos-for-2024/"><u>[New] Strategic Marketing Websites for YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-transform-your-iphone-footage-creating-and-editing-lengthened-visual-narratives-for-2024/"><u>[New] Transform Your iPhone Footage Creating & Editing Lengthened Visual Narratives for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ultimate-trailer-highlight-hodgepodge-for-2024/"><u>[New] Ultimate Trailer Highlight Hodgepodge for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-become-an-expert-at-unearthing-unique-visuals-from-pexels/"><u>[Updated] 2024 Approved Become an Expert at Unearthing Unique Visuals From Pexels</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-designing-multi-layered-photographic-illusions/"><u>[Updated] 2024 Approved Designing Multi-Layered Photographic Illusions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-incorporating-side-content-a-filmmakers-guide/"><u>[Updated] 2024 Approved Incorporating Side Content A Filmmaker's Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-iphone-photography-secrets-unveiled/"><u>[Updated] 2024 Approved IPhone Photography Secrets Unveiled</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-advanced-steps-for-securing-stock-photo-borders/"><u>[Updated] Advanced Steps for Securing Stock Photo Borders</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-foremost-20-anime-music-opener-list/"><u>[Updated] Foremost 20 Anime Music Opener List</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-novice-to-leader-top-30-facebook-tactics-unlocked/"><u>[Updated] From Novice to Leader Top 30 Facebook Tactics Unlocked</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-immersion-in-metaverse-leading-hmds-reviewed/"><u>[Updated] Immersion in Metaverse Leading HMDs Reviewed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-streamline-your-media-files-8-pro-convertors-sub-to-srt-style/"><u>[Updated] In 2024, Streamline Your Media Files 8 Pro Convertors, Sub to Srt Style</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-tier-hdr-camera-selection-made-easy/"><u>[Updated] In 2024, Top-Tier HDR Camera Selection Made Easy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pixelwizard-a-comprehensive-top-10-list-of-replacements/"><u>[Updated] PixelWizard A Comprehensive Top 10 List of Replacements</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-tune-up-your-whatsapp-status-snapshot-for-2024/"><u>[Updated] Tune Up Your WhatsApp Status Snapshot for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ultimate-selection-8-must-have-laptop-backgrounds-for-2024/"><u>[Updated] Ultimate Selection 8 Must-Have Laptop Backgrounds for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-vive-review-step-into-the-next-dimension-for-2024/"><u>[Updated] Vive Review Step Into the Next Dimension for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-color-balance-boost-in-photoshop-simplified/"><u>2024 Approved Color Balance Boost in Photoshop Simplified</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/achieving-professional-hdr-images-with-adobe-ps-for-2024/"><u>Achieving Professional HDR Images with Adobe PS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/camera-connoisseurs-hits-the-best-6-of-the-years-4k-cameras-for-2024/"><u>Camera Connoisseurs' Hits The Best 6 of the Year's 4K Cameras for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/creative-catalysts-da-vincis-triumph-in-image-generation-ai/"><u>Creative Catalysts: Da Vinci’s Triumph in Image Generation AI</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/effective-method-for-personalizing-fb-page-coverage-for-2024/"><u>Effective Method for Personalizing FB Page Coverage for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Samsung Galaxy M54 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-constructing-a-premium-video-editing-pc-from-the-ground-up/"><u>In 2024, Constructing a Premium Video Editing PC From the Ground Up</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-tecno-camon-20-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Tecno Camon 20 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-medical-and-health-facebook-ads-campaign-tips/"><u>In 2024, Medical And Health Facebook Ads Campaign Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-nearby-nuances-in-your-minecraft-realm/"><u>In 2024, Navigating Nearby Nuances in Your Minecraft Realm</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-through-excellent-alternatives-to-gopro-cams/"><u>In 2024, Navigating Through Excellent Alternatives to GoPro Cams</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/instant-insight-method-for-punctuation-of-timelines-in-images/"><u>Instant Insight Method for Punctuation of Timelines in Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premium-steadicam-brands-for-drones-and-camera-work-for-2024/"><u>Premium Steadicam Brands for Drones and Camera Work for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-hasty-photographers-guide-to-google-collage-magic-for-2024/"><u>The Hasty Photographer's Guide to Google Collage Magic for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweet-to-tune-video-to-audible-file-for-2024/"><u>Tweet-to-Tune Video to Audible File for 2024</u></a></li>
+</ul></div>
 
 
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Filmora’s Easy Steps to Convert AVI Files Into Vibrant GIFs on All Platforms for 2024"
-date: 2024-07-12T15:34:28.223Z
-updated: 2024-07-13T15:34:28.223Z
+date: 2024-09-11T00:50:18.545Z
+updated: 2024-09-12T00:50:18.545Z
 tags: 
   - screen-recording
   - ai video
@@ -66,6 +66,26 @@ Step2Click on the Import button and choose the media file from your device, or d
 
 ![click on the import button](https://images.wondershare.com/filmora/article-images/2022/07/avi-to-gif-1.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Step3Drag the files to the timeline and drop them.
 
 Step4Make editing choices like crop, trim, rotate, speed adjustment, etc.
@@ -79,6 +99,20 @@ Step6Save by exporting the file through the Export tab and choose the location o
 Step7Click on the Export button and choose “GIF” under the “Local” tab.
 
 ![click on the export button](https://images.wondershare.com/filmora/article-images/2022/07/avi-to-gif-3.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### How to convert AVI to GIF on Mac?
 
@@ -95,6 +129,20 @@ Step3Cut the video size and adjust speed, color match, add subtitles, and other 
 Step4Click on the Export button and choose the file's name, format (GIF), and the file saving location in device.
 
 Step5Press Export for the processing to begin.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Part 2: Comparison Between AVI and GIF
 
@@ -129,6 +177,20 @@ So, in essence, both are vastly different, but have commonalities in certain asp
 | **Metadata/Tags Supported**       | GIFs support plain text block, comment block, and app extension (application-specific) block types of metadata. These files can include XMP data with a related app extension block. | AVI files get INFO chunk-tagged metadata since it is a RIFF derivative. It can also embed with the Extensible Metadata Platform.                       |
 | **Uniform Type Identifier (UTI)** | com.compuserve.GIF                                                                                                                                                                   | public.AVI                                                                                                                                             |
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part 3: FAQs about Converting AVI to Animated GIF
 
 ### 1\. How to Merge Multiple AVI Videos to GIF Online?
@@ -146,6 +208,26 @@ Yes, one can add audio into GIF files with specific tools or software, but only 
 * [How to Merge Multiple AVI Videos to GIF Online?](#part3-1)
 * [What is the maximum size of a GIF file?](#part3-2)
 * [Can you add sound to a GIF? If so, how?](#part3-3)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Part 1: Best way to convert a AVI to a GIF
 
@@ -166,6 +248,20 @@ While [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is k
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### How to convert AVI to GIF on PC?
 
@@ -191,6 +287,20 @@ Step7Click on the Export button and choose “GIF” under the “Local” tab.
 
 ![click on the export button](https://images.wondershare.com/filmora/article-images/2022/07/avi-to-gif-3.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### How to convert AVI to GIF on Mac?
 
 This **AVI GIF converter** is also usable on Mac devices. However, the software is supported on certain OS versions, like macOS v10.14 (Mojave), macOS v10.15 (Catalina), macOS v11 (Big Sur), and macOS v12 (Monterey) only. For older versions, you have to get Filmora v10.5\. Also, Boris FX and NewBlue FX are available on specific devices.
@@ -206,6 +316,20 @@ Step3Cut the video size and adjust speed, color match, add subtitles, and other 
 Step4Click on the Export button and choose the file's name, format (GIF), and the file saving location in device.
 
 Step5Press Export for the processing to begin.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Part 2: Comparison Between AVI and GIF
 
@@ -240,11 +364,51 @@ So, in essence, both are vastly different, but have commonalities in certain asp
 | **Metadata/Tags Supported**       | GIFs support plain text block, comment block, and app extension (application-specific) block types of metadata. These files can include XMP data with a related app extension block. | AVI files get INFO chunk-tagged metadata since it is a RIFF derivative. It can also embed with the Extensible Metadata Platform.                       |
 | **Uniform Type Identifier (UTI)** | com.compuserve.GIF                                                                                                                                                                   | public.AVI                                                                                                                                             |
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part 3: FAQs about Converting AVI to Animated GIF
 
 ### 1\. How to Merge Multiple AVI Videos to GIF Online?
 
 Like using software to **convert AVI to GIF**, you can use specific online conversion tools to merge many GIF files to AVI. The Filmora software is highly capable of merging **AVI to GIF** files as well, but it is not accessible as an online tool.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 2\. What is the maximum size of a GIF file?
 
@@ -275,6 +439,72 @@ Yes, one can add audio into GIF files with specific tools or software, but only 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-core-principles-for-online-storytelling-craftsmanship/"><u>[New] 2024 Approved Core Principles for Online Storytelling Craftsmanship</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unveiling-lost-reddit-content-instant-access-techniques/"><u>[New] 2024 Approved Unveiling Lost Reddit Content Instant Access Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-beyond-hd-the-exceptional-experience-with-hp-envy-27/"><u>[New] Beyond HD - The Exceptional Experience with HP Envy 27</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-circulating-content-the-art-of-playlist-sharing-for-2024/"><u>[New] Circulating Content The Art of Playlist Sharing for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-high-res-horizons-in-depth-analysis-of-samsung-ue590-tv/"><u>[New] High-Res Horizons In-Depth Analysis of Samsung UE590 TV</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-effortless-image-incorrante-on-instagram/"><u>[New] In 2024, Effortless Image Incorrante on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-embracing-the-future-with-benq-sw320s-4k-display-technology/"><u>[New] In 2024, Embracing the Future with BenQ SW320's 4K Display Technology</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-in-depth-guide-to-mobile-file-exchange-in-ios/"><u>[New] In 2024, In-Depth Guide to Mobile File Exchange in iOS</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-pixelstreamer-os-native-screen-recording/"><u>[New] In 2024, PixelStreamer OS-Native Screen Recording</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-8-video-transformation-tools-from-iphone-to-file/"><u>[New] In 2024, Top #8 Video Transformation Tools From iPhone to File</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-secrets-revealed-best-8-costless-3d-vids-software-on-pcmac-for-2024/"><u>[New] Secrets Revealed Best 8 Costless 3D Vids Software on PC/Mac for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sketchsquad-full-scrutiny-and-step-by-step-guidebook-24/"><u>[New] SketchSquad Full Scrutiny & Step-by-Step Guidebook '24</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-30-camcorders-recommended-for-snow-activities/"><u>[New] Top 30 Camcorders Recommended for Snow Activities</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-8-premium-and-gratis-mobile-video-mosaic-tools-for-android/"><u>[New] Top 8 Premium & Gratis Mobile Video Mosaic Tools for Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-free-versatile-laptop-software-to-watch-dvds/"><u>[Updated] 2024 Approved Free, Versatile Laptop Software to Watch DVDs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-paragon-of-plot-design-in-cinemas-segmented-landscape/"><u>[Updated] 2024 Approved Paragon of Plot Design in Cinema's Segmented Landscape</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-pushing-the-envelope-in-display-technology-detailed-examination-of-benq-bl2711u/"><u>[Updated] 2024 Approved Pushing the Envelope in Display Technology Detailed Examination of BenQ BL2711U</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-critical-look-best-camcorders-of-2024-rankings-and-reviews/"><u>[Updated] A Critical Look Best Camcorders of 2024 Rankings & Reviews</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhancing-aural-experience-fading-techniques-in-lumafusion-for-2024/"><u>[Updated] Enhancing Aural Experience Fading Techniques in Lumafusion for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-actors-deal-for-downloadable-movie-content/"><u>[Updated] In 2024, Actors' Deal for Downloadable Movie Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-future-is-now-hot-10-vr-gear-options/"><u>[Updated] In 2024, The Future Is Now Hot 10 VR Gear Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-transformative-tinsel-a-journey-from-box-to-joy/"><u>[Updated] In 2024, Transformative Tinsel A Journey From Box to Joy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unpacking-gopro-hero5-session-features/"><u>[Updated] In 2024, Unpacking GoPro Hero5 Session Features</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-sony-bdp-s6500-review/"><u>[Updated] Sony BDP-S6500 Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-strategies-and-techniques-in-documentary-scriptwriting-for-2024/"><u>[Updated] Strategies and Techniques in Documentary Scriptwriting for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-comparative-study-on-vlc-video-capture/"><u>2024 Approved Comparative Study on VLC Video Capture</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-integrating-media-files-for-direct-transfer-to-iphone/"><u>2024 Approved Integrating Media Files for Direct Transfer to iPhone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-infinix-hot-40-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Infinix Hot 40 to Roku | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-treasure-trove-of-premium-rate-free-luts-revealed-for-2024/"><u>A Treasure Trove of Premium-Rate Free LUTs Revealed for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/authenticating-medical-data-trustworthy-practices-using-chatgpt-and-advanced-ai/"><u>Authenticating Medical Data: Trustworthy Practices Using ChatGPT & Advanced AI</u></a></li>
+<li><a href="https://win11.techidaily.com/boot-barriers-busted-5-proven-steps-for-secure-boot-fixes/"><u>Boot Barriers Busted: 5 Proven Steps for Secure Boot Fixes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/crayoncrafts-thorough-examination-and-users-manual-2eva/"><u>CrayonCrafts Thorough Examination & User's Manual 2Eva</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/discovering-easy-content-downloads-on-funimate/"><u>Discovering Easy Content Downloads on Funimate</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/empowerment-through-knowledge-lut-design-for-the-aspiring-film-professional/"><u>Empowerment Through Knowledge LUT Design for the Aspiring Film Professional</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-truthgpt-insights-and-secrets-revealed-in-depth-analysis-of-a-major-police-sting-on-mullvad-vpn/"><u>Exploring TruthGPT: Insights & Secrets Revealed | In-Depth Analysis of a Major Police Sting on Mullvad VPN</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/from-timeless-tales-in-tone-on-tone-to-dynamic-digital-narratives/"><u>From Timeless Tales in Tone-On-Tone to Dynamic Digital Narratives</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-infinix-zero-30-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Infinix Zero 30 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-8-plus-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 8 Plus to the Latest iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-elite-virtual-storage-service-ranking/"><u>In 2024, Elite Virtual Storage Service Ranking</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-funimate-simplified-your-compreayer-guide/"><u>In 2024, Funimate Simplified Your Compreayer Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-revolutionize-your-youtube-presence-with-personalized-thumbnails/"><u>In 2024, Revolutionize Your YouTube Presence with Personalized Thumbnails</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-guide-to-removing-photo-borders/"><u>In 2024, The Ultimate Guide to Removing Photo Borders</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-6-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>iPhone 6 Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-free-online-video-editing-10-best-trimming-tools-and-software/"><u>New Free Online Video Editing 10 Best Trimming Tools and Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/periscope-pro-the-in-depth-usage-guidebook-for-2024/"><u>Periscope Pro The In-Depth Usage Guidebook for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/reinstating-focus-in-photos-a-comprehensive-guide-to-top-10-online-enhancers-for-2024/"><u>Reinstating Focus in Photos A Comprehensive Guide to Top 10 Online Enhancers for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/tailored-transfer-process-for-mobile-camera-roll-on-snapchat/"><u>Tailored Transfer Process for Mobile Camera Roll on Snapchat</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-best-practices-for-recording-apex-heroes/"><u>The Best Practices for Recording Apex Heroes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/the-pros-guide-to-xbox-players-on-facebook-live-for-2024/"><u>The Pro's Guide to Xbox Players on Facebook Live for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-soundtrack-strategy-amplifying-unboxing-content/"><u>The Soundtrack Strategy Amplifying Unboxing Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-windows-10-tips-for-maximum-productivity-for-2024/"><u>Top Windows 10 Tips For Maximum Productivity for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unveiling-the-best-vr-applications-for-phones/"><u>Unveiling the Best VR Applications for Phones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/visual-storytelling-made-easy-free-vfx-websites-for-2024/"><u>Visual Storytelling Made Easy - Free VFX Websites for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/wave-goodbye-to-game-crashes-expert-fixes-for-a-smooth-run-of-total-war-warhammer-iii-on-pc/"><u>Wave Goodbye to Game Crashes: Expert Fixes for a Smooth Run of TOTAL WAR: WARHAMMER III on PC</u></a></li>
+</ul></div>
 
 
 
