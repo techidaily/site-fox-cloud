@@ -1,7 +1,7 @@
 ---
 title: "\"Hand Tracking Explained  Types and Applications for 2024\""
-date: 2024-07-12T15:31:30.793Z
-updated: 2024-07-13T15:31:30.793Z
+date: 2024-09-10T23:06:34.824Z
+updated: 2024-09-16T19:30:50.460Z
 tags: 
   - screen-recording
   - ai video
@@ -96,6 +96,13 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Guidance With Steps
 
 Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
@@ -109,6 +116,13 @@ Click the **“New Project”** option and select **“Create”** on the next W
 Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
 ![copy and paste command to install opencv](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now, to install **MediaPipe**, copy and paste the following command:
 
@@ -137,6 +151,13 @@ The image is converted to RGB from BGR because MediaPipe works with this type of
 Now, create a class for tracking and for the hands function to work, key in the basic parameters. Next, provide all the initialization required. This includes the basic parameters and MediaPipe initializations. Put _“self”_ before each object to provide access to its attributes and methods.
 
 ![working with both hands](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step4 Creating Method For Tracking Hands In Input Image
 
@@ -188,6 +209,13 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
 * [What Is Media Pipe](#part3-2)
 * [Guidance With Steps](#part3-3)
 * [Use Filmora to demonstarte your Hand Tracking skill](#part4)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1\. What Is Hand Tracking? Where Is It Applied?
 
@@ -249,6 +277,13 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 2. **Hand Landmarks Identification**: In the second stage, the framework works with the cropped image of the hand to find 21 hand landmarks.
 
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Guidance With Steps
 
@@ -360,6 +395,22 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-empowering-your-iphones-capture-with-full-screen-images/"><u>[New] 2024 Approved Empowering Your iPhone's Capture with Full-Screen Images</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-streamlining-screen-captures-on-mi-11-lite/"><u>[New] 2024 Approved Streamlining Screen Captures on Mi 11 Lite</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-step-by-step-garageband-tutorial-for-podcast-creation/"><u>[New] In 2024, Step-by-Step GarageBand Tutorial for Podcast Creation</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-say-thanks-free-and-subscribed-outro-samples-available-for-2024/"><u>[New] Say Thanks! Free & Subscribed Outro Samples Available for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-efficiently-start-and-schedule-a-zoom-call-on-any-android-device/"><u>[Updated] 2024 Approved Efficiently Start & Schedule a Zoom Call on Any Android Device</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-impactful-youtube-thumbnails-and-ads-for-2024/"><u>[Updated] Creating Impactful YouTube Thumbnails & Ads for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-a-detailed-guide-to-advanced-human-interface-systems/"><u>[Updated] In 2024, A Detailed Guide to Advanced Human Interface Systems</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-from-search-patterns-to-screenplay-crafting-videos-from-google-data/"><u>2024 Approved From Search Patterns to Screenplay Crafting Videos From Google Data</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-from-virtual-worlds-to-vaults-top-6-strategies-for-minecraft-archives/"><u>2024 Approved From Virtual Worlds to Vaults Top 6 Strategies for Minecraft Archives</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-and-online-safety-what-are-the-top-6-security-risks-to-watch-out-for/"><u>ChatGPT and Online Safety - What Are the Top 6 Security Risks to Watch Out For?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/imessage-sent-as-sms-on-iphone-what-could-this-indicate-about-being-blocked/"><u>IMessage Sent as SMS on iPhone: What Could This Indicate About Being Blocked?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/immersive-exploration-mastering-close-up-views-in-minecraft/"><u>Immersive Exploration Mastering Close-Up Views in Minecraft</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-leveraging-edit-tools-for-youtube-videos-post-publishment/"><u>In 2024, Leveraging Edit Tools for YouTube Videos Post-Publishment</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-your-youtube-pinpointing-a-specialized-audience/"><u>Mastering Your YouTube Pinpointing a Specialized Audience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-writers-workshop-for-podcast-creators-examples-included/"><u>The Writers' Workshop for Podcast Creators (Examples Included)</u></a></li>
+</ul></div>
 

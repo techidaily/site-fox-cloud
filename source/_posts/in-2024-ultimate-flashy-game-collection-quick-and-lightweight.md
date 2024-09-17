@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Ultimate Flashy Game Collection - Quick and Lightweight\""
-date: 2024-07-12T15:32:22.961Z
-updated: 2024-07-13T15:32:22.961Z
+date: 2024-09-11T18:57:26.493Z
+updated: 2024-09-16T17:39:42.146Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,19 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 
 ![any-flv-player](https://images.wondershare.com/filmora/article-images/any-flv-player.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Wimpy Player:
 
  It works on almost all devices with high quality content support. Beginners find it much easier to customize, configure, design and set up with so many user friendly and interactive tools. Wimpy possesses many custom skins and it is rated as a Fluid + Responsive platform that doesn’t depend on other support systems. It is designed using HTML5, CSS and Javascript; hence offers support to Text, RSS, XML, JSON and many other media file types.
@@ -60,6 +73,20 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 
 ![vlc-video-player](https://images.wondershare.com/filmora/article-images/vlc-video-player.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Winamp:
 
  Winamp is a new solution for Mac and PC devices that promises high quality content delivery for Flash videos. This flash player is designed with user friendly interface so that anyone can start streaming their favorite video clips with few clicks. You can also share content on Twitter and Facebook directly from this simple and stunning video player platform.
@@ -67,6 +94,13 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 ![winamp](https://images.wondershare.com/filmora/article-images/winamp.jpg)
 
 ## Best Flash or Flv Players for Android or iOS
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. FLV Video Player (Android):
 
@@ -85,6 +119,13 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
  BS player is designed to offer full support on Android 6 platform. Its multi core type HW decoding feature automatically improves video playback speed whereas the hardware accelerated playbacks make content delivery possible at reduced batter consumption. Its playlist extends support to almost all popular video file formats while managing audio streams as well as subtitles. Users can also enjoy video playbacks from uncompressed RAR formats of the lock screen playback capability helps to avoid accidental change. You can access BS player for free with its ad supported interface whereas full version offers disturbance free access to video clips.
 
 ![bsplayer-android](https://images.wondershare.com/filmora/article-images/bsplayer-android.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. O Player Lite (iOS):
 
@@ -123,6 +164,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-mastering-the-craft-of-looped-visuals-for-social-media-success/"><u>[New] 2024 Approved Mastering the Craft of Looped Visuals for Social Media Success</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-comprehensible-method-for-ifunny-meme-downloads/"><u>[New] The Comprehensible Method for iFunny Meme Downloads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-discover-the-best-5-sd-cards-for-gopro-hero-8-and-7/"><u>[Updated] 2024 Approved Discover the Best 5 SD Cards for GoPro Hero 8 and 7</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-photo-vid-mosaic-designer-slideshows-for-sierra/"><u>[Updated] 2024 Approved Photo-Vid Mosaic Designer Slideshows for Sierra</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-grasping-virtual-realitys-revolutionary-gear/"><u>[Updated] Grasping Virtual Reality's Revolutionary Gear</u></a></li>
+<li><a href="https://win-answers.techidaily.com/get-the-latest-drivers-for-your-logitech-g403-device-to-enhance-pc-connectivity-and-control/"><u>Get the Latest Drivers for Your Logitech G403 Device to Enhance PC Connectivity & Control</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-vivo-y02t-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Vivo Y02T to iPhone | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-kids-the-smart-snacking-app-google-plays-best-of-2017/"><u>Mondly Kids: The Smart Snacking App, Google Play’s Best of 2017</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/nikon-coolpix-l340-review/"><u>Nikon Coolpix L340 Review</u></a></li>
+<li><a href="https://win11.techidaily.com/optimize-and-thrive-harnessing-the-power-of-wintoys/"><u>Optimize and Thrive: Harnessing the Power of Wintoys</u></a></li>
+<li><a href="https://driver-install.techidaily.com/refresh-realtek-pcie-chipset-support-in-windows-11-updates/"><u>Refresh Realtek PCIe Chipset Support in Windows 11 Updates</u></a></li>
+</ul></div>
 
