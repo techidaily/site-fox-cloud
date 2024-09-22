@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Decoding the Art of Backdrop Cleansing in Figma Design"
-date: 2024-09-16T00:48:42.640Z
-updated: 2024-09-17T01:27:17.452Z
+date: 2024-09-15T21:04:08.527Z
+updated: 2024-09-21T18:43:33.591Z
 tags: 
   - screen-recording
   - ai video
@@ -88,13 +88,6 @@ Follow these tips to remove the background of images with transparent or solid c
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### (2) 3 Other Figma Plugins
 
 You can use the following **Figma plugins to remove the image background**:
@@ -118,10 +111,10 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (3) Using Online Removers
@@ -131,16 +124,16 @@ Another alternative is to use any tool that **removes the image background onlin
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
@@ -168,10 +161,10 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (3) Using Online Removers
@@ -183,6 +176,13 @@ To use the Remove BG tool, visit its website, drop your image file, or click the
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -216,19 +216,14 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-free-video-recorders-for-every-android-user/"><u>[New] 2024 Approved Free Video Recorders for Every Android User</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-drone-for-sale-best-drones-to-buy-for-2024/"><u>[Updated] Drone for Sale - Best Drones to Buy for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-echo-music-into-your-whatsapp-narrative/"><u>[Updated] Echo Music Into Your WhatsApp Narrative</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-eliteres-converter-windows-mac-and-online-access/"><u>[Updated] In 2024, EliteRes Converter Windows, Mac & Online Access</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-technicalities-of-podcast-rss-file-design-for-2024/"><u>[Updated] The Technicalities of Podcast RSS File Design for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/boost-your-site-visibility-the-secret-behind-cookiebot/"><u>Boost Your Site Visibility: The Secret Behind Cookiebot</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/decoding-gpt-4-and-gpt-35-key-variances/"><u>Decoding GPT-4 and GPT-3.5 Key Variances</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-computer-components-with-toms-tech-insights-toms-hardware/"><u>Exploring Computer Components with Tom's Tech Insights 🖥️ | Tom's Hardware</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-tecno-camon-20-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Tecno Camon 20</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-clarifying-video-margins-imovie-crop-explanation/"><u>In 2024, Clarifying Video Margins IMovie Crop Explanation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-seventh-selection-of-aquatic-cameras/"><u>In 2024, The Ultimate Seventh Selection of Aquatic Cameras</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/revive-forgotten-moments-software-solutions-for-iphone-photo-resurrection/"><u>Revive Forgotten Moments: Software Solutions for iPhone Photo Resurrection</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/swift-transition-the-ultimate-guide-to-sierra-on-macs/"><u>Swift Transition The Ultimate Guide to Sierra on Macs</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-lava-yuva-3-pro-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Lava Yuva 3 Pro Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-facebook-video-marketing-top-20-strategies-to-watch/"><u>[New] 2024 Approved Facebook Video Marketing Top 20 Strategies to Watch</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-a-comprehensive-list-of-frames-to-upgrade-your-photos-on-instagram/"><u>[New] A Comprehensive List of Frames to Upgrade Your Photos on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-instagram-image-integration-made-simple-for-2024/"><u>[New] Instagram Image Integration Made Simple for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-silent-scribes-unveiling-the-best-speech-to-text-tools/"><u>[New] Silent Scribes Unveiling the Best Speech-to-Text Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-premiere-visionary-film-glimpses/"><u>In 2024, Premiere Visionary Film Glimpses</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-insider-guide-to-simplifying-character-voice-modification-pubg/"><u>In 2024, The Insider Guide to Simplifying Character Voice Modification (PUBG)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-asus-zephyrus-g14-where-performance-meets-portability-for-gamers/"><u>In-Depth Analysis of the Asus Zephyrus G14: Where Performance Meets Portability for Gamers</u></a></li>
+<li><a href="https://driver-download.techidaily.com/obtain-your-logitech-k350-webcam-installation-files-here/"><u>Obtain Your Logitech K350 Webcam Installation Files Here</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/securing-administrative-access-the-ultimate-guide-to-bypassing-trustedinstaller-in-windows-11/"><u>Securing Administrative Access: The Ultimate Guide to Bypassing TrustedInstaller in Windows 11</u></a></li>
 </ul></div>
 

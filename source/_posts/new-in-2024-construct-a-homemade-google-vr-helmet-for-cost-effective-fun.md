@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Construct a Homemade Google VR Helmet for Cost-Effective Fun\""
-date: 2024-09-13T00:14:07.501Z
-updated: 2024-09-16T17:40:41.338Z
+date: 2024-09-15T00:53:37.191Z
+updated: 2024-09-21T21:53:02.504Z
 tags: 
   - screen-recording
   - ai video
@@ -64,16 +64,10 @@ thumbnail: https://thmb.techidaily.com/7111378cc0205319da99cc8db3992a3d311982c55
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -96,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/7111378cc0205319da99cc8db3992a3d311982c55
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -127,21 +121,16 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-zoom-assisted-video-production-for-tiktok/"><u>[New] 2024 Approved Zoom-Assisted Video Production for TikTok</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-fundamental-narrative-structure/"><u>[New] In 2024, Fundamental Narrative Structure</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-perfecting-your-youtube-experience-stop-previews/"><u>[New] In 2024, Perfecting Your YouTube Experience - Stop Previews</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-make-every-gaming-moment-count-top-5-ways-to-record-in-minecraft-on-a-mac-for-2024/"><u>[New] Make Every Gaming Moment Count Top 5 Ways to Record in Minecraft on a Mac for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-free-best-10-video-editing-apps-to-edit-and-make-instagram-reels/"><u>[Updated] 2024 Approved FREE Best 10 Video Editing Apps to Edit and Make Instagram Reels</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-essential-topic-choosing-the-right-kids-quadcopter-for-2024/"><u>[Updated] Essential Topic Choosing the Right Kid's Quadcopter for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-from-dissonance-to-harmony-crafting-audio-transitions-in-audacity/"><u>[Updated] From Dissonance to Harmony Crafting Audio Transitions in Audacity</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-quick-quality-edits-the-ultimate-guide-to-pixlr-for-2024/"><u>[Updated] Quick, Quality Edits The Ultimate Guide to Pixlr for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/2024-approved-swift-solutions-for-auditory-clarity-banishing-buildup-noise/"><u>2024 Approved Swift Solutions for Auditory Clarity Banishing Buildup Noise</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-note-50-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme Note 50 | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/from-novice-to-pro-simplified-youtube-live-streaming-with-obs/"><u>From Novice to Pro Simplified YouTube Live Streaming with OBS</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-realme-11-proplus-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Realme 11 Pro+ to iPad | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-oppo-k11x-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Oppo K11x Fingerprint Lock</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-tricks-and-tips-for-mastering-your-new-win11-experience/"><u>In 2024, Tricks & Tips for Mastering Your New Win11 Experience</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/pushing-the-limits-with-text-warping-effects-for-2024/"><u>Pushing the Limits with Text Warping Effects for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-of-the-nokia-31-your-ultimate-entry-level-smartphone-choice/"><u>Unveiling the Features of the Nokia 3.1 - Your Ultimate Entry-Level Smartphone Choice</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-insta-twist-techniques-manual-flipping-photos-and-videos-for-social-media-success/"><u>[New] In 2024, The Insta Twist Techniques Manual Flipping Photos and Videos for Social Media Success</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-choreograph-cheeky-comics-via-giphy/"><u>[Updated] 2024 Approved Choreograph Cheeky Comics via Giphy</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-learn-audio-recording-in-audacity-with-your-mac/"><u>[Updated] 2024 Approved Learn Audio Recording in Audacity with Your Mac</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-animators-playground-building-your-own-visual-treats-for-2024/"><u>[Updated] Animator’s Playground Building Your Own Visual Treats for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-integrating-artistry-into-your-instagram-feed-with-pictures-for-2024/"><u>[Updated] Integrating Artistry Into Your Instagram Feed with Pictures for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-brush-up-your-skills-the-definitive-list-of-top-10-drawing-apps-for-android/"><u>2024 Approved Brush Up Your Skills The Definitive List of Top 10 Drawing Apps for Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-digital-makeup-mastering-youtubes-chromatic-alignment/"><u>2024 Approved Digital Makeup Mastering Youtube's Chromatic Alignment</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/customer-expresses-frustration-with-intels-replacement-policy-allegations-that-recently-acquired-core-i9-cpus-were-fraudulent/"><u>Customer Expresses Frustration with Intel's Replacement Policy - Allegations That Recently Acquired Core I9 CPUs Were Fraudulent</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-samsung-galaxy-a05s-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Samsung Galaxy A05s Device</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ultimate-guide-to-editbox-suite-reviewed-for-2024/"><u>Ultimate Guide to EditBox Suite, Reviewed for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/1715701059447-unveiling-advantages-comprehen/"><u>Unveiling Advantages Comprehen...</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Muffled to Clear  The Initial Use of Fade in Audition\""
-date: 2024-09-12T02:26:26.563Z
-updated: 2024-09-16T19:19:50.351Z
+date: 2024-09-15T16:37:18.277Z
+updated: 2024-09-21T22:11:23.621Z
 tags: 
   - screen-recording
   - ai video
@@ -81,14 +81,14 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
@@ -101,6 +101,13 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -120,10 +127,10 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
@@ -131,13 +138,6 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
 ## Part 3\. Related FAQs
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
@@ -147,16 +147,16 @@ If you want to fade in and fade out two clips at the same time, then controlling
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -190,21 +190,19 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-immersive-entertainment-showdown-google-cardboard-and-samsung-gear/"><u>[New] 2024 Approved Immersive Entertainment Showdown Google Cardboard & Samsung Gear</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-effective-ways-to-leverage-zoom-on-chrome-os-devices-for-2024/"><u>[New] Effective Ways to Leverage Zoom on Chrome OS Devices for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-discover-prime-sites-to-download-your-got-favorite-tunes/"><u>[New] In 2024, Discover Prime Sites to Download Your GoT Favorite Tunes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-driving-traffic-with-creative-fb-video-marketing-hacks/"><u>[New] In 2024, Driving Traffic with Creative FB Video Marketing Hacks</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-mastering-the-basics-motion-graphics-framework-for-2024/"><u>[New] Mastering the Basics Motion Graphics Framework for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-12-no-cost-high-end-video-apps-for-seamless-viewing-experience-pc-and-tabletsmartphone/"><u>[New] Top 12 No-Cost High-End Video Apps for Seamless Viewing Experience (PC & Tablet/Smartphone)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-speeding-up-spotify-tracks-safe-techniques-and-strategies/"><u>[Updated] Speeding Up Spotify Tracks Safe Techniques and Strategies</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-unbeatable-free-webcam-matchups-for-2024/"><u>[Updated] Unbeatable Free Webcam Matchups for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/clockwise-chronicles-apples-video-reversal-method/"><u>Clockwise Chronicles Apple's Video Reversal Method</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-xiaomi-redmi-k70-pro-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Xiaomi Redmi K70 Pro Phone When You Forget the Password</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-infinix-gt-10-pro-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Infinix GT 10 Pro Without PUK Codes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-jocular-video-hacker-review/"><u>In 2024, Jocular Video Hacker Review</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/inversion-workshop-for-2024/"><u>Inversion Workshop for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/logitechs-4k-pro-webcam-a-complete-exploration-for-2024/"><u>Logitech's 4K Pro Webcam A Complete Exploration for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/personalized-cost-free-epilogue-soundscape-creation-for-2024/"><u>Personalized, Cost-Free Epilogue Soundscape Creation for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ace-the-art-of-altering-and-amplifying-vhs-photos-on-computers/"><u>[New] 2024 Approved Ace the Art of Altering and Amplifying VHS Photos on Computers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-effortless-online-subtitles-the-leading-free-services/"><u>[New] In 2024, Effortless Online Subtitles The Leading Free Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-oceans-secrets-revealed-the-finest-aquatic-videography-gear/"><u>[Updated] 2024 Approved Ocean's Secrets Revealed The Finest Aquatic Videography Gear</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-farm-management-mastery-for-stardews-ginger-isles/"><u>[Updated] Farm Management Mastery for Stardew's Ginger Isles</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-efficiently-merging-webcam-with-monitor-data/"><u>[Updated] In 2024, Efficiently Merging Webcam with Monitor Data</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-setting-up-windows-11-for-automatic-hdr-activation/"><u>[Updated] Setting Up Windows 11 for Automatic HDR Activation</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-on-iphone-15-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons On iPhone 15? Find the Best Solution Here</u></a></li>
+<li><a href="https://win11.techidaily.com/hidden-signals-secure-connections-windows-wi-fi-tips/"><u>Hidden Signals, Secure Connections: Windows Wi-Fi Tips</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-xiaomi-redmi-note-12-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Xiaomi Redmi Note 12 Pro 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-vivo-s17-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Vivo S17 Location | Dr.fone</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/kostenlose-konvertierter-mov-film-online-mit-ai-moveavi/"><u>Kostenlose Konvertierter MOV-Film Online Mit AI - MoveAVI</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/seamless-integration-of-dvd-playback-on-your-system-for-2024/"><u>Seamless Integration of DVD Playback on Your System for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-pip-blueprint-crafting-compelling-video-presentations-on-macos-for-2024/"><u>The PIP Blueprint Crafting Compelling Video Presentations on macOS for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlock-the-secrets-of-your-system-quick-guide-for-model-names/"><u>Unlock the Secrets of Your System: Quick Guide for Model Names</u></a></li>
 </ul></div>
 

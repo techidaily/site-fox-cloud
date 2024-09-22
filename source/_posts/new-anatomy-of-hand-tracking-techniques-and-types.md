@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Anatomy Of Hand Tracking  Techniques and Types\""
-date: 2024-07-12T15:27:58.246Z
-updated: 2024-07-13T15:27:58.246Z
+date: 2024-09-14T18:54:12.388Z
+updated: 2024-09-22T01:08:56.000Z
 tags: 
   - screen-recording
   - ai video
@@ -96,6 +96,13 @@ There are two stages for creating a Hand Tracking program using MediaPipe:
 
 ![20 hand landmarks for identifiction – hand tracking](https://images.wondershare.com/filmora/article-images/2022/07/20-hand-landmarks-for-identifiction-hand-tracking.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Guidance With Steps
 
 Before starting to create Hand Tracking, you need to install the [Pycharm IDE](https://www.jetbrains.com/pycharm/download/#section=windows) app on your PC. Once installed, launch it and follow these instructions step-by-step:
@@ -109,6 +116,13 @@ Click the **“New Project”** option and select **“Create”** on the next W
 Copy and paste the following command in the **Terminal** to install **OpenCV:**
 
 ![copy and paste command to install opencv](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now, to install **MediaPipe**, copy and paste the following command:
 
@@ -178,6 +192,13 @@ Learn more about Filmora:
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 In this article, we’ve explored Hand Tracking and its two types, i.e., tracking with interface and tracking without interface. Moreover, we provided step-by-step guidance on using Python, OpenCV, and MediaPipe to create a Hand Tracking module.
@@ -200,6 +221,13 @@ The Oculus Quest 2 is a virtual reality headset that immerses you in virtual wor
 With Hand Tracking, you can interact with the virtual world more naturally and intuitively. You can use your hands to pick up objects, draw, and even type on a virtual keyboard. Moreover, it opens up new possibilities for gameplay, allowing you to play games in new and innovative ways.
 
 ![hand tracking technology](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-technology.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. Types Of Hand Tracking
 
@@ -277,6 +305,13 @@ A _main.py_ file for writing code will be automatically created in _Pycharm_ app
 First, import the OpenCV and MediaPipe to use their dependencies. Once done, create an object _cap_ for video capturing and three other objects; _mpHands, hands,_ and _mpDraw_ to manipulate your input using MediaPipe.
 
 ![importing the libraries](https://images.wondershare.com/filmora/article-images/2022/07/hand-tracking-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step2 Capturing And Processing An Image Input
 
@@ -360,6 +395,16 @@ We hope this guide helped resolve your queries, and you can now create a Hand Tr
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unveiling-the-power-of-slug-lines/"><u>[New] 2024 Approved Unveiling the Power of Slug Lines</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-exclusive-tips-to-elevate-your-canva-projects-by-10x/"><u>[New] In 2024, Exclusive Tips to Elevate Your Canva Projects by 10X</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ideal-platforms-for-procuring-youtube-ringtone-files/"><u>[Updated] Ideal Platforms for Procuring YouTube Ringtone Files</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-boost-your-view-count-this-tutorials-top-hit/"><u>2024 Approved Boost Your View Count This Tutorial's Top Hit</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-apple-iphone-8-plus-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>Does Apple iPhone 8 Plus Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-nokia-c300-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Nokia C300 Face Lock?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/memetic-magic-unlock-with-kapwing-creator/"><u>Memetic Magic – Unlock with Kapwing Creator</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/revolutionize-note-taking-with-mematic-app-for-2024/"><u>Revolutionize Note-Taking with Mematic App for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/troubleshooting-guide-for-common-minecraft-world-connection-errors/"><u>Troubleshooting Guide for Common Minecraft World Connection Errors</u></a></li>
+</ul></div>
 

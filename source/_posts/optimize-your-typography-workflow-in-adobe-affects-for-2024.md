@@ -1,7 +1,7 @@
 ---
 title: "Optimize Your Typography Workflow in Adobe Affects for 2024"
-date: 2024-09-15T00:54:23.424Z
-updated: 2024-09-17T00:26:52.968Z
+date: 2024-09-16T16:49:39.513Z
+updated: 2024-09-21T19:53:24.155Z
 tags: 
   - screen-recording
   - ai video
@@ -49,13 +49,6 @@ If you want to effectively use the After Effects expressions even if you are not
 
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## TextBox
 
 Link: <https://aescripts.com/textbox/>
@@ -63,13 +56,6 @@ Link: <https://aescripts.com/textbox/>
 If you want to create the perfect shape behind your text, then TextBox is a good text plugin to consider. This is a native After Effects plugin, meaning that you will not need to install it and the shapes it creates can be very easily customized. It updates the shapes you create automatically and adds them to the text layer, making it the most ideal solution to create closed captions, lower thirds, and subtitles.
 
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Font Manager
 
@@ -79,6 +65,13 @@ Font Manager is an After Effects text plugin that is useful when creating and wo
 
 ![font manager plugin](https://images.wondershare.com/filmora/article-images/2022/07/font-manager-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Cartoon Moblur
 
 Link: <https://www.toolfarm.com/buy/plugin%5Feverything%5Fcartoon%5Fmoblur>
@@ -87,24 +80,18 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Texts Animation Bundle
 
@@ -113,13 +100,6 @@ Link: <https://aedownload.com/download-texts-animation-bundle-free-videohive/>
 This is a bundle of more than 80 different templates to add text effects to any text in After Effects. All the templates in the bundle are easily customizable and the plugin is very easy to use, allowing you to create amazing text effects in just a few clicks. The templates are modeled from various titles, quotes, and stories, so there is a little bit of something for everyone. Plus, the bundle gets constant updates and you are likely to get new templates with each update.
 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Artificial Intelligence Titles
 
@@ -130,16 +110,17 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Text Library
@@ -149,6 +130,13 @@ Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
 This is another great text animation bundle with different options for just about any kind of project. But unlike other plugin bundles that only have a few effects to choose from, Text Library has thousands of templates to choose from. Once you have selected the template that you would like to use, you also get the option to customize the template to suit your project. You can customize the text, size, duration of the animation, and color. It is easy to use and is constantly updated to introduce even more templates with each update.
 
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -184,21 +172,18 @@ On its own After Effects comes with so many post-production effects and features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-an-ultimate-guide-about-video-resolution-for-beginners/"><u>[New] 2024 Approved An Ultimate Guide About Video Resolution for Beginners</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-boost-communication-capabilities-from-skype-to-zoom/"><u>[New] In 2024, Boost Communication Capabilities From Skype to Zoom</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-streaming-software-showdown-the-verdict-between-obs-and-bandicam/"><u>[New] In 2024, Streaming Software Showdown The Verdict Between OBS and Bandicam</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-strike-a-chord-with-instagram-reels-using-tiktoks-hit-hacks-for-2024/"><u>[New] Strike a Chord with Instagram Reels Using TikTok's Hit Hacks for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-hackers-guide-to-scoring-cool-images-at-pexels/"><u>[Updated] 2024 Approved A Hacker's Guide to Scoring Cool Images at Pexels</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-action-sequence-showdown-new-era-gopro-hero5-black-vs-old-guard-hero4-silver/"><u>[Updated] Action Sequence Showdown New Era GoPro Hero5 Black Vs Old Guard Hero4 Silver</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-iphone-x-a-complete-animoji-guide-for-proficient-users/"><u>[Updated] In 2024, IPhone X A Complete Animoji Guide for Proficient Users</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-gopros-new-era-a-detailed-max-360-vs-hero-11-analysis/"><u>2024 Approved GoPro's New Era A Detailed Max 360 vs Hero 11 Analysis</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-premier-fast-photo-viewing-software/"><u>2024 Approved Premier Fast Photo Viewing Software</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/immediate-fixes-for-lost-renderer-issue-in-ow2-on-windows/"><u>Immediate Fixes for Lost Renderer Issue in OW2 on Windows</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-sharpen-the-rest-partially-blurred-photo-tactics/"><u>In 2024, Sharpen the Rest Partially Blurred Photo Tactics</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-superior-online-emporiums-where-boxes-reflect-your-style/"><u>In 2024, Superior Online Emporiums Where Boxes Reflect Your Style</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-top-10-christian-church-streaming-platforms-essential-discoveries/"><u>In 2024, Top 10 Christian Church Streaming Platforms Essential Discoveries</u></a></li>
-<li><a href="https://driver-install.techidaily.com/overcoming-vistas-wan-connectivity-dilemmas-done/"><u>Overcoming Vista's WAN Connectivity Dilemmas - Done</u></a></li>
-<li><a href="https://extra-information.techidaily.com/proven-picks-the-top-5-online-title-makers-you-need-to-know/"><u>Proven Picks The Top 5 Online Title Makers You Need to Know</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/virtual-realitys-creativity-quandary-a-2023-outlook-for-2024/"><u>Virtual Reality's Creativity Quandary - A 2023 Outlook for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-learn-how-to-directly-control-your-iphones-orientation/"><u>[New] 2024 Approved Learn How to Directly Control Your iPhone's Orientation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-expert-finder-high-speed-pics-on-win-11/"><u>[New] In 2024, Expert Finder High-Speed Pics on Win 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-troubleshooting-frozen-footage-in-photo-booths-for-2024/"><u>[New] Troubleshooting Frozen Footage in Photo Booths for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-8-best-free-mp3-downloader-for-android/"><u>[Updated] 2024 Approved 8 Best Free MP3 Downloader for Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-synchronizing-realism-advanced-green-screen-applications-for-viewers-for-2024/"><u>[Updated] Synchronizing Realism Advanced Green Screen Applications for Viewers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-toggle-picture-in-picture-youtube-viewing-tips-for-ios-users/"><u>[Updated] Toggle Picture In Picture YouTube Viewing Tips for iOS Users</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-art-of-silence-strategies-for-achieving-pristine-unobstructed-recordings/"><u>2024 Approved Art of Silence Strategies for Achieving Pristine, Unobstructed Recordings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-exploring-originality-how-to-uncover-roots-of-instagram-visuals/"><u>2024 Approved Exploring Originality How to Uncover Roots of Instagram Visuals</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-oneplus-12r-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your OnePlus 12R? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-palm-2-elevates-googles-bard-ai-7-key-improvements-unveiled/"><u>How PaLM 2 Elevates Google's Bard AI: 7 Key Improvements Unveiled</u></a></li>
+<li><a href="https://win-top.techidaily.com/media-exposure/"><u>Media Exposure</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/simple-ai-explanation-guide/"><u>Simple AI Explanation Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/step-by-step-strategies-for-impressive-slow-motion-with-gopro-hero-10-for-2024/"><u>Step-by-Step Strategies for Impressive Slow Motion with GoPro Hero 10 for 2024</u></a></li>
 </ul></div>
 

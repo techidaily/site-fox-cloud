@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Transforming Audio to Text on Slides for PPT\""
-date: 2024-07-12T15:27:17.949Z
-updated: 2024-07-13T15:27:17.949Z
+date: 2024-09-15T22:07:26.641Z
+updated: 2024-09-21T22:41:15.651Z
 tags: 
   - screen-recording
   - ai video
@@ -75,9 +75,23 @@ It is easy to use PowerPoint on a Mac after activating the **“dictation”** b
 
 ![locate the speak option](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Use the speak option**
 
 Now you can click on the microphone button and speak to add text.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Speak clearly, but conversationally**
 
@@ -133,11 +147,38 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs
 
@@ -182,6 +223,20 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-maximizing-visual-impact-integrating-free-high-quality-luts-into-obs/"><u>[New] Maximizing Visual Impact Integrating Free, High-Quality LUTs Into OBS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-step-by-step-guide-to-creating-compelling-multi-picture-insta-stories/"><u>[New] Step by Step Guide to Creating Compelling, Multi-Picture Insta Stories</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-prime-screen-capture-tools-no-lag-just-clarity/"><u>[Updated] 2024 Approved Prime Screen Capture Tools - No Lag, Just Clarity</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-reflect-and-record-capture-your-window-world/"><u>[Updated] 2024 Approved Reflect & Record Capture Your Window World</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-a-closer-look-at-twitters-most-shared-videos-of-2023/"><u>[Updated] A Closer Look at Twitter's Most Shared Videos of 2023</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-framefusion-pro-8-crafting-digital-masterpieces/"><u>[Updated] FrameFusion Pro 8 Crafting Digital Masterpieces</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-proven-techniques-for-obs-broadcasting-on-fb-for-2024/"><u>[Updated] Proven Techniques for OBS Broadcasting on FB for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elite-video-capturing-technology-for-podcasts-for-2024/"><u>Elite Video Capturing Technology for Podcasts for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-startup-problems-troubleshooting-valheims-failure/"><u>Overcoming Startup Problems: Troubleshooting Valheim's Failure</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/pro-tips-uncovering-12-prime-websites-for-affordable-images/"><u>Pro Tips Uncovering 12 Prime Websites for Affordable Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ringtone-recording-device-iphone-2024-version/"><u>Ringtone Recording Device - iPhone 2024 Version</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-lenovo-thinkphone-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Lenovo ThinkPhone for Streaming | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-expertly-curated-ultimate-2024-guide-to-professional-photo-editing-displays/"><u>Top Picks: Expertly Curated Ultimate 2024 Guide to Professional Photo Editing Displays</u></a></li>
+</ul></div>
 

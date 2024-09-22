@@ -1,7 +1,7 @@
 ---
 title: "[New] Stretching YouTube Videos to Full Display"
-date: 2024-09-15T01:51:06.505Z
-updated: 2024-09-16T22:46:47.361Z
+date: 2024-09-17T16:26:08.319Z
+updated: 2024-09-21T20:22:08.109Z
 tags: 
   - screen-recording
   - ai video
@@ -97,29 +97,29 @@ Step2Drag and drop the target YouTube video on Filmora into Project Media folder
 
 ![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
 
 ![drag video file into timeline](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on that portion of the video which you want to zoom in. Mark the start and end of the video for pan and zoom effect. Play the video to watch how the effect unfolds. Finally, click on OK button.
 
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Way 3\. Use YouTube Built-in Editor
 
@@ -138,10 +138,10 @@ Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -172,20 +172,18 @@ There are several ways you can zoom into YouTube videos to check out the desired
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-immersive-illusions-how-vr-transforms-media-consumption/"><u>[New] 2024 Approved Immersive Illusions How VR Transforms Media Consumption</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-cutting-edge-20-public-domain-pubg-slideshows/"><u>[New] Cutting-Edge 20 Public Domain PUBG Slideshows</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-discover-the-triple-champion-phones-for-high-res-video/"><u>[New] Discover the Triple Champion Phones for High-Res Video</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-dissecting-magix-photo-pro-for-2024/"><u>[New] Dissecting MAGIX Photo Pro for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-aerial-shots-quality-test-mi-drone-4k-edition/"><u>[Updated] Aerial Shots Quality Test - Mi Drone 4K Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-visual-excellence-evaluation-selecting-between-ultrawide-and-uhd-4k-for-2024/"><u>[Updated] Visual Excellence Evaluation Selecting Between UltraWide & UHD 4K for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-tactics-for-success-amidst-facebooks-algorithm-evolution/"><u>2024 Approved Tactics for Success Amidst Facebook’s Algorithm Evolution</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-the-10-speedy-rising-yt-spaces-for-cognitive-illumination/"><u>2024 Approved The 10 Speedy Rising YT Spaces For Cognitive Illumination</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-v30-lite-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Vivo V30 Lite 5G</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/advanced-guide-to-excellence-full-screen-preview-in-premiere-for-2024/"><u>Advanced Guide to Excellence Full Screen Preview in Premiere for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/expert-hacks-for-starting-your-windows-in-troubleshooting-safe-mode/"><u>Expert Hacks for Starting Your Windows in Troubleshooting Safe Mode</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-itel-p55plus-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Itel P55+ Devices</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-prime-skating-moments-from-the-world-cup-22/"><u>In 2024, Prime Skating Moments From the World Cup '22</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-titans-clash-discovering-the-ultimate-7-grand-wars/"><u>In 2024, Titans Clash Discovering the Ultimate 7 Grand Wars</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-ultimate-freefire-tag-collection-enhance-your-youtube-channels/"><u>In 2024, Ultimate FreeFire Tag Collection Enhance Your YouTube Channels</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-master-money-making-on-reddit-in-just-a-few-simple-steps/"><u>[New] 2024 Approved Master Money-Making on Reddit in Just a Few Simple Steps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-vr-and-the-future-of-teaching-strategies/"><u>[New] VR and the Future of Teaching Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-zerobackground-pro-precision-erasing-for-photos-for-2024/"><u>[New] ZeroBackground Pro Precision Erasing for Photos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-from-muffled-to-clear-the-initial-use-of-fade-in-audition/"><u>[Updated] 2024 Approved From Muffled to Clear The Initial Use of Fade in Audition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-edu-stream-100-cutting-edge-learning-yt-for-2024/"><u>[Updated] Edu-Stream 100 Cutting-Edge Learning YT for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-perfected-audio-for-windows-for-2024/"><u>[Updated] Perfected Audio for Windows for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-techniques-to-ensure-uninterrupted-video-capturing/"><u>[Updated] Techniques to Ensure Uninterrupted Video Capturing</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-persistent-cramch-in-path-of-exile-a-step-by-step-solution/"><u>Fixing Persistent Cramch in Path of Exile: A Step-by-Step Solution</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-decoding-the-art-of-backdrop-cleansing-in-figma-design/"><u>In 2024, Decoding the Art of Backdrop Cleansing in Figma Design</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-vivo-x90s-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Vivo X90S? Try These Fixes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/masterful-methods-to-add-a-secure-link-to-your-tiktok-profile-for-2024/"><u>Masterful Methods to Add a Secure Link to Your TikTok Profile for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pushing-boundaries-with-intova-x-action-tech-for-2024/"><u>Pushing Boundaries with Intova X Action Tech for 2024</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-itel-a60s-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Itel A60s</u></a></li>
 </ul></div>
 

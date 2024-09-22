@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Chill Championships  Highlighting Cold Climates Sports for 2024\""
-date: 2024-07-12T15:29:10.179Z
-updated: 2024-07-13T15:29:10.179Z
+date: 2024-09-19T20:17:05.249Z
+updated: 2024-09-21T22:58:13.957Z
 tags: 
   - screen-recording
   - ai video
@@ -48,11 +48,25 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
@@ -69,6 +83,13 @@ Following the victory, he stated that he was sure to win the gold with eight lap
 Yan Wengang becomes the first medalist from China in a sliding sport. In a four-run total time of 4:01.77, he secured himself a bronze medal. The gold and silver went to Christopher Grotheer and Alex Jung of Germany. With the victory of Wengwang, there was a good feat for China as the nation sent its first skeleton athlete to the Olympics only 4 years ago.
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
@@ -94,6 +115,13 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
@@ -101,6 +129,13 @@ Zhou is considering the silver win as a consolation prize but he could not showc
 Doping scandals have become a part of the Olympics and this year is no different. According to International Testing Agency, Russian skater Kamila Valieva failed the doping test. On further examination, she tested positive for a performance-enhancing banned substance. She was told that she could not train, compete and participate during the Olympic Winter Games.
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
@@ -121,6 +156,22 @@ However, due to some miscommunication, she was allowed to be a participant in th
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-easy-to-follow-guide-to-mobile-recording-snapchat-edition/"><u>[New] 2024 Approved Easy-to-Follow Guide to Mobile Recording Snapchat Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-master-your-headlines-with-our-guide/"><u>[New] 2024 Approved Master Your Headlines with Our Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-youtube-versus-dailymention-identifying-key-gaps/"><u>[New] 2024 Approved YouTube Versus DailyMention Identifying Key Gaps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-perfect-frame-rate-selection-a-guide-to-best-slow-motion-filmmaking-techniques/"><u>[New] In 2024, Perfect Frame Rate Selection A Guide to Best Slow Motion Filmmaking Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-straightforward-steps-upside-down-video-with-vlc-software/"><u>[New] Straightforward Steps Upside-Down Video with VLC Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-snapchat-enhancing-images-and-videos-for-2024/"><u>[Updated] Mastering Snapchat Enhancing Images & Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-seamless-collaboration-the-top-5-video-call-recorder-choices/"><u>[Updated] Seamless Collaboration The Top 5 Video Call Recorder Choices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-step-by-step-approach-to-podcast-naming-and-50plus-dynamic-name-options-for-2024/"><u>[Updated] Step-by-Step Approach to Podcast Naming & 50+ Dynamic Name Options for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/diy-meme-magic-perfecting-the-art-of-gifs-for-2024/"><u>DIY Meme Magic Perfecting the Art of GIFs for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-infinix-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Infinix online without jailbreak</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-revolutionizing-patient-engagement-with-creative-fb-strategies/"><u>In 2024, Revolutionizing Patient Engagement with Creative FB Strategies</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/one-click-wonder-livestream-your-podcast/"><u>One Click Wonder Livestream Your Podcast</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-0xc00n000007b-detailed-solutions-to-start-applications-without-errors/"><u>Overcoming 0xC00n000007b: Detailed Solutions to Start Applications Without Errors</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-complete-handbook-to-securing-product-sponsorships-on-youtube-for-2024/"><u>The Complete Handbook to Securing Product Sponsorships on Youtube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-ultimate-gopro-feature-list-matchup/"><u>The Ultimate Gopro Feature List Matchup</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Typographic Tactics for Advanced AE Users"
-date: 2024-07-12T15:30:22.323Z
-updated: 2024-07-13T15:30:22.323Z
+date: 2024-09-15T17:01:18.239Z
+updated: 2024-09-22T01:43:27.049Z
 tags: 
   - screen-recording
   - ai video
@@ -73,6 +73,13 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -83,6 +90,13 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -97,6 +111,13 @@ These features also include adding texts and changing the fonts of those texts o
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -131,6 +152,22 @@ The article discussed the detailed process of **how to add font to Adobe After E
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-video-aspect-ratios-in-youtube-platform/"><u>[New] 2024 Approved Navigating Video Aspect Ratios in YouTube Platform</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-deciphering-the-rights-based-language-of-instagrams-music-features-for-2024/"><u>[New] Deciphering the Rights-Based Language of Instagram's Music Features for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlightenment-in-education-top-10-history-youtube-channels-for-2024/"><u>[New] Enlightenment in Education Top 10 History YouTube Channels for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-quip-kernel-memomaker-suite-for-2024/"><u>[New] Quip Kernel MemoMaker Suite for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-essence-of-the-apple-m1-a-technological-marvel/"><u>[Updated] 2024 Approved The Essence of the Apple M1 A Technological Marvel</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-roadmap-to-crafting-popular-vlogging-narratives-for-2024/"><u>[Updated] A Roadmap to Crafting Popular Vlogging Narratives for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-multitasking-firefox-picture-in-picture-explained-for-2024/"><u>[Updated] Mastering Multitasking Firefox Picture-in-Picture Explained for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-stepwise-journey-to-excellence-in-voice-memos-for-2024/"><u>[Updated] Stepwise Journey to Excellence in Voice Memos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-windows-11-photo-customization-audio-plus-visuals-for-2024/"><u>[Updated] The Ultimate Guide to Windows 11 Photo Customization Audio + Visuals for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-improve-your-work-efficiency-leveraging-snap-photography-techniques/"><u>2024 Approved Improve Your Work Efficiency Leveraging Snap Photography Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/elevate-edits-with-pixlr-ultimate-tips-list-for-2024/"><u>Elevate Edits with Pixlr Ultimate Tips List for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-and-secure-hp-color-laserjet-mfp-m477-driver-downloads-for-your-device/"><u>Latest & Secure HP Color LaserJet MFP M477 Driver Downloads for Your Device</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/oculus-graphics-issue-resolved-what-you-need-to-know/"><u>Oculus Graphics Issue Resolved - What You Need to Know</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/streamline-your-connectivity-opt-for-the-portable-ourlink-u631-wi-fi-usb-stick/"><u>Streamline Your Connectivity - Opt for the Portable Ourlink U631 Wi-Fi USB Stick</u></a></li>
+</ul></div>
 

@@ -1,0 +1,131 @@
+---
+title: "[New] Integrate Sound & Filter Magic Into Your Windows 10 Photos App for 2024"
+date: 2024-09-15T16:00:31.440Z
+updated: 2024-09-21T23:36:24.081Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes [New] Integrate Sound & Filter Magic Into Your Windows 10 Photos App for 2024"
+excerpt: "This Article Describes [New] Integrate Sound & Filter Magic Into Your Windows 10 Photos App for 2024"
+keywords: "PhotoSoundFilteringWindows10,WindowsPhotosMagicEnhance,10PhotosAppIntegration,FilterMagicWindows10Photos,SoundAndFiltersInWindows10,EnhancePhotosWithMagic,Windows10PhotoSoundFiltering"
+thumbnail: https://thmb.techidaily.com/6d060e78cf4821c16957dc0af5764350800050d4c706e3284222e7ce2389a41f.jpg
+---
+
+## Integrate Sound & Filter Magic Into Your Windows 10 Photos App
+
+# How to Add Filters and Music on Windows 10 Photos App
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Having Windows 10 Photos app is an advantage for you. This is not like any other photo viewing app, but a mighty photo editor as well. If you are thinking that can you **add filters using Windows 10 Photos app**, then we are glad to affirm that, the Photos app does it without much complication. There are inbuilt filters that can come in handy, while you try to add them to any photo. So, without any further ado, let’s learn how you can accomplish this.
+
+* [**Part1: How to add filters on Windows 10 Photos App**](#part1)
+* [**Part2: How to add music on Windows 10 Photos App**](#part2)
+
+**You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Part 1: How to add filters on Windows 10 Photos App
+
+If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
+
+**Step 1**: From your folder using ‘File Explorer’, open the desired photo to be edited. Double clicking the picture opens it. Otherwise, you can browse ‘Start’ menu > ‘Photos’ > locate the photo.
+
+**Note**: Photos doesn’t systematically arrange images, so finding it through the ‘File Explorer’ is convenient.
+
+**Step 2**: Choose the video you want to add filters. Click **New video** at top > Custom video with music.
+
+![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
+
+**Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
+
+**Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
+
+![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
+
+**Step 5**: Just select one you like. Preview it and then click Done.
+
+## Part 2: How to add music on Windows 10 Photos App
+
+Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
+
+**Step 1**: Open Photos app and then tap on the blue color ‘New video’ icon showing on the top. A drop down menu will open after that.
+
+**Step 2**: Choose ‘Custom video with music’ and then select the checkbox from the top-right corner of the video.
+
+**Step 3**: Now, hit the ‘Create’ button from the top-right followed by dragging the video to Photos timeline. Later, hit on ‘Auio’ at top right.
+
+![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
+
+**Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
+
+![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
+
+**Step 5**: Hit the ‘Done’ button.
+
+## Conclusion
+
+From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-conquer-color-chaos-discover-essential-tutorials-and-techniques/"><u>[New] In 2024, Conquer Color Chaos - Discover Essential Tutorials and Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-simplest-way-win-clownfish-vocal-alteration-tool/"><u>[New] Simplest Way Win Clownfish Vocal Alteration Tool</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-pinnacle-of-iphone-photography-finding-ultimate-angles/"><u>[New] The Pinnacle of iPhone Photography Finding Ultimate Angles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-prosperity-startups-the-13-least-experience-demanding-reddit-techniques/"><u>[Updated] Prosperity Startups The 13 Least Experience-Demanding Reddit Techniques</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/does-edge-linger-handling-windows-11-background-tasks/"><u>Does Edge Linger? Handling Windows 11 Background Tasks</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-7-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone 7?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-gmail-password-on-motorola-edge-40-devices-by-drfone-android/"><u>How to Reset Gmail Password on Motorola Edge 40 Devices</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-quick-guide-activatingdeactivating-picture-in-picture-pip-for-youtube/"><u>In 2024, Quick Guide Activating/Deactivating Picture In Picture (PIP) for YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-thriving-in-stardew-insiders-guide-to-ginger-island/"><u>In 2024, Thriving in Stardew Insider's Guide to Ginger Island</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-the-latest-privacy-tools-in-facebooks-comprehensively-redesigned-hub/"><u>Leverage the Latest Privacy Tools in Facebook’s Comprehensively Redesigned Hub</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-6-best-8k-cameras-for-2024/"><u>Top 6 Best 8K Cameras for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tutorial-export-instagram-reels-for-facebook-sharing/"><u>Tutorial: Export Instagram Reels for Facebook Sharing</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

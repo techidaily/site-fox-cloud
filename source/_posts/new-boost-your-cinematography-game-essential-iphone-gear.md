@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Boost Your Cinematography Game  Essential iPhone Gear\""
-date: 2024-07-12T15:29:48.119Z
-updated: 2024-07-13T15:29:48.119Z
+date: 2024-09-20T16:14:41.293Z
+updated: 2024-09-21T22:33:25.924Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,13 @@ Nothing influences the quality of your pictures more than the optics you use to 
 
 ![iphone-lense](https://images.wondershare.com/filmora/article-images/iphone-lense.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## External Light Source
 
 To photograph or to film something simply means to capture the light at the certain place in a certain moment. Due to the lack of light that is not always possible and an additional source of light is often necessary to ensure that camera receives enough light. Using a camera flash can be a quick solution for this problem, but the light the flash produces can be too hard and it always comes from the same direction. [Photojojo's pocket spotlight](https://photojojo.com/awesomeness/pocket-spotlight) is an external light source that allows you to get creative with light in your videos or photos. You can adjust the brightness settings and choose between full strength, half strength, and strobe modes. Photojojo's pocket spotlight is one of many external light sources that can be used with iPhones and other Apple's devices and it will enable you to unleash your creativity.
@@ -62,11 +69,25 @@ Recording or taking photos for long periods of time can be demanding on your iPh
 
 ![battery-iphone](https://images.wondershare.com/filmora/article-images/battery-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microphone
 
 The era of silent movies is long gone and today the quality of the video's sound is as important as the image quality. iPhone's built-in microphones are far from perfect and if for any reason the sound quality in your video is important to you, you should use an external shotgun microphone like [VideoMic Me](http://www.rode.com/microphones/videomicme). This microphone for iPhones is produced by Røde Microphones one the industry's leading companies which speak volumes about the quality of this small and practical microphone. VideoMic Me connects to an iPhone through the TRRS headphone/microphone socket and it can be used with both front and back cameras. This directional mic is designed to shoot outdoors and it's equipped with a deluxe furry windshield, that enables you to capture perfect audio even when it is windy outside.
 
 ![mic-iphone](https://images.wondershare.com/filmora/article-images/mic-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Stabilization Gadgets
 
@@ -86,6 +107,13 @@ There is no doubt that iPhone's cameras are capable of stunning performances, bu
 
 ![filmic-pro-iphone](https://images.wondershare.com/filmora/article-images/filmic-pro-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Selfie Stick
 
 Taking a selfie isn't always easy, especially if you want to capture some of the ambiance and the atmosphere that surrounds you. Holding an iPhone in your hand while taking a selfie isn't always the best choice. Selfie-sticks like [MPow Selfie Stick](https://www.amazon.com/Mpow-Extendable-Monopod-Bluetooth-Compatible/dp/B07JQFSVX2) offer a handy solution in these situations. MPow is incredibly light and easy to use. It is 7.1-inches long when collapsed and it can be expanded to 31.5 inches. The head of the stick can be rotated and angled up to 270 degrees so your iPhone 7 can be set in any way you want. The stick has a long-life battery which is great news for users who want to use the MPow Selfie Stick during the long sightseeing walks.
@@ -99,6 +127,13 @@ In the summertime, many people like to document their underwater adventures. But
 ![underwater-iphone](https://images.wondershare.com/filmora/article-images/underwater-iphone.jpg)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -123,6 +158,19 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-creative-edge-essential-afx-templates-without-investment/"><u>[New] Creative Edge Essential AFX Templates Without Investment</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-demystifying-video-recordingediting-a-comprehensive-guide-on-adobe-connect/"><u>[New] In 2024, Demystifying Video Recording/Editing A Comprehensive Guide on Adobe Connect</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-apple-macbook-air-vs-macbook-pro-which-m1-laptop-is-better/"><u>[Updated] 2024 Approved Apple MacBook Air Vs. MacBook Pro Which M1 Laptop Is Better?</u></a></li>
+<li><a href="https://win-forum.techidaily.com/2-advanced-video-editing-techniques-expert-tips-for-trimming-footage-with-quicktime-and-movavi-tools/"><u>2. Advanced Video Editing Techniques: Expert Tips for Trimming Footage with QuickTime and Movavi Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-top-picks-hilarity-driven-ringtones-for-laughter-lovers/"><u>2024 Approved Top Picks Hilarity-Driven Ringtones for Laughter Lovers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-solutions-for-the-d3dx925dll-missing-problem/"><u>Effective Solutions for the 'd3dx9_25.dll Missing' Problem</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Oppo A18? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/magicard-rio-pro-driver-latest-download-for-windows-10-81-and-7/"><u>Magicard Rio Pro Driver | Latest Download | For Windows 10, 8.1 and 7</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-printer-sharing-challenges-in-windows/"><u>Navigating Printer Sharing Challenges in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-twists-and-turns-getting-a-buyback-on-facebook/"><u>Navigating the Twists and Turns: Getting a Buyback on Facebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ultimate-precision-machines-best-of-the-series/"><u>Ultimate Precision Machines - Best of the Series</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Video Content Conversion  XML, SSA & TTML to SRT Guide\""
-date: 2024-09-15T16:41:16.727Z
-updated: 2024-09-16T16:27:06.237Z
+date: 2024-09-14T22:37:28.191Z
+updated: 2024-09-21T18:18:04.208Z
 tags: 
   - screen-recording
   - ai video
@@ -117,13 +117,6 @@ Step2 Now select the “.srt” as the output format from the top left corner of
 
 ![upload your subtitle file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 After that; you just have to click the “Download” button on the bottom left corner of the screen to convert your subtitle format.
 
 ![click the download](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-9.jpg)
@@ -232,24 +225,18 @@ Many users ask questions like “How do I open the SRT file with a video player 
 
 If that is your case then here's a bonus tip for you.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus Tips: The Best Way to Edit the Styling of SRT Subtitles for Videos
 
 Adding the SRT subtitle file to the video is not a problem if you are using the right tool.
 
 But what may be the best software for it? Of course, it's [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Wondershare Filmora
 
@@ -329,13 +316,6 @@ If you still have questions in your mind, leave them in the comment section belo
 
 * [Wondershare Filmora](#part8-1)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What does SRT, SSA, XML, etc., look like?
 
 ### 1\. SRT
@@ -362,18 +342,18 @@ This is an XML-based format that has a somewhat complicated look with <> appeari
 
 ![convert ttml to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. STL
 
 This format of subtitles lacks a timing section like in SRT.
 
 ![stl subtitle file appearance](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. VOB
 
@@ -472,6 +452,13 @@ Step4 Now you have to wait patiently until the process completes and then you ca
 
 ![click on the new project](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-21.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The last subtitle format we’ll be converting into SRT is the VOB format. Let’s see how to do it.
 
 ## How to Convert VOB to SRT
@@ -505,19 +492,6 @@ Step5 After that, hit the “Export” button and a dropdown will appear.
 Step6 Now select the “SubRip Subtitle file(.srt)” from there and click “Export.”
 
 ![upload vob file](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-15.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Finally, the SRT version of your VOB file will be saved.
 
@@ -567,6 +541,13 @@ Step3 After that, click on the "Import Media" or drag and drop the video as well
 
 ![convert stl to srt](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 nce done, first drag the video file to the video tract below and then the SRT subtitle file.
 
 ![select the type](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-28.jpg)
@@ -605,6 +586,13 @@ Step7 Now, type the text you want to add as a subtitle, and change other setting
 
 ![hit the export button](https://images.wondershare.com/filmora/article-images/2022/09/convert-xml-to-srt-25.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step8 Finally, when you are done, just hit the "Export" button to burn the subtitles on your video.
 
 ## Final Words
@@ -637,17 +625,19 @@ If you still have questions in your mind, leave them in the comment section belo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-effective-ways-to-leverage-zoom-on-chrome-os-devices-for-2024/"><u>[New] Effective Ways to Leverage Zoom on Chrome OS Devices for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-age-old-artwork-free-from-modern-constraints/"><u>[New] In 2024, Age-Old Artwork Free From Modern Constraints</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-budget-videography-choosing-the-best-panoramic-cameras/"><u>[Updated] Budget Videography Choosing the Best Panoramic Cameras</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-softening-edges-strategic-lighting-for-content-creators/"><u>[Updated] Softening Edges Strategic Lighting for Content Creators</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-speeding-up-spotify-tracks-safe-techniques-and-strategies/"><u>[Updated] Speeding Up Spotify Tracks Safe Techniques and Strategies</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-enables-interactive-conversations-with-openais-voice-enabled-ai/"><u>ChatGPT Enables Interactive Conversations with OpenAI's Voice-Enabled AI</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/connecting-methods-for-bluetooth-samsung-buds-and-laptops-made-simple/"><u>Connecting Methods for Bluetooth Samsung Buds and Laptops Made Simple</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-moto-g14-by-fonelab-android-recover-music/"><u>How to recover old music from your Moto G14</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-gionee-f3-pro-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Gionee F3 Pro Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-tecno-pop-8-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Tecno Pop 8 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oneplus-12r-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from OnePlus 12R to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/professional-edge-in-instagram-videos-with-green-screen-tech-for-2024/"><u>Professional Edge in Instagram Videos with Green Screen Tech for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-a-fresh-take-on-samsungs-ultrablade-k850-review/"><u>[New] A Fresh Take on Samsung’s UltraBlade K850 Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-enhance-web-presentations-top-12-html5-video-platforms/"><u>[New] Enhance Web Presentations Top 12 HTML5 Video Platforms</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-clearing-up-false-facade-in-virtual-conversations-fb-for-2024/"><u>[Updated] Clearing Up False Facade in Virtual Conversations FB for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhancing-creativity-with-filmoras-best-tools-for-2024/"><u>[Updated] Enhancing Creativity with Filmora's Best Tools for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-immersive-storytelling-harnessing-top-10-text-innovations-in-videos/"><u>[Updated] Immersive Storytelling Harnessing Top 10 Text Innovations in Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-limited-time-dji-drone-visual-enhancements-no-pay-required-for-2024/"><u>[Updated] Limited-Time DJI Drone Visual Enhancements No Pay Required for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-no-cost-uhd-h265-hevc-media-player-apps-for-windows-11mac-users-insights-and-comparisons/"><u>Best No-Cost UHD H.265 HEVC Media Player Apps for Windows 11/Mac Users: Insights and Comparisons</u></a></li>
+<li><a href="https://common-error.techidaily.com/google-chrome-troubleshooting-dealing-with-critical-errors-and-scams/"><u>Google Chrome Troubleshooting: Dealing With Critical Errors and Scams</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-p55-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from P55.</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/no-money-no-problem-guide-to-flying-solo-in-google-meet/"><u>No Money? No Problem! Guide to Flying Solo in Google Meet</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-insider-guide-to-intensified-minecraft-views-for-2024/"><u>The Insider Guide to Intensified Minecraft Views for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-richest-resource-of-zero-price-ae-templates/"><u>The Richest Resource of Zero-Price AE Templates</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transform-your-professional-emails-with-chatgpt-techniques-for-handling-difficult-subjects-at-work/"><u>Transform Your Professional Emails with ChatGPT - Techniques for Handling Difficult Subjects at Work</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-from-lone-explorer-to-team-player-how-multiplayer-shaped-my-game-experience/"><u>Transforming From Lone Explorer to Team Player: How Multiplayer Shaped My Game Experience</u></a></li>
 </ul></div>
 

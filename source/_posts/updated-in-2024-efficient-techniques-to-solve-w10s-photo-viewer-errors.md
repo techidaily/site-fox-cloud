@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Efficient Techniques to Solve W10's Photo Viewer Errors"
-date: 2024-09-11T16:33:44.872Z
-updated: 2024-09-16T23:09:49.428Z
+date: 2024-09-19T21:03:02.698Z
+updated: 2024-09-21T21:50:44.808Z
 tags: 
   - screen-recording
   - ai video
@@ -74,13 +74,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -90,6 +83,13 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -113,13 +113,6 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -127,6 +120,13 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -153,12 +153,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-assemble-photos-for-a-captivating-storyboard-experience/"><u>[New] 2024 Approved Assemble Photos for a Captivating Storyboard Experience</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-followers-and-posts-10-instagram-essentials-to-watch/"><u>[New] 2024 Approved Followers & Posts 10 Instagram Essentials to Watch</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-no-screen-only-silence-a6400-dilemma-for-2024/"><u>[New] No Screen, Only Silence A6400 Dilemma for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-mastering-the-art-of-media-imports-within-windows-10s-realm-for-2024/"><u>[Updated] Mastering the Art of Media Imports Within Windows 10'S Realm for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-midnight-tales-in-motion-evaluating-parental-choices-for-kids/"><u>2024 Approved Midnight Tales in Motion Evaluating Parental Choices for Kids</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-vivo-x100-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Vivo X100 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-guide-to-single-platform-gaming-in-apex-legends-for-2024/"><u>The Ultimate Guide to Single-Platform Gaming in Apex Legends for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-accelerated-approach-eliminating-signatures-quickly/"><u>[New] 2024 Approved Accelerated Approach Eliminating Signatures Quickly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-picture-perfect-prose-exploring-apps-for-image-text-edits/"><u>[New] 2024 Approved Picture Perfect Prose Exploring Apps for Image Text Edits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-simplest-way-win-clownfish-vocal-alteration-tool/"><u>[New] Simplest Way Win Clownfish Vocal Alteration Tool</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-pinnacle-of-iphone-photography-finding-ultimate-angles/"><u>[New] The Pinnacle of iPhone Photography Finding Ultimate Angles</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-inside-the-directors-suite-powerdirector-2024-deep-dive/"><u>[Updated] Inside the Director's Suite PowerDirector 2024 Deep Dive</u></a></li>
+<li><a href="https://extra-information.techidaily.com/altered-captions-a-video-guide-for-2024/"><u>Altered Captions A Video Guide for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-word-2007-by-ldigisigner-sign-a-word-sign-a-word/"><u>Free electronic signature - For Word 2007</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-breakdown-of-the-top-9-free-branding-platforms-for-youtube-channels/"><u>In 2024, Breakdown of the Top 9 Free Branding Platforms for YouTube Channels</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-swift-windows-document-reviewing-techniques/"><u>In 2024, Swift Windows Document Reviewing Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/instant-inspiration-free-video-intro-kits-for-2024/"><u>Instant Inspiration - Free Video Intro Kits for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/kyocera-windows-compatible-printer-driver-software-free-download/"><u>KYOCERA Windows Compatible Printer Driver Software - Free Download</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/share-a-podcast-on-instagram-story-or-post/"><u>Share a Podcast on Instagram Story or Post</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/strategies-for-producing-top-notch-professional-gopro-content-for-2024/"><u>Strategies for Producing Top-Notch, Professional Gopro Content for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-6-best-8k-cameras-for-2024/"><u>Top 6 Best 8K Cameras for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-maximize-your-online-presence-10-best-free-video-hosting-sites/"><u>Updated Maximize Your Online Presence 10 Best Free Video Hosting Sites</u></a></li>
 </ul></div>
 

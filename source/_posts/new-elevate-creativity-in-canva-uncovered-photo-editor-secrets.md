@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Elevate Creativity in Canva  Uncovered Photo Editor Secrets\""
-date: 2024-09-14T19:16:59.428Z
-updated: 2024-09-16T23:17:30.217Z
+date: 2024-09-14T18:34:02.704Z
+updated: 2024-09-21T23:14:42.315Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ Other interesting effects include BadTV, through which you can add cinematic and
 
 ![search and apply filters](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Add Text to Images
 
 Do you like to post Instagram or Facebook stories with catchy captions embedded in them? Canva photo editor online gives you huge and diverse options to add text on the images with fancy styles and colors. You can add an aligned text by adjusting it to various angles such as right, left, or center. Afterward, you can select the font, color, and style of your added text through finger swipes.
@@ -54,6 +61,13 @@ Do you like to post Instagram or Facebook stories with catchy captions embedded 
 You can also manage the size of your text to make it look appropriate and suitable for your image. Hence, you can use the text images to post them as stories on social media accounts or use them for commercial purposes. This is surely good!
 
 ![add texts to photos](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Add Frames to the Image
 
@@ -79,13 +93,6 @@ Hence, explore various stickers and graphics from this platform and instantly ap
 
 ![ add different canva elements](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Make Photo Collage
 
 Photo collage combines all of our favorite and preferred photos in a single frame, and viewers can see all the combined photos in a single place. Canva photo editor online allows the users to make photo collages by merging their photos with a single click. You can add different frames to the images and can apply filters, effects, stickers, and typography. So, combine all of your cherishing memories in a single frame and share it with your friends and family members.
@@ -93,10 +100,10 @@ Photo collage combines all of our favorite and preferred photos in a single fram
 ![make photo collage in canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\. Design Mockups
@@ -106,17 +113,10 @@ If you are editing images for a product shoot, clothing brand, or any other proj
 ![design mockups through canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. Use Auto Focus and Blur
@@ -136,10 +136,10 @@ Moreover, you can use filters and color palettes that match well with your theme
 ![play with picture colors canva](https://images.wondershare.com/filmora/article-images/2022/canva-photo-editor-tips-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -170,14 +170,17 @@ Anyone can learn photo editing skills if they are provided with accurate guideli
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-pro-techniques-recording-your-twitch-showcase/"><u>[New] 2024 Approved Pro Techniques Recording Your Twitch Showcase</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ultimate-verdicts-in-camcorders-which-superiorly-captures-sports/"><u>[New] 2024 Approved Ultimate Verdicts in Camcorders Which Superiorly Captures Sports?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-music-service-migration-keeping-playlists-intact/"><u>[New] Music Service Migration Keeping Playlists Intact</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-easy-relief-music-legal-top-10-downloads-to-soothe-your-mind/"><u>[Updated] 2024 Approved Easy Relief Music – Legal, Top 10 Downloads to Soothe Your Mind</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-oppo-reno-10-pro-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Oppo Reno 10 Pro 5G</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-motorola-defy-2-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Motorola Defy 2 Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-oneplus-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for OnePlus Users</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/midnight-guardian-vs-sunlit-sentinel-for-2024/"><u>Midnight Guardian Vs Sunlit Sentinel for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/the-complete-guide-to-automating-ppt-captures-for-2024/"><u>The Complete Guide to Automating PPT Captures for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-chromebook-screenshot-hacks-in-four-steps-for-2024/"><u>[New] Chromebook Screenshot Hacks in Four Steps for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-prime-mc-house-designs-for-communities/"><u>[New] In 2024, Prime MC House Designs for Communities</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-inshot-guide-successfully-load-tracks-into-videos-for-2024/"><u>[New] InShot Guide Successfully Load Tracks Into Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-framefusion-pro-8-crafting-digital-masterpieces/"><u>[Updated] FrameFusion Pro 8 Crafting Digital Masterpieces</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-from-silence-to-soundscape-step-by-step-in-audition-for-2024/"><u>[Updated] From Silence to Soundscape Step-by-Step in Audition for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elite-video-capturing-technology-for-podcasts-for-2024/"><u>Elite Video Capturing Technology for Podcasts for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/from-live-demos-to-replays-tapping-into-aiseesoft-screencast-potential-for-2024/"><u>From Live Demos to Replays Tapping Into Aiseesoft Screencast Potential for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-data-from-apple-iphone-12-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>How To Transfer Data from Apple iPhone 12 to New iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Watch Hulu Outside US On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-to-using-smschat-apps-beyond-facebook/"><u>Secrets to Using SMS/Chat Apps Beyond Facebook</u></a></li>
+<li><a href="https://games-able.techidaily.com/strategies-for-streamlining-steam-decks-cloud-function/"><u>Strategies for Streamlining Steam Deck’s Cloud Function</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-strategy-for-handling-multiple-chatgpt-dialogues-via-folder-management/"><u>The Ultimate Strategy for Handling Multiple ChatGPT Dialogues via Folder Management</u></a></li>
 </ul></div>
 

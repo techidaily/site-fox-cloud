@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Implementing Gradual Intensity Boost in Audio Projects\""
-date: 2024-07-12T15:26:43.661Z
-updated: 2024-07-13T15:26:43.661Z
+date: 2024-09-14T20:56:48.572Z
+updated: 2024-09-21T22:31:58.912Z
 tags: 
   - screen-recording
   - ai video
@@ -86,9 +86,23 @@ If you want to fade in and fade out two clips at the same time, then controlling
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -107,6 +121,19 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
@@ -120,6 +147,13 @@ If you want to fade in and fade out two clips at the same time, then controlling
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
 
@@ -155,6 +189,20 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-expert-tips-for-designing-text-in-3d-space-ps-for-2024/"><u>[New] Expert Tips for Designing Text in 3D Space PS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-prior-upgrades-key-points-revisited/"><u>[New] In 2024, Prior Upgrades? Key Points Revisited</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-tiktoks-new-wave-popular-rap-songs-to-sync-with/"><u>[New] In 2024, TikTok's New Wave Popular Rap Songs to Sync With</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-assemble-visual-media-for-queue-upgrade/"><u>[Updated] 2024 Approved Assemble Visual Media for Queue Upgrade</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mobile-mastery-secure-your-favorite-igtv-content-easily/"><u>2024 Approved Mobile Mastery Secure Your Favorite IGTV Content Easily</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/prehensive-list-of-8-authentic-propagation-tools-for-2024/"><u>A Comprehensive List of 8 Authentic Propagation Tools for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/aol-not-working-on-ios-overcome-the-hurdle-with-our-top-6-repair-tactics/"><u>AOL Not Working on iOS? Overcome the Hurdle With Our Top 6 Repair Tactics</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-top-5-tools-all-successful-twitch-streamers-use/"><u>Essential Top 5 Tools All Successful Twitch Streamers Use</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-lut-mastery-for-enhanced-visual-effects-in-premiere-projects/"><u>In 2024, LUT Mastery for Enhanced Visual Effects in Premiere Projects</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-nokia-c300-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Nokia C300</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/is-photoshops-image-smoothing-worth-the-hype/"><u>Is Photoshop's Image Smoothing Worth the Hype?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-creating-fantastic-stable-diffusion-prompts/"><u>Mastering the Art of Creating Fantastic Stable Diffusion Prompts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725286823050-xmedia-recode-dvd/"><u>XMedia Recode: 劣化せずにDVDや動画、音声を変換する究極ガイド</u></a></li>
+</ul></div>
 

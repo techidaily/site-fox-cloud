@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Composition and Tints  Mastering Color Usage\""
-date: 2024-09-10T23:47:01.623Z
-updated: 2024-09-17T02:40:43.380Z
+date: 2024-09-18T16:33:28.385Z
+updated: 2024-09-21T21:35:13.366Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,19 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
@@ -68,26 +81,13 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,15 +123,15 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ree-youtube-end-screen-templates-plushow-tos/"><u>[New] Free YouTube End Screen Templates [+How-Tos]</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dusk-to-dawn-iphone-night-photography-essentials/"><u>[New] In 2024, Dusk to Dawn IPhone Night Photography Essentials</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/tand-out-on-youtube-with-these-20-top-font-choices/"><u>[New] Stand Out on YouTube with These 20 Top Font Choices</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-elevate-your-videography-mastering-the-dimensions/"><u>[Updated] In 2024, Elevate Your Videography Mastering the Dimensions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-everything-you-need-to-know-about-3d-lut-creator/"><u>[Updated] In 2024, Everything You Need to Know About 3D LUT Creator</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagrams-veracity-matrix-deconstructing-selfie-integrity/"><u>[Updated] In 2024, Instagram's Veracity Matrix Deconstructing Selfie Integrity</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-art-of-capturing-conversations-iphoneipad-tips-for-top-quality-interviews/"><u>[Updated] The Art of Capturing Conversations IPhone/iPad Tips for Top Quality Interviews</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/cutting-edge-tiktok-edits-secrets-shared/"><u>Cutting-Edge TikTok Edits Secrets Shared</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/from-sweet-sixteen-to-championship-game-best-radio-networks-for-ncaa-march-madness-action/"><u>From Sweet Sixteen to Championship Game - Best Radio Networks for NCAA March Madness Action!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/m-waves-prime-ed-channels-online/"><u>Wisdom Waves Prime Ed Channels Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-premium-background-music-compilations/"><u>[New] Premium Background Music Compilations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-vr-and-the-future-of-teaching-strategies/"><u>[New] VR and the Future of Teaching Strategies</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-essential-offline-android-games-for-uninterrupted-fun/"><u>[Updated] 2024 Approved Essential Offline Android Games for Uninterrupted Fun</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-professional-post-processing-how-to-erase-image-borders-easily/"><u>[Updated] Professional Post-Processing How to Erase Image Borders Easily</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/capture-the-crown-of-highlights-iosandroid-covers-for-2024/"><u>Capture the Crown of Highlights IOS/Android Covers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-purge-your-profile-and-start-fresh-online/"><u>How to Purge Your Profile and Start Fresh Online</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-frustration-to-finishing-how-magix-vpx-saves-time/"><u>In 2024, From Frustration to Finishing How Magix VPX Saves Time</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-guide-to-free-online-short-video-downloading/"><u>In 2024, The Ultimate Guide to Free, Online Short Video Downloading</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/masterful-methods-to-add-a-secure-link-to-your-tiktok-profile-for-2024/"><u>Masterful Methods to Add a Secure Link to Your TikTok Profile for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-magic-the-gathering-arcade-eradicating-persistent-screen-blackouts/"><u>Mastering Magic: The Gathering Arcade - Eradicating Persistent Screen Blackouts</u></a></li>
 </ul></div>
 

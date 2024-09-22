@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Compelling Media with Narrative Overlays"
-date: 2024-09-09T20:17:58.046Z
-updated: 2024-09-17T01:45:54.794Z
+date: 2024-09-19T01:41:41.144Z
+updated: 2024-09-21T20:07:01.463Z
 tags: 
   - screen-recording
   - ai video
@@ -77,6 +77,13 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -84,13 +91,6 @@ Narration is a fantastic tool to have in your arsenal as a young filmmaker. It a
 Practice adding it to your videos to see how it adds depth and dimension to your videos.
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Always use a good mic
 
@@ -101,16 +101,10 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
@@ -151,16 +145,18 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-instagram-ringtone-making-manual/"><u>[Updated] 2024 Approved The Ultimate Instagram Ringtone Making Manual</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-depth-look-at-best-videographer-selection/"><u>[Updated] In-Depth Look at Best Videographer Selection</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-in-depth-look-at-inshot-video-editing-powerhouse/"><u>[Updated] In-Depth Look at InShot Video Editing Powerhouse?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-leading-portals-for-virtual-graffiti-fonts-for-2024/"><u>[Updated] Leading Portals for Virtual Graffiti Fonts for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/elevating-earnings-the-essentials-of-vimeo-revenue-model-for-2024/"><u>Elevating Earnings The Essentials of Vimeo Revenue Model for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/eliminate-jitters-stabilizing-techniques-for-gopro-video/"><u>Eliminate Jitters Stabilizing Techniques for GoPro Video</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/how-to-convert-facebook-video-to-mp4-720p1080phd-online-and-free-in-2024/"><u>How to Convert Facebook Video to MP4 720P/1080p/HD Online and Free, In 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-hear-the-difference-on-chrome-the-ultimate-guide-to-voice-alteration-apps/"><u>In 2024, Hear the Difference on Chrome The Ultimate Guide to Voice Alteration Apps</u></a></li>
-<li><a href="https://win11.techidaily.com/mending-nonexistent-device-reference-in-windows-11-ui/"><u>Mending Nonexistent Device Reference in Windows 11 UI</u></a></li>
-<li><a href="https://windows11.techidaily.com/precise-control-setup-adjusting-shortcut-locations-on-windows-11s-power-icon/"><u>Precise Control Setup: Adjusting Shortcut Locations on Windows 11'S Power Icon</u></a></li>
-<li><a href="https://article-files.techidaily.com/triller-101-the-unique-path-of-non-tiktok-social-media/"><u>Triller 101 The Unique Path of Non-TikTok Social Media</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-flashfreeze-video-interruption-tip/"><u>[New] 2024 Approved FlashFreeze Video Interruption Tip</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-olympic-snowscape-highlights-cross-style-22/"><u>[New] 2024 Approved Olympic Snowscape Highlights - Cross Style '22</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastery-guide-sync-videos-to-facebook-pc-and-android-way-for-2024/"><u>[New] Mastery Guide Sync Videos to Facebook - PC & Android Way for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-maximizing-visual-impact-integrating-free-high-quality-luts-into-obs/"><u>[New] Maximizing Visual Impact Integrating Free, High-Quality LUTs Into OBS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-slomo-video-app-critique-a-look-at-2024/"><u>[New] The SloMo Video App Critique - A Look at 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/auditory-analyzer-assessing-and-enhancing-the-real-sound-fidelity-in-your-recorded-materials/"><u>Auditory Analyzer: Assessing and Enhancing the Real Sound Fidelity in Your Recorded Materials</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/bypassing-failing-internal-asus-camera/"><u>Bypassing Failing Internal Asus Camera</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-sony-xperia-10-v-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Sony Xperia 10 V in Minutes | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-probing-deep-into-inshots-editing-capabilities/"><u>In 2024, Probing Deep Into InShot's Editing Capabilities</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-samsung-galaxy-a14-4g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Samsung Galaxy A14 4G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-the-maze-digital-games-refunds-on-series-sx/"><u>Navigating the Maze: Digital Games Refunds on Series S/X</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/pro-tips-uncovering-12-prime-websites-for-affordable-images/"><u>Pro Tips Uncovering 12 Prime Websites for Affordable Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ringtone-recording-device-iphone-2024-version/"><u>Ringtone Recording Device - iPhone 2024 Version</u></a></li>
 </ul></div>
 

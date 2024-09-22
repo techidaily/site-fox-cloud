@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Winning Strategies for Win 11'S Crashy Photos App"
-date: 2024-09-11T16:25:01.180Z
-updated: 2024-09-16T16:08:49.607Z
+date: 2024-09-16T00:58:05.828Z
+updated: 2024-09-21T17:55:00.483Z
 tags: 
   - screen-recording
   - ai video
@@ -74,6 +74,13 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -95,19 +102,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -119,18 +113,18 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -159,21 +153,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-aviation-gaming-the-ultimate-drone-race-course-and-best-models-for-2024/"><u>[New] Aviation Gaming The Ultimate Drone Race Course and Best Models for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-exploring-virtual-reality-lgs-360-degree-experience-for-2024/"><u>[New] Exploring Virtual Reality LG's 360-Degree Experience for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-comprehensive-breakdown-understanding-and-using-mobizen-recorders/"><u>[New] In 2024, Comprehensive Breakdown Understanding and Using Mobizen Recorders</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-prestigious-music-archives-for-vfx-artists/"><u>[New] Prestigious Music Archives for VFX Artists</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-step-by-step-strategies-downloading-audio-on-iphones-for-2024/"><u>[New] Step-by-Step Strategies Downloading Audio on iPhones for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-tap-out-of-tiktok-clutter-editing-guide-for-massive-drafts-for-2024/"><u>[Updated] Tap Out of TikTok Clutter Editing Guide for Massive Drafts for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1725288811555-winx-dvd-ripper-platinum/"><u>限定特典付きの新バージョン！WinX DVD Ripper Platinum - 購入者だけが楽しめる機能満載サポート</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-stop-cod-modern-warfare-from-keeping-you-frustrated-with-endless-crashes/"><u>How to Stop COD: Modern Warfare From Keeping You Frustrated with Endless Crashes</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-s17t-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Vivo S17t?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-kinemasters-guide-engineering-impeccable-video-continuity/"><u>In 2024, Kinemaster's Guide Engineering Impeccable Video Continuity</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/laugh-loom-robotic-deadlines-for-2024/"><u>Laugh Loom Robotic Deadlines for 2024</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-unlock-efficiency-top-adobe-premiere-shortcuts-for-faster-editing-for-2024/"><u>New Unlock Efficiency Top Adobe Premiere Shortcuts for Faster Editing for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/ready-refresh-discover-how-to-reboot-your-device-back-to-square-one-on-ios-devices/"><u>Ready Refresh? Discover How to Reboot Your Device Back to Square One on iOS Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviving-logins-facebook-oculus-rift-purchases-post-breach/"><u>Reviving Logins: Facebook Oculus Rift Purchases Post-Breach</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-your-canon-pixma-mg3600mx410-driver-on-windows/"><u>Update Your Canon PIXMA MG3600/MX410 Driver on Windows</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-top-vignette-apps-for-mobile-devices-free-and-premium-options/"><u>Updated In 2024, Top Vignette Apps for Mobile Devices Free and Premium Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unveiling-the-ultimate-action-cam-max-360-vs-hero-11-gopro-showdown/"><u>[New] 2024 Approved Unveiling the Ultimate Action Cam Max 360 vs Hero 11 GoPro Showdown</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-gopro-vlogging-101-techniques-for-a-polished-look/"><u>[New] In 2024, GoPro Vlogging 101 Techniques for a Polished Look</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-xsplit-archive-in-depth-game-splits-for-2024/"><u>[New] XSplit Archive In-Depth Game Splits for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-explore-and-engage-ifunny-meme-downloads-for-2024/"><u>[Updated] Explore & Engage IFunny Meme Downloads for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-cutting-edge-techniques-for-channel-management-on-yt-hub/"><u>[Updated] In 2024, Cutting-Edge Techniques for Channel Management on YT Hub</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-srt-file-handling-on-cross-platform-operating-systems/"><u>[Updated] In 2024, SRT File Handling on Cross-Platform Operating Systems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-instrumental-integration-elevating-your-facebook-video-experience/"><u>2024 Approved Instrumental Integration Elevating Your Facebook Video Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-benefits-of-the-fujitsu-scansnap-ix1-279803-a-professional-scanner-tailored-for-smbs-and-home-workspaces/"><u>Assessing the Benefits of the Fujitsu ScanSnap iX1 279803, A Professional Scanner Tailored for SMBs & Home Workspaces</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/identify-the-exact-model-of-your-android-smartphone-a-step-by-step-guide/"><u>Identify the Exact Model of Your Android Smartphone - A Step-by-Step Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-itel-p40-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Itel P40 Device</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-route-to-rejuvenate-and-refine-your-vhs-collection-online/"><u>In 2024, The Ultimate Route to Rejuvenate and Refine Your VHS Collection Online</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-or-upgrade-your-hp-laptops-device-drivers-on-windows-platforms/"><u>Install or Upgrade Your HP Laptop's Device Drivers on Windows Platforms</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/maximizing-excel-potential-via-three-chatgpt-techniques/"><u>Maximizing Excel Potential via Three ChatGPT Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/revolutionary-capturing-best-5-cameras-for-slow-mo/"><u>Revolutionary Capturing Best 5 Cameras for Slow Mo</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-installing-the-newest-hp-deskjet-3630-printer-drivers-on-windows-10-computers/"><u>Step-by-Step Guide: Installing the Newest HP Deskjet 3630 Printer Drivers on Windows 10 Computers</u></a></li>
 </ul></div>
 
