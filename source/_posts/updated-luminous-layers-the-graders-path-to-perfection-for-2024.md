@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Luminous Layers  The Grader's Path to Perfection for 2024\""
-date: 2024-09-18T18:52:42.801Z
-updated: 2024-09-22T00:45:45.951Z
+date: 2024-09-25T07:35:36.291Z
+updated: 2024-09-28T11:44:24.753Z
 tags: 
   - screen-recording
   - ai video
@@ -75,9 +75,23 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
@@ -104,6 +118,13 @@ Here, there are two options to select: The Color correction. It offers different
 First, you need to select the specific video portion you want to change the color. Just click the scissor icon or what we call split tool. In this case, I split the 2nd video when I zoom in on the subject.
 
 ![split video into clips fx](https://images.wondershare.com/filmora/article-images/2022/08/split-video-into-clips-fx.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * And I selected the end portion of the video. After that, choose the part of the video.
 
@@ -136,6 +157,13 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -203,12 +231,22 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-compre-web-resources-for-effortless-youtube-template-access/"><u>[New] 2024 Approved Compre-Web Resources for Effortless YouTube Template Access</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-immediate-video-capture-and-audio-guide-app/"><u>[New] Immediate Video Capture & Audio Guide App</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-behind-the-scenes-developing-vegaspro-19/"><u>[New] In 2024, Behind-the-Scenes Developing VegasPro '19</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-picture-in-picture-features-in-firefox-for-2024/"><u>[New] Navigating Picture-in-Picture Features in Firefox for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-18-quick-and-inspiring-ideas-to-try-in-your-vlog/"><u>[Updated] 2024 Approved 18 Quick and Inspiring Ideas to Try in Your Vlog</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-cushioning-calm-top-relaxing-pc-titles/"><u>[Updated] 2024 Approved Cushioning Calm Top Relaxing PC Titles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-harnessing-the-power-of-zooms-video-features-on-youtube-platform/"><u>2024 Approved Harnessing the Power of Zoom's Video Features on YouTube Platform</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-photo-editing-mastery-with-polarr-a-comprehensive-guide/"><u>2024 Approved Photo Editing Mastery with Polarr A Comprehensive Guide</u></a></li>
+<li><a href="https://media-tips.techidaily.com/explore-the-leading-alternatives-to-formattable-filesystems-in-macos-and-windows-1011-a-comprehensive-guide/"><u>Explore the Leading Alternatives to Formattable Filesystems in macOS and Windows 10/11: A Comprehensive Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-xiaomi-civi-3-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Xiaomi Civi 3 to Roku | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-becoming-an-expert-at-using-zoom-for-your-windows-pc-win10/"><u>In 2024, Becoming an Expert at Using Zoom for Your Windows PC (Win10)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-poco-c50-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Poco C50 Device</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-audio-visual-recording-in-windows-1011-learn-these-4-key-methods-now/"><u>Mastering the Art of Audio-Visual Recording in Windows 10/11 - Learn These 4 Key Methods Now</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revolutionize-video-with-windows-hdr-techniques-for-2024/"><u>Revolutionize Video with Windows HDR Techniques for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/simplified-approach-to-crafting-xml-for-podcasts-for-2024/"><u>Simplified Approach to Crafting XML for Podcasts for 2024</u></a></li>
+</ul></div>
 

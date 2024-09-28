@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elite Series for Engaging Typographic Movement"
-date: 2024-09-16T16:06:20.675Z
-updated: 2024-09-21T23:15:58.596Z
+date: 2024-09-23T18:26:55.998Z
+updated: 2024-09-28T03:26:33.283Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,13 @@ You get 110 animated elements that you can apply to the text in your video. The 
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Dynamic Text Animations
 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
@@ -52,10 +59,10 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -64,13 +71,6 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
@@ -78,17 +78,10 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
@@ -102,6 +95,20 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -135,5 +142,22 @@ As the saying goes, the more the merrier and the more presets you have, the more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-stabilizing-your-gopro-footage-a-step-by-step-guide/"><u>[New] 2024 Approved Stabilizing Your GoPro Footage A Step-by-Step Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-snap-the-scene-comprehensive-no-cost-pcmac-capture-tools/"><u>[New] In 2024, Snap the Scene Comprehensive, No-Cost PC/Mac Capture Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-strategic-insights-into-making-emotional-connection-with-customer-success-videos/"><u>[New] In 2024, Strategic Insights Into Making Emotional Connection with Customer Success Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-real-time-12-hd-streaming-app-for-content-lovers/"><u>[Updated] 2024 Approved Real-Time 12 HD Streaming App for Content Lovers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-gopros-top-5-marine-filter-companions/"><u>[Updated] GoPro's Top 5 Marine Filter Companions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-immersive-gameplay-capturing-with-camrecorder-pro/"><u>[Updated] In 2024, Immersive Gameplay Capturing with CamRecorder Pro</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-leveraging-adobe-connect-for-exceptional-video-capture-and-editing/"><u>[Updated] In 2024, Leveraging Adobe Connect for Exceptional Video Capture & Editing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-filmmakers-blueprint-to-panoramic-perfection-9-key-techniques-for-2024/"><u>[Updated] The Filmmaker's Blueprint to Panoramic Perfection 9 Key Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-understanding-video-duration-20mb-example/"><u>[Updated] Understanding Video Duration 20MB Example</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/a-new-dawn-for-screen-capturing-apeaksoft-reviewed-for-2024/"><u>A New Dawn for Screen Capturing Apeaksoft Reviewed for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/harnessing-the-full-spectrum-of-creativity-with-luts-in-video-editing-for-2024/"><u>Harnessing the Full Spectrum of Creativity with LUTs in Video Editing for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-xiaomi-14-is-unlocked-by-drfone-android/"><u>How To Check if Your Xiaomi 14 Is Unlocked</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-on-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share on Apple iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-reimagining-the-role-of-titles-in-after-effects-media/"><u>In 2024, Reimagining the Role of Titles in After Effects Media</u></a></li>
+</ul></div>
 

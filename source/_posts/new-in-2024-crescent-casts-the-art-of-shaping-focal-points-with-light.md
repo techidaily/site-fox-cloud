@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crescent Casts  The Art of Shaping Focal Points with Light\""
-date: 2024-09-17T18:29:06.130Z
-updated: 2024-09-21T18:55:06.555Z
+date: 2024-09-25T12:34:14.044Z
+updated: 2024-09-27T21:09:04.518Z
 tags: 
   - screen-recording
   - ai video
@@ -97,6 +97,13 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Summary
 
 Hopefully, you learned something about lighting by taking a look at our setup. If you want to know and learn about other lighting tutorials, don’t hesitate to let us know in the comments.
@@ -129,12 +136,20 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-symphonic-syncopation-perfecting-audio-transitions/"><u>[New] Symphonic Syncopation Perfecting Audio Transitions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-breaking-barriers-with-brightness-the-comprehensive-guide-to-the-lg-31mu97-b-screen/"><u>[Updated] 2024 Approved Breaking Barriers with Brightness – The Comprehensive Guide to the LG 31MU97-B Screen</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unveil-your-creative-potential-comprehensive-guide-to-powerdirector-pro/"><u>[Updated] In 2024, Unveil Your Creative Potential Comprehensive Guide to PowerDirector Pro</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-prime-video-creation-software-for-smartphone-users-for-2024/"><u>[Updated] Prime Video Creation Software for Smartphone Users for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-proving-the-top-5-mac-clipping-software/"><u>2024 Approved Proving the Top 5 Mac Clipping Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevate-footage-flair-pc-and-mobile-filter-addition-for-2024/"><u>Elevate Footage Flair PC & Mobile Filter Addition for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 15 Plus? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-vivo-s18e-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo S18e Fingerprint Lock</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-googles-ar-sticker-innovation-an-inside-look-and-alternatives/"><u>In 2024, Google's AR Sticker Innovation An Inside Look & Alternatives</u></a></li>
+<li><a href="https://win11.techidaily.com/microphone-missing-reclaim-your-voice-in-windows-google-meet/"><u>Microphone Missing? Reclaim Your Voice in Windows Google Meet</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/noise-restored-troubleshooting-complete-loss-of-sound-for-cyberpunk-2077-on-windows-10-devices/"><u>Noise Restored! Troubleshooting Complete Loss of Sound for Cyberpunk 2077 on Windows 10 Devices</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/oculus-rift-s-audio-woes-speedily-solve-your-mic-problems-with-these-expert-fixes/"><u>Oculus Rift S Audio Woes? Speedily Solve Your Mic Problems with These Expert Fixes</u></a></li>
+<li><a href="https://extra-information.techidaily.com/seamless-integration-of-skype-meetings-into-zoom-platform/"><u>Seamless Integration of Skype Meetings Into Zoom Platform</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"From Basics to Advanced  Using Mac's Preview Like a Pro\""
-date: 2024-09-18T00:21:53.300Z
-updated: 2024-09-21T17:18:54.127Z
+date: 2024-09-26T16:00:01.593Z
+updated: 2024-09-28T16:00:01.202Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,19 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -68,13 +81,6 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -93,10 +99,10 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
@@ -110,6 +116,13 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -143,13 +156,6 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -165,6 +171,13 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 **Step 3: Combine the Images**
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
 
@@ -235,5 +248,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-5-beginner-secrets-to-mastering-photoshop-edits/"><u>[New] 2024 Approved 5 Beginner Secrets to Mastering Photoshop Edits</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-authentic-allure-vs-artificial-amassment-feed-focus/"><u>[New] Authentic Allure Vs. Artificial Amassment Feed Focus</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-discover-effortless-paths-to-exceptional-image-quality/"><u>[New] In 2024, Discover Effortless Paths to Exceptional Image Quality</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-inspire-yourself-a-list-of-10-empowering-movie-experiences/"><u>[New] Inspire Yourself A List of 10 Empowering Movie Experiences</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-brand-storytelling-through-the-eyes-of-customer-voices/"><u>[Updated] 2024 Approved Brand Storytelling Through the Eyes of Customer Voices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-cut-copy-and-paste-quickly-create-perfect-video-conclusions-no-cost/"><u>[Updated] 2024 Approved Cut, Copy & Paste Quickly Create Perfect Video Conclusions (No Cost)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-picks-the-ultimate-selection-of-4k-monitors-for-macos/"><u>[Updated] 2024 Approved Top Picks The Ultimate Selection of 4K Monitors for MacOS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ultimate-no-cost-voice-modifier-transform-your-valorant-gameplay/"><u>[Updated] 2024 Approved Ultimate No-Cost Voice Modifier Transform Your Valorant Gameplay</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-the-secrets-of-youtubes-content-hub-for-2024/"><u>[Updated] Decoding the Secrets of YouTube's Content Hub for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhancing-digital-engagement-through-tighter-zoomed-scenes-for-2024/"><u>[Updated] Enhancing Digital Engagement Through Tighter Zoomed Scenes for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-7-video-to-text-converters-for-seamless-content-translation/"><u>[Updated] In 2024, Top 7 Video-to-Text Converters for Seamless Content Translation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unleash-joy-with-9-complete-uncut-films-celebrating-christmas-day-online/"><u>[Updated] Unleash Joy with 9 Complete, Uncut Films Celebrating Christmas Day Online</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-strategies-to-overcome-504-gateway-timeout-problems/"><u>Effective Strategies to Overcome 504 Gateway Timeout Problems</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/expert-tips-quick-and-simple-methods-for-slicing-through-ogg-media-tracks/"><u>Expert Tips: Quick and Simple Methods for Slicing Through OGG Media Tracks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-navigating-self-representation-on-facebook-live-calls/"><u>In 2024, Navigating Self-Representation on Facebook Live Calls</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-windows-11s-latest-traits-unveiled/"><u>In 2024, Windows 11'S Latest Traits Unveiled</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/innovative-methods-to-enhance-your-twitch-stream-for-2024/"><u>Innovative Methods to Enhance Your Twitch Stream for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/step-by-step-fixes-for-roblox-startup-issues-in-the-current-year/"><u>Step-by-Step Fixes for Roblox Startup Issues in the Current Year</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/top-6-clearcut-android-recorder-options-no-ads-for-2024/"><u>Top 6 Clearcut Android Recorder Options (No Ads) for 2024</u></a></li>
+</ul></div>
 

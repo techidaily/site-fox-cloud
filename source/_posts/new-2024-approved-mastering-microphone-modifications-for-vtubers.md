@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Microphone Modifications for VTubers\""
-date: 2024-09-20T23:30:10.061Z
-updated: 2024-09-22T00:45:00.824Z
+date: 2024-09-27T12:35:30.051Z
+updated: 2024-09-28T06:49:51.938Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ Locate the **Start** icon at the bottom left corner of your screen and click on 
 
 ![start](https://images.wondershare.com/filmora/article-images/2022/11/image-000.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Select **Settings** from the options that comes up, and the interface below will come up:
 
 ![settings](https://images.wondershare.com/filmora/article-images/2022/11/image-001.png)
@@ -73,11 +80,31 @@ Step4 Now that you've successfully configured your computer sound system with Vo
 
 ![hardware input](https://images.wondershare.com/filmora/article-images/2022/11/image-004.png)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Enter your preferred name in the space, and hit the **Enter** button on your keyboard. Once you are done with that, proceed to the next step.
 
 Step5 Next, you need to set up the Virtual Audio Input section. There are three (3) Virtual Audio Inputs just as seen below:
 
 ![virtual audio input section](https://images.wondershare.com/filmora/article-images/2022/11/image-005.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Virtual Audio Input 1: This is where windows will send your voice recordings by default.
 
@@ -92,6 +119,13 @@ Step6 Once the above setup is complete, move to the **Hardware Outputs** section
 ![hardware outputs](https://images.wondershare.com/filmora/article-images/2022/11/image-006-1.png)
 
 Step7 Now route the different apps to the correct VoiceMeeter input, and make other necessary adjustments. Once that's set, you can start using VoiceMeeter voice-changing app.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2\. Voidol2 Voice Changer
 
@@ -110,10 +144,10 @@ Open the **Sounds** setting panel on your computer, go to the Audio input settin
 ![install voidol2 voice changer](https://images.wondershare.com/filmora/article-images/2022/11/image-007.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Next, scroll down and configure the Active Input Channel. Select the right channel so audio signals can be sent to Voidol2 input. Should you select the wrong option, you may not have the opportunity to change your voice.
@@ -121,22 +155,15 @@ Step2 Next, scroll down and configure the Active Input Channel. Select the right
 ![scroll down and configure the active input](https://images.wondershare.com/filmora/article-images/2022/11/image-008.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Now navigate down Voidol2 page, and tap on **Control Panel**. Make the necessary adjustments, reset your device and start using Voidol2 to change your voice.
 
 ![navigate down voidol2 page](https://images.wondershare.com/filmora/article-images/2022/11/image-009.png)
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. FAQs
 
@@ -191,5 +218,20 @@ Surviving the fierce competition in the Vtube industry can be challenging if you
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-superior-economical-live-camera-snapper/"><u>[New] 2024 Approved Superior Economical Live Camera Snapper</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pushing-boundaries-in-motion-photography-for-2024/"><u>[New] Pushing Boundaries in Motion Photography for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-new-frontier-of-jaunt-vr-experiences/"><u>[New] The New Frontier of Jaunt VR Experiences</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-zerocomplicationlivecast-your-simple-pathway-to-livestreaming-a-podcast-for-2024/"><u>[New] ZeroComplicationLivecast Your Simple Pathway to Livestreaming a Podcast for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-dissecting-obs-technology-for-top-level-recording/"><u>[Updated] 2024 Approved Dissecting OBS Technology for Top-Level Recording</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-dive-deep-into-color-correction-top-11-resources/"><u>[Updated] Dive Deep Into Color Correction Top 11 Resources</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-achieve-cinematic-quality-with-ipad-time-lapses/"><u>[Updated] In 2024, Achieve Cinematic Quality with iPad Time-Lapses</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-switching-on-windows-11-for-automatic-hdr-mode-for-2024/"><u>[Updated] Switching On Windows 11 for Automatic HDR Mode for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-oppo-f23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-oppo-f23-5g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Oppo F23 5G</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/local-llm-advantages-and-drawbacks-a-quick-guide/"><u>Local LLM: Advantages & Drawbacks – A Quick Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-poco-x5-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Poco X5? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ustream-examination-other-options-compared/"><u>Ustream Examination Other Options Compared</u></a></li>
+</ul></div>
 

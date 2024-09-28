@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lifting Large Loads - Drone Power Rankings\""
-date: 2024-09-14T16:34:08.143Z
-updated: 2024-09-21T19:59:03.588Z
+date: 2024-09-21T11:09:17.956Z
+updated: 2024-09-28T03:38:11.502Z
 tags: 
   - screen-recording
   - ai video
@@ -61,6 +61,13 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
 
 #### 2\. [DJI S900](https://www.amazon.com/gp/product/B00MEBTDRY/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00MEBTDRY&linkId=66e45295337a54bff961119800e62cb4)
@@ -101,6 +108,13 @@ The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with th
 
 ![vulcan uav airlift](https://images.wondershare.com/filmora/article-images/vulcan-uav-airlift.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Airlift series is one of Vulcan's heaviest lifting drones to date. With the ability to lift and move a payload of about 30 kg, this drone has a tough, and durable frame that allows it to display such extraordinary strength and grace. Its central core is made of transparent tubes which allow users to easily check in on the power systems, while also making sure that all vitals are protected, which makes the Vulcan UAV Airlift the ideal machine for working in rugged environments.
 
 #### 2\. AZ 4K UHD Camera Drone Green Bee 1200
@@ -112,6 +126,13 @@ As the need for drones that can do some seriously heavy lifting has increased, t
 #### 3\. Vulcan UAV Raven
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
@@ -126,6 +147,13 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 #### 5\. ONYXSTAR HYDRA-12
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
@@ -156,12 +184,22 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-enjoy-immersive-vr-content-iphones-simple-guide-for-2024/"><u>[New] Enjoy Immersive VR Content IPhone's Simple Guide for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-ultimate-5-social-media-films/"><u>[New] In 2024, Ultimate 5 Social Media Films</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-complete-guide-to-itunes-podcast-upload-for-2024/"><u>[New] The Complete Guide to iTunes Podcast Upload for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-uniting-fans-anime-opening-songs-showcase-for-2024/"><u>[New] Uniting Fans Anime Opening Songs Showcase for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-lean-cloud-archive-efficient-low-cost-large-data/"><u>[Updated] 2024 Approved Lean Cloud Archive Efficient, Low-Cost Large Data</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-illumination-innovations-advanced-lighting-in-video-making/"><u>[Updated] In 2024, Illumination Innovations Advanced Lighting in Video Making</u></a></li>
+<li><a href="https://driver-install.techidaily.com/enhance-audio-hardware-install-rtl8723b-driver-update/"><u>Enhance Audio Hardware: Install RTL8723B Driver Update</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enhance-learning-on-the-go-podcast-tips-and-tricks/"><u>Enhance Learning on the Go Podcast Tips & Tricks</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-deconstructing-the-legal-framework-of-youtube-and-cc-licenses/"><u>In 2024, Deconstructing the Legal Framework of Youtube & CC Licenses</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-explore-15-exceptional-vr-cam-solutions-like-gopro/"><u>In 2024, Explore 15 Exceptional VR Cam Solutions Like GoPro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-how-to-navigate-virtual-realities-without-nausea/"><u>In 2024, How to Navigate Virtual Realities without Nausea</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-tecno-spark-10-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Tecno Spark 10 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-luminosity-boost-for-low-light-mobile-video/"><u>In 2024, Luminosity Boost for Low-Light Mobile Video</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-thriving-in-the-streaming-scene-overcoming-subscriber-limitations/"><u>In 2024, Thriving in the Streaming Scene Overcoming Subscriber Limitations</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/steps-for-macos-sierra-rollback-to-os-x-el-capitan-for-2024/"><u>Steps for MacOS Sierra Rollback to OS X El Capitan for 2024</u></a></li>
+</ul></div>
 
