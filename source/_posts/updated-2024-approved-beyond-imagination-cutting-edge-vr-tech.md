@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Beyond Imagination  Cutting-Edge VR Tech\""
-date: 2024-09-21T16:10:20.022Z
-updated: 2024-09-28T16:10:39.951Z
+date: 2024-10-02T19:05:04.008Z
+updated: 2024-10-03T17:43:07.548Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
  )
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -54,15 +54,22 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
 
@@ -71,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -82,13 +89,6 @@ thumbnail: https://thmb.techidaily.com/678fddf7ae4566a62c5d9f963bb3c78467acea0fb
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -115,24 +115,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-explore-online-downloads-converting-youtube-to-mp3-made-simple/"><u>[New] 2024 Approved Explore Online Downloads Converting YouTube to MP3 Made Simple</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/1717952355173-new-in-2024-twitch-vs-youtube-an-in-depth-comparative-analysis/"><u>[New] In 2024, Twitch Vs. YouTube An In-Depth Comparative Analysis</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-best-12-mouse-focused-pc-games-for-enthusiasts/"><u>[Updated] 2024 Approved Best 12 Mouse-Focused PC Games for Enthusiasts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/15-best-cine-luts-for-gopro-action-cam-for-2024/"><u>15 Best Cine LUTs for Gopro Action Cam for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-airborne-vigils-the-most-durable-drone-fleet/"><u>2024 Approved Airborne Vigils The Most Durable Drone Fleet</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-capture-your-ride-top-5-action-camera-headsets-reviewed-for-23-motorcyclists/"><u>2024 Approved Capture Your Ride – Top 5 Action Camera Headsets Reviewed for '23 Motorcyclists</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-visual-storytelling-with-online-wallpaper-swap/"><u>2024 Approved Mastering Visual Storytelling with Online Wallpaper Swap</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigating-the-best-hdr-cameras/"><u>2024 Approved Navigating the Best HDR Cameras</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-puzzle-prints-crafting-hilarity-in-minutes/"><u>2024 Approved Puzzle Prints Crafting Hilarity in Minutes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-refining-images-how-to-use-the-eraser-tool-in-psx/"><u>2024 Approved Refining Images How to Use the Eraser Tool in PSX</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-shining-through-hd-is-it-a-wise-pick-for-hdr/"><u>2024 Approved Shining Through HD Is It a Wise Pick for HDR?</u></a></li>
-<li><a href="https://common-error.techidaily.com/effortless-methods-to-stop-your-laptop-from-falling-asleep-unexpectedly/"><u>Effortless Methods to Stop Your Laptop From Falling Asleep Unexpectedly</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-8-plus-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot iPhone 8 Plus Backup Password? Heres What to Do | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Realme 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/navigating-windows-error-403-in-roblox/"><u>Navigating Windows Error 403 in Roblox</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/proven-techniques-for-converting-sd2-and-sound-designer-ii-files-into-wav-format/"><u>Proven Techniques for Converting SD2 & Sound Designer II Files Into WAV Format</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723209811588-razer-keyboard-issues-how-to-restore-backlight-functionality-effectively/"><u>Razer Keyboard Issues? How to Restore Backlight Functionality Effectively</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/robot-rebusions-tracking-laptop-transformation-and-online-guardians/"><u>Robot Rebusions: Tracking Laptop Transformation & Online Guardians</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-nokia-c300-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Nokia C300? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-mastering-the-art-with-sony-fdr-x1000v-action-footage/"><u>[New] In 2024, Mastering the Art with Sony FDR-X1000V Action Footage</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-innovative-approaches-to-sims-4-video/"><u>[New] Innovative Approaches to Sims 4 Video</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-art-of-amplification-a-comprehensive-guide-to-sharing-videos-on-facebook/"><u>[Updated] 2024 Approved The Art of Amplification A Comprehensive Guide to Sharing Videos on Facebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-how-to-make-a-3d-text-effect-in-photoshop-for-2024/"><u>[Updated] How to Make a 3D Text Effect in Photoshop for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-crafting-an-affordable-diy-google-vr-system-at-home/"><u>[Updated] In 2024, Crafting an Affordable DIY Google VR System at Home</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-revamped-podcast-chats-attracting-true-fans/"><u>[Updated] In 2024, Revamped Podcast Chats Attracting True Fans</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unveil-the-true-image-learn-background-removal-on-photopea-for-2024/"><u>[Updated] Unveil the True Image Learn Background Removal on Photopea for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-art-of-auditory-branding-logo-insights-for-podcasters/"><u>2024 Approved The Art of Auditory Branding Logo Insights for Podcasters</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-guide-and-evaluation-of-the-2021-m1-chip-powered-apple-macbook-pro-16-inch/"><u>Comprehensive Guide & Evaluation of the 2021 M1 Chip Powered Apple MacBook Pro 16-Inch</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/constructing-coherent-cinematic-introductions-for-2024/"><u>Constructing Coherent Cinematic Introductions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-experience-a-dive-into-facebooks-upgraded-privacy-hub/"><u>Optimize Your Social Media Experience: A Dive Into Facebook’s Upgraded Privacy Hub</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/percussive-peacock-swing/"><u>Percussive Peacock Swing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-ultimate-screen-showdown-top-6-hdmi-21-monitors-reviewed-for-2024/"><u>The Ultimate Screen Showdown Top 6 HDMI 2.1 Monitors Reviewed for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/tips-for-efficiently-editing-videos-for-social-media-engagement-for-2024/"><u>Tips for Efficiently Editing Videos for Social Media Engagement for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-samsung-galaxy-a15-5g-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Samsung Galaxy A15 5G</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-5-mac-compatible-game-consoles-emulators/"><u>Top 5 Mac-Compatible Game Consoles' Emulators</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/understanding-dvd-video-quality-what-does-dvd-resolution-mean-480p-720p-or-108n-p/"><u>Understanding DVD Video Quality: What Does DVD Resolution Mean – 480P, 720P, or 108N P?</u></a></li>
 </ul></div>
 

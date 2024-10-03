@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Windows 11  The 11 Best Tricks Revealed\""
-date: 2024-09-21T16:03:25.405Z
-updated: 2024-09-28T16:03:43.392Z
+date: 2024-09-29T18:27:08.760Z
+updated: 2024-10-03T18:54:00.423Z
 tags: 
   - screen-recording
   - ai video
@@ -33,18 +33,18 @@ In 2015, Microsoft announced that Windows 10 would be the last version number fo
 
 After years of small updates, the biggest and most popular operating system in the world finally has some great news for you. At last, Windows fans have something they should get excited about. The following section of this article will share Windows 11 tips and tricks with you that are hidden and secret.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Turn off the Notifications
 
 With the increased number of notifications in Windows 11, you might get annoyed. For that, you can turn off the notifications from the 'Settings.' Either you can go to the settings from the Start Menu or by pressing 'Win+I.' Then, head over to ‘System’ and hit 'Notifications.' The notifications are ‘On’ by default, but you can turn them 'Off' if you want to.
 
 ![turn off unnecessary notifications](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Minimize Applications
 
@@ -53,6 +53,13 @@ Minimizing Applications allows you to minimize the extra tabs as a whole rather 
 This feature can be activated through Windows Settings and then by clicking on ‘Multi-Tasking.' Switch on the toggle switch next to ‘Title Bar Window Shake,' and it is ready to use.
 
 ![minimize applications by shaking](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Shortcut Keys
 
@@ -66,6 +73,13 @@ The biggest Windows 11 tip and trick is the placement of Taskbar and Start Menu.
 
 ![align taskbar to the left](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Remove Unwanted Ads on Apps
 
 The updated technology allows you to have better control over the privacy of your data and device from personalized ads. For this, go to the ‘Settings’ panel and then move over to the 'Privacy and Security’ section. From the right panel, hit the ‘General’ settings. Now you can select whether you want the apps or websites to show ads based on your interests.
@@ -73,16 +87,17 @@ The updated technology allows you to have better control over the privacy of you
 ![disable unwanted ads](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-5.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Voice Typing Feature
@@ -90,13 +105,6 @@ The updated technology allows you to have better control over the privacy of you
 The coolest thing about Windows 11 that most people don’t know is the ‘Voice Typing’ feature. You might have experienced this before in your iPhones or Android devices, but this is new for Windows to have voice typing built-in. Press ‘Windows Key + H’ when you are in a text box and then start speaking. By using the mic button from the pop-out menu, you can start using the feature.
 
 ![windows 11 voice typing feature](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. Widgets and Chat Customization
 
@@ -106,13 +114,6 @@ However, some people do not like using this kind of stuff. They don’t even pre
 
 ![disable widgets and other items](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. Block Trackers and Pop-up
 
 Another brilliant Windows 11 tip and trick is that it lets you block the pop-ups and also the tracking. For that, open Microsoft Edge and head over to the 3 dots on the top right corner to open 'Settings.' From the left panel in Settings, look for 'Privacy, Search and Services.' By default, it is set to 'Balanced.' You are suggested to select the 'Strict' option so that all the harmful trackers are blocked.
@@ -120,10 +121,17 @@ Another brilliant Windows 11 tip and trick is that it lets you block the pop-ups
 ![secure your browsing on windows 11](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. Change your Geolocation
@@ -143,10 +151,10 @@ For that, press ‘Win + I’ and then select 'Personalization.' Now, choose 'St
 ![bring folders to windows 11 start](https://images.wondershare.com/filmora/article-images/2021/windows-11-secret-tips-and-tricks-10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The Bottom Line
@@ -171,21 +179,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -211,24 +205,21 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-snapshot-scribbles-10-top-writing-aids-for-image-capture-iosandroid/"><u>[New] 2024 Approved Snapshot Scribbles 10 Top Writing Aids for Image Capture (iOS/Android)</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-seamless-online-video-sharing-via-vimeo/"><u>[New] Seamless Online Video Sharing via Vimeo</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-guide-powerdirectors-2024-mastery-edition/"><u>[Updated] Ultimate Guide PowerDirector's 2024 Mastery Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-amplify-your-videos-the-best-text-effects-guide/"><u>2024 Approved Amplify Your Videos The Best Text Effects Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-live-streaming-on-mac-a-guide-to-1-5-tools/"><u>2024 Approved Elevate Live Streaming on Mac A Guide to #1-5 Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevating-your-macro-videos-a-comprehensive-checklist/"><u>2024 Approved Elevating Your Macro Videos A Comprehensive Checklist</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-how-to-zoom-in-on-minecraft-5-easy-ways/"><u>2024 Approved How to Zoom in on Minecraft [5 Easy Ways]</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-idealized-panzoid-blueprints-collection/"><u>2024 Approved Idealized Panzoid Blueprints Collection</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-learning-the-ins-and-outs-of-firefox-pip/"><u>2024 Approved Learning the Ins and Outs of Firefox PIP</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-onscreen-excellence-flexible-talent-access/"><u>2024 Approved Onscreen Excellence Flexible Talent Access</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-seamless-video-editing-on-windows-11-platform/"><u>2024 Approved Seamless Video Editing on Windows 11 Platform</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-streamline-your-projects-expert-techniques-for-mac-dvd-creation/"><u>2024 Approved Streamline Your Projects Expert Techniques for Mac DVD Creation</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-the-newest-driver-for-hp-deskjet-3755-all-in-one-printer-on-windows-10-8-and-ept/"><u>Download the Newest Driver for HP DeskJet 3755 All-in-One Printer on Windows 10, 8 & Ept</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-t2-pro-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo T2 Pro 5G with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-xiaomi-civi-3-disney-100th-anniversary-edition-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Xiaomi Civi 3 Disney 100th Anniversary Edition Location | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/in-depth-guide-starting-anew-with-graphics-drivers/"><u>In-Depth Guide: Starting Anew with Graphics Drivers</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-tecno-phantom-v-fold-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Tecno Phantom V Fold – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/resolving-high-cpu-consumption-issues-in-windows-11-a-comprehensive-guide/"><u>Resolving High CPU Consumption Issues in Windows 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unlocking-elusive-footage-the-systematic-guide-to-youtube-secrets-for-2024/"><u>Unlocking Elusive Footage The Systematic Guide to YouTube Secrets for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-cut-free-video-opening-template-downloads/"><u>[New] Cut-Free Video Opening Template Downloads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-stepwise-guide-to-launching-and-managing-a-live-broadcast/"><u>[New] Stepwise Guide to Launching and Managing a Live Broadcast</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-future-of-android-gaming-its-all-in-kinemaster-review/"><u>[New] The Future of Android Gaming? It's All in KineMaster Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unlock-new-dimensions-of-your-missing-iphone-x-for-2024/"><u>[New] Unlock New Dimensions of Your Missing iPhone X for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-master-meeting-magic-key-ways-to-tweak-with-zoom-converter/"><u>[Updated] 2024 Approved Master Meeting Magic Key Ways to Tweak with Zoom Converter</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-bandicam-vs-camtasia-which-is-better-in-2024/"><u>[Updated] Bandicam vs Camtasia, Which Is Better, In 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-eliminating-odd-shades-a-step-by-step-guide-to-flawless-greenscreens/"><u>[Updated] In 2024, Eliminating Odd Shades A Step-by-Step Guide to Flawless Greenscreens</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-ultimate-checklist-for-successful-reddit-threads/"><u>[Updated] In 2024, The Ultimate Checklist for Successful Reddit Threads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-precision-is-key-perfecting-close-up-videos-in-videoleap/"><u>[Updated] Precision Is Key Perfecting Close-Up Videos in Videoleap</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-the-transition-of-zip-to-subrip-srt-formats/"><u>2024 Approved Navigating the Transition of Zip to SubRip (SRT) Formats</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-motorola-edge-40-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Motorola Edge 40 without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/master-the-art-of-dealing-with-pc-rebooting-problems-effective-strategies/"><u>Master the Art of Dealing with PC Rebooting Problems: Effective Strategies</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/msis-top-pick-the-ultimate-in-on-the-go-monitors-mp161-e2/"><u>MSI's Top Pick: The Ultimate in On-The-Go Monitors - MP161 E2</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-unlocking-cinematic-potential-advanced-fcpx-techniques/"><u>New In 2024, Unlocking Cinematic Potential Advanced FCPX Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/step-by-step-increasing-viewership-with-facebook-mobile-broadcasts-for-2024/"><u>Step-by-Step Increasing Viewership with Facebook Mobile Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/step-by-step-process-for-free-youtube-video-texting/"><u>Step-by-Step Process for FREE YouTube Video Texting</u></a></li>
 </ul></div>
 

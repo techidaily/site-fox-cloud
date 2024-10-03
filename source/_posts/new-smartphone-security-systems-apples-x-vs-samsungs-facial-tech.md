@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Smartphone Security Systems  Apple’s X Vs. Samsung's Facial Tech\""
-date: 2024-09-26T16:06:50.884Z
-updated: 2024-09-28T16:09:16.458Z
+date: 2024-10-01T19:14:05.599Z
+updated: 2024-10-03T20:39:09.438Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,19 @@ thumbnail: https://thmb.techidaily.com/859749633d2fe977555173ddfc42dda3acc4bf2fd
 
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
@@ -61,17 +74,10 @@ thumbnail: https://thmb.techidaily.com/859749633d2fe977555173ddfc42dda3acc4bf2fd
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
@@ -85,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/859749633d2fe977555173ddfc42dda3acc4bf2fd
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Safety Issue
@@ -102,10 +108,10 @@ thumbnail: https://thmb.techidaily.com/859749633d2fe977555173ddfc42dda3acc4bf2fd
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
@@ -143,24 +149,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-m1-innovation-elevating-smoothness-in-every-editors-toolkit/"><u>[New] 2024 Approved M1 Innovation Elevating Smoothness in Every Editor's Toolkit</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-diving-deep-into-whatsapps-vocal-messaging-experience/"><u>[New] Diving Deep Into WhatsApp's Vocal Messaging Experience</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ffortless-music-extraction-choose-the-right-apps-for-youtube-and-mp3-for-2024/"><u>[New] Effortless Music Extraction Choose the Right Apps for YouTube & MP3 for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-first-row-fun-without-football-baseball-or-basketball-for-2024/"><u>[New] First Row Fun Without Football, Baseball, or Basketball for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-boost-iphone-cinematic-experience-essential-film-gear/"><u>[New] In 2024, Boost iPhone Cinematic Experience Essential Film Gear</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-streamlining-film-grading-with-cg-centrals-look-up-tables-for-2024/"><u>[New] Streamlining Film Grading with CG Central's Look-Up Tables for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-legal-considerations-when-uploading-videos-to-social-network-sites/"><u>[Updated] 2024 Approved Legal Considerations When Uploading Videos to Social Network Sites</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-discover-10-budget-friendly-vectors-and-design-pages-for-2024/"><u>[Updated] Discover 10 Budget-Friendly Vectors and Design Pages for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-setting-up-the-pip-feature-in-the-youtube-app-for-easy-video-streaming-for-2024/"><u>[Updated] Setting up the PIP Feature in the YouTube App for Easy Video Streaming for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-blackout-blitz-60-second-effort/"><u>2024 Approved Blackout Blitz 60-Second Effort</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-secrets-back-on-snapchat-screen/"><u>2024 Approved Secrets Back on Snapchat Screen</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-creativity-with-free-audio-effects-online/"><u>Boost Creativity with Free Audio Effects Online!</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/crafting-compelling-content-on-reddit-a-stepwise-path/"><u>Crafting Compelling Content on Reddit - A Stepwise Path</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/from-snapshot-to-success-an-in-depth-video-guide-for-youtube-photos/"><u>From Snapshot to Success An In-Depth Video Guide for YouTube Photos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-reset-your-iphone-14-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Honor Play 8T? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mastering-final-cut-the-ultimate-guide/"><u>Mastering Final Cut The Ultimate Guide</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximizing-your-money-with-the-highly-rated-and-budget-friendly-arcshell-ar-5/"><u>Maximizing Your Money with the Highly Rated and Budget-Friendly Arcshell AR-5</u></a></li>
-<li><a href="https://win11.techidaily.com/wsl-adoption-and-linux-market-dynamics/"><u>WSL Adoption and Linux Market Dynamics</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-harmonizing-messages-whatsapps-audio-update/"><u>[New] Harmonizing Messages WhatsApp's Audio Update</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-step-by-step-guide-to-screencasting-youtube-content-for-free/"><u>[New] In 2024, Step-by-Step Guide to Screencasting YouTube Content For Free</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-hackers-guide-to-scoring-cool-images-at-pexels/"><u>[Updated] 2024 Approved A Hacker's Guide to Scoring Cool Images at Pexels</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-iphone-x-a-complete-animoji-guide-for-proficient-users/"><u>[Updated] In 2024, IPhone X A Complete Animoji Guide for Proficient Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-mastering-screen-recording-on-skype-innovative-uses-of-obs-for-2024/"><u>[Updated] Mastering Screen Recording on Skype Innovative Uses of OBS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-notable-sites-elevating-youtube-videography/"><u>[Updated] Notable Sites Elevating YouTube Videography</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-the-cycle-how-to-stop-using-facebook-daily/"><u>Break the Cycle: How to Stop Using Facebook Daily</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/comprehensive-overview-the-top-12-free-user-friendly-video-players-and-apps-pcandroid-for-2024/"><u>Comprehensive Overview The Top 12 Free, User-Friendly Video Players & Apps (PC/Android) for 2024</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-realme-c67-4g-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/next-gen-realities-navigating-vrs-future-trajectory/"><u>Next-Gen Realities Navigating VR's Future Trajectory</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/projecting-your-mobile-screen-onto-a-panasonic-television-easily/"><u>Projecting Your Mobile Screen Onto a Panasonic Television Easily</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/virtual-realitys-creativity-quandary-a-2023-outlook-for-2024/"><u>Virtual Reality's Creativity Quandary - A 2023 Outlook for 2024</u></a></li>
 </ul></div>
 

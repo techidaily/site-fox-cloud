@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Compelling Media with Narrative Overlays"
-date: 2024-09-19T01:41:41.144Z
-updated: 2024-09-21T20:07:01.463Z
+date: 2024-09-29T21:59:19.387Z
+updated: 2024-10-03T20:44:07.243Z
 tags: 
   - screen-recording
   - ai video
@@ -55,11 +55,25 @@ So the easiest way to add narration is directly to a project. The benefit of thi
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
@@ -77,13 +91,6 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -98,13 +105,26 @@ When adding voiceover or narration to your project, be sure to use a good USB mi
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should you use narration in your next project?
@@ -143,5 +163,26 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-googles-advanced-upload-techniques-for-podcasters-for-2024/"><u>[New] Google's Advanced Upload Techniques for Podcasters for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-designing-multi-layered-photographic-illusions/"><u>[Updated] 2024 Approved Designing Multi-Layered Photographic Illusions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-tier-hdr-camera-selection-made-easy/"><u>[Updated] In 2024, Top-Tier HDR Camera Selection Made Easy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pixelwizard-a-comprehensive-top-10-list-of-replacements/"><u>[Updated] PixelWizard A Comprehensive Top 10 List of Replacements</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultima-designs-analysis-pinnacle-suite-studio-2023-overview/"><u>[Updated] Ultima Designs Analysis Pinnacle Suite Studio, 2023 Overview</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ultimate-selection-8-must-have-laptop-backgrounds-for-2024/"><u>[Updated] Ultimate Selection 8 Must-Have Laptop Backgrounds for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-hue-transformations-expert-tactics-revealed/"><u>2024 Approved Mastering Hue Transformations Expert Tactics Revealed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/camera-connoisseurs-hits-the-best-6-of-the-years-4k-cameras-for-2024/"><u>Camera Connoisseurs' Hits The Best 6 of the Year's 4K Cameras for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/deciphering-codegpt-the-future-of-programming-with-ai/"><u>Deciphering CodeGPT: The Future of Programming with AI?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-world-of-digital-reading-with-the-highly-rated-kobo-forma-reviewed-here/"><u>Exploring the World of Digital Reading with the Highly Rated Kobo Forma Reviewed Here</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-realme-11-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Realme 11 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-breaking-down-lg-27ud88-uhd-tv-with-usb-type-c/"><u>In 2024, Breaking Down LG 27UD88-UHD TV with USB Type-C</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-constructing-a-premium-video-editing-pc-from-the-ground-up/"><u>In 2024, Constructing a Premium Video Editing PC From the Ground Up</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-lifecast-your-show-a-basic-podcast-streaming-strategy/"><u>In 2024, Lifecast Your Show A Basic Podcast Streaming Strategy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-through-excellent-alternatives-to-gopro-cams/"><u>In 2024, Navigating Through Excellent Alternatives to GoPro Cams</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premium-steadicam-brands-for-drones-and-camera-work-for-2024/"><u>Premium Steadicam Brands for Drones and Camera Work for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-filtering-out-the-pesky-promos-on-your-feed/"><u>Strategies for Filtering Out the Pesky Promos on Your Feed</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-9-prevalent-icloud-hiccups-on-your-ios-devices-with-these-fixes/"><u>Troubleshoot 9 Prevalent iCloud Hiccups on Your iOS Devices with These Fixes</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-lava-agni-2-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Lava Agni 2 5G Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>
 

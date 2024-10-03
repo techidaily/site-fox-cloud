@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Harmonizing Designs  Using Color Principles Wisely for 2024\""
-date: 2024-09-26T16:00:06.754Z
-updated: 2024-09-28T16:14:18.315Z
+date: 2024-09-28T17:52:18.919Z
+updated: 2024-10-03T20:06:21.019Z
 tags: 
   - screen-recording
   - ai video
@@ -40,13 +40,20 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Color Harmony
 
@@ -63,10 +70,10 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -76,10 +83,10 @@ You may still be unsure as to how to implement color theory into your videos. Le
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
@@ -87,13 +94,6 @@ In this scene the director decided that the backdrop should complement the top t
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
@@ -131,20 +131,20 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-elevate-your-gaming-learn-xbox-zoom-use/"><u>[New] In 2024, Elevate Your Gaming Learn Xbox Zoom Use</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-step-up-to-stellar-footage-essential-action-cam-addons/"><u>[New] Step Up to Stellar Footage Essential Action Cam Addons</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-surveying-the-spectrum-of-windows-movie-maker-updates/"><u>[New] Surveying the Spectrum of Windows Movie Maker Updates</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-tomorrows-reflection-varied-solutions-for-2024/"><u>[New] Tomorrow’s Reflection Varied Solutions for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-leading-picture-holding-portals/"><u>[Updated] 2024 Approved Leading Picture Holding Portals</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-simplify-your-screen-with-smart-edits-on-heavy-duty-tiktoks/"><u>[Updated] 2024 Approved Simplify Your Screen with Smart Edits on Heavy-Duty TikToks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-seamlessly-incorporate-video-game-banners/"><u>[Updated] How to Seamlessly Incorporate Video Game Banners</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-seamless-audio-edits-with-garageband-features/"><u>[Updated] Seamless Audio Edits with GarageBand Features</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-video-upgrade-pathway-sdr-to-hdri-transformation-techniques/"><u>[Updated] The Ultimate Video Upgrade Pathway SDR to HDRI Transformation Techniques</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/20-viral-tiktok-anime-ideas-for-2024/"><u>20 Viral Tiktok Anime Ideas for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-top-obs-software-insights-screen-recorder-capabilities-uncovered/"><u>2024 Approved Top OBS Software Insights Screen Recorder Capabilities Uncovered</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/fast-techniques-to-recover-deleted-reddit-posts/"><u>Fast Techniques to Recover Deleted Reddit Posts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-bring-back-your-gone-desktop-symbols-in-windows-10-step-by-step-solution/"><u>How to Bring Back Your Gone Desktop Symbols in Windows 10: Step-by-Step Solution</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-crafting-memes-with-ease-top-7-tools-unveiled/"><u>[New] Crafting Memes with Ease Top 7 Tools Unveiled</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-dissemination-techniques-sharing-your-podcast-on-instagram/"><u>[Updated] 2024 Approved Dissemination Techniques Sharing Your Podcast on Instagram</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-how-to-create-awesome-instagram-videos-templates-and-tips-for-2024/"><u>[Updated] How To Create Awesome Instagram Videos [Templates & Tips] for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-the-art-of-podcast-scheduling-for-2024/"><u>[Updated] Mastering the Art of Podcast Scheduling for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-on-the-go-motion-dampener-for-videography-for-2024/"><u>[Updated] On-the-Go Motion Dampener for Videography for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-art-of-engaging-viewers-alive-in-the-age-of-virtual-gatherings/"><u>[Updated] The Art of Engaging Viewers Alive in the Age of Virtual Gatherings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-the-full-potential-of-picsart-a-comprehensive-review/"><u>2024 Approved Explore the Full Potential of PicsArt - A Comprehensive Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-sharpen-aesthetic-focus-learning-border-techniques-for-insta-videos/"><u>2024 Approved Sharpen Aesthetic Focus Learning Border Techniques for Insta-Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/avoiding-motion-illusions-tips-for-vr-users-for-2024/"><u>Avoiding Motion Illusions Tips for VR Users for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/bypassing-glitches-effective-fixes-for-cod-vanguards-freezing-problems/"><u>Bypassing Glitches: Effective Fixes for COD Vanguard's Freezing Problems</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/decoding-the-magic-of-dynamic-range-capture/"><u>Decoding the Magic of Dynamic Range Capture</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elite-6-software-for-audiovisual-translation/"><u>Elite 6 Software for Audio/Visual Translation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-lava-yuva-2-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Lava Yuva 2 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/spawn-a-shared-chuckle-for-2024/"><u>Spawn a Shared Chuckle for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-cameras-for-capturing-sporting-moments-for-2024/"><u>Top Cameras for Capturing Sporting Moments for 2024</u></a></li>
 </ul></div>
 

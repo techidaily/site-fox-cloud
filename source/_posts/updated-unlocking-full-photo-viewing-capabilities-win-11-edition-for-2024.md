@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Full Photo Viewing Capabilities  Win 11 Edition for 2024\""
-date: 2024-09-21T16:10:18.393Z
-updated: 2024-09-28T16:03:59.886Z
+date: 2024-09-30T20:04:47.116Z
+updated: 2024-10-03T18:00:17.277Z
 tags: 
   - screen-recording
   - ai video
@@ -70,22 +70,15 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -102,22 +95,22 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -127,6 +120,13 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -153,17 +153,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-break-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion/"><u>[Updated] In 2024, Break Down Long-Form Videos The Insider's Guide to YouTube Chapter Inclusion</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-method-for-removing-downloaded-youtube-videos/"><u>[Updated] In 2024, Method for Removing Downloaded YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-recover-disappearing-watch-icon-for-fb-users/"><u>[Updated] In 2024, Recover Disappearing Watch Icon for FB Users</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-calming-chorus-proven-voices-aid-sleep/"><u>[Updated] In 2024, The Calming Chorus Proven Voices Aid Sleep</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-androidiphones-ultimate-arvr-game-list/"><u>2024 Approved Android/iPhone's Ultimate AR/VR Game List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-exploring-periscopes-offerings-no-cost-entry-and-signup-process/"><u>2024 Approved Exploring Periscope's Offerings No Cost Entry & Signup Process</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-guide-to-top-templates-for-youtube-previews/"><u>2024 Approved Guide to Top Templates for YouTube Previews</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-image-hoarders-destination-list/"><u>2024 Approved Prime Image Hoarders' Destination List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-watchers-whispers-essential-websites-for-got-sound-files/"><u>2024 Approved The Watchers' Whispers Essential Websites for GoT Sound Files</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/hybrid-gpu-success-windows-10-tamed-by-nvidia-and-intel-switches/"><u>Hybrid GPU Success: Windows 10 Tamed by Nvidia and Intel Switches</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-increasing-video-popularity-persisting-with-cc-on-youtube/"><u>In 2024, Increasing Video Popularity Persisting with CC on YouTube</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-apple-iphone-15-pro-max-fixed-drfone-by-drfone-virtual-ios/"><u>iSpoofer is not working On Apple iPhone 15 Pro Max? Fixed | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-get-real-with-your-logitech-webcam-recording/"><u>[New] 2024 Approved Get Real with Your Logitech Webcam Recording</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-quintessential-screenplays-among-varied-genres/"><u>[New] In 2024, Quintessential Screenplays Among Varied Genres</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-insiders-guide-to-captivating-youtube-headlines/"><u>[New] The Insider's Guide to Captivating YouTube Headlines</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-your-guide-to-retracing-fbs-most-watched-videos-now-for-2024/"><u>[New] Your Guide to Retracing FB’s Most-Watched Videos, Now for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-total-control-guide-powerdirector-user-manual-for-2024/"><u>[Updated] Total Control Guide PowerDirector User Manual for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/5-prime-destinations-for-finding-and-downloading-legal-funny-tunes-online/"><u>5 Prime Destinations for Finding and Downloading Legal Funny Tunes Online</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-linguistic-pro-mondly-clinches-the-title/"><u>Become a Linguistic Pro: Mondly Clinches the Title</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/efficient-file-transfers-5-methods-for-pc-for-2024/"><u>Efficient File Transfers 5 Methods for PC for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-driver-upgrade-tips-for-the-asus-maximus-x-hero-system/"><u>Effortless Driver Upgrade Tips for the ASUS Maximus X Hero System</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-best-approach-to-enhancing-your-4k-vision-with-a-new-lens/"><u>In 2024, The Best Approach to Enhancing Your 4K Vision with a New Lens</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-vivo-s17-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Vivo S17</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-xiaomi-redmi-note-12t-pro-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Xiaomi Redmi Note 12T Pro Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

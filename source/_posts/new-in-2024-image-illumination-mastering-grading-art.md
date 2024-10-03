@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Image Illumination  Mastering Grading Art\""
-date: 2024-09-15T17:09:17.378Z
-updated: 2024-09-21T16:21:35.976Z
+date: 2024-09-28T18:34:23.880Z
+updated: 2024-10-03T20:58:11.232Z
 tags: 
   - screen-recording
   - ai video
@@ -75,9 +75,23 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
 
@@ -97,6 +111,13 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2Select the specific video portion
 
 #####
@@ -108,6 +129,19 @@ First, you need to select the specific video portion you want to change the colo
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step3Apply the color correction preset that you want then click ok
 
@@ -203,12 +237,18 @@ Overall, Color grading is the process of video editing to have an excellent look
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-find-out-which-phones-make-the-best-friends-with-gear-vr/"><u>[Updated] 2024 Approved Find Out Which Phones Make the Best Friends with Gear VR</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-night-avenger-black-vs-day-defender-silver/"><u>[Updated] 2024 Approved Night Avenger (Black) VS Day Defender (Silver)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-expert-audacity-tricks-for-premium-audio/"><u>[Updated] Expert Audacity Tricks for Premium Audio</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-harmonizing-your-camera-and-drone-with-a-pro-gimbal/"><u>[Updated] Harmonizing Your Camera and Drone with a Pro Gimbal</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-streamlined-mov-recording-tactics-on-windows-11-platforms-for-2024/"><u>[Updated] Streamlined .MOV Recording Tactics on Windows 11 Platforms for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-vivo-v30-lite-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Vivo V30 Lite 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://win-forum.techidaily.com/boost-your-pcs-performance-on-windows-11-by-securing-extra-disk-space-with-proven-techniques/"><u>Boost Your PC's Performance on Windows 11 by Securing Extra Disk Space with Proven Techniques</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-must-have-3d-model-systems-in-animation/"><u>In 2024, Must-Have 3D Model Systems in Animation</u></a></li>
+<li><a href="https://win11.techidaily.com/path-to-power-from-bat-to-windows-exe-file-format/"><u>Path to Power: From .bat to Windows EXE File Format</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/synergy-of-style-and-functionality-in-ae-plugins-for-2024/"><u>Synergy of Style and Functionality in AE Plugins for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/top-20-youtube-friendly-facebook-video-editors-for-2024/"><u>Top 20 YouTube-Friendly Facebook Video Editors for 2024</u></a></li>
+</ul></div>
 

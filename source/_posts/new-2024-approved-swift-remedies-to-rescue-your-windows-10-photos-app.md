@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Swift Remedies to Rescue Your Windows 10 Photos App\""
-date: 2024-09-25T16:12:54.398Z
-updated: 2024-09-28T16:11:54.398Z
+date: 2024-10-02T17:47:19.523Z
+updated: 2024-10-03T21:49:46.058Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
@@ -73,19 +80,19 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Solution 3: Reset it
@@ -121,10 +128,10 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -134,13 +141,6 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -167,22 +167,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-chuckle-cache-timed-humor-categorized-by-occasion/"><u>[New] 2024 Approved Chuckle Cache Timed Humor Categorized by Occasion</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-shutter-excellence-roundup-top-6-incredible-4k-dslrs-for-2024/"><u>[New] Shutter Excellence Roundup Top 6 Incredible 4K DSLRs for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-selecting-the-top-cameras-for-smooth-twitch-broadcasts/"><u>[Updated] 2024 Approved Selecting the Top Cameras for Smooth Twitch Broadcasts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-download-mastery-securing-the-livestream-lifeline/"><u>[Updated] Download Mastery Securing the Livestream Lifeline</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-gaming-at-its-peak-platform-9-insights-for-2024/"><u>[Updated] Gaming at Its Peak Platform #9 Insights for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-how-to-effortlessly-convert-spoken-language-into-written-content-using-microsoft-word/"><u>[Updated] In 2024, How to Effortlessly Convert Spoken Language Into Written Content Using Microsoft Word</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-smartphone-photographers-guide-to-top-5-android-editors/"><u>[Updated] In 2024, Smartphone Photographers' Guide to Top 5 Android Editors</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-honor-magic-5-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Honor Magic 5 Activity | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-honor-magic-6-lite-frp-bypass-by-drfone-android/"><u>About Honor Magic 6 Lite FRP Bypass</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/callers-audio-logger-iphone-24-for-2024/"><u>Caller's Audio Logger IPhone '24 for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/capture-engaging-shots-using-strategic-leading-lines-iphone/"><u>Capture Engaging Shots Using Strategic Leading Lines (iPhone)</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-a-step-by-step-guide-to-gopro-time-lapse-mastery/"><u>In 2024, A Step-by-Step Guide to GoPro Time-Lapse Mastery</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-chuckle-cheat-sheet-perfectly-timed-memes/"><u>In 2024, Chuckle Cheat Sheet Perfectly Timed Memes</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-samsung-galaxy-a14-4g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Samsung Galaxy A14 4G Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-definitive-guide-to-classic-anime-themes-for-2024/"><u>The Definitive Guide to Classic Anime Themes for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-utorrent-issues-top-7-quick-fix-strategies-for-non-responsiveness/"><u>Troubleshooting Utorrent Issues: Top 7 Quick Fix Strategies for Non-Responsiveness</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-list-of-online-cartoon-destinations-a-guide-to-the-best-websites/"><u>Ultimate List of Online Cartoon Destinations: A Guide to the Best Websites</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-essential-checklist-for-using-zoom-on-your-windows-pc/"><u>[New] 2024 Approved The Essential Checklist for Using Zoom on Your Windows PC</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-cultivate-connections-agrigames-to-gather-friends-on-farms-for-2024/"><u>[New] Cultivate Connections AgriGames to Gather Friends on Farms for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-sharp-smudge-free-shooting-with-gopro-for-2024/"><u>[New] Sharp, Smudge-Free Shooting with GoPro for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-diversifying-audience-across-30plus-online-venues/"><u>[Updated] 2024 Approved Diversifying Audience Across 30+ Online Venues</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-optimize-video-views-with-these-top-5-link-shrinkers/"><u>[Updated] Optimize Video Views with These Top 5 Link Shrinkers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unleash-creativity-androids-leading-drawing-software-selection-for-2024/"><u>[Updated] Unleash Creativity Android's Leading Drawing Software Selection for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-tecno-camon-20-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Tecno Camon 20 Pro 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/skyrocket-your-periscope-live-transmission-time-for-2024/"><u>Skyrocket Your Periscope Live Transmission Time for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-lenovo-thinkphone-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Lenovo ThinkPhone with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-fortnites-voice-chat-problems-with-these-speedy-and-effective-tips/"><u>Solve Fortnite's Voice Chat Problems with These Speedy & Effective Tips</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/swift-transformation-androids-best-vid-upgrades-for-2024/"><u>Swift Transformation Android's Best Vid Upgrades for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/synergy-strategies-for-ig-and-tiktok-for-2024/"><u>Synergy Strategies for IG & TikTok for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ultimate-camera-guide-2024s-premium-choices/"><u>Ultimate Camera Guide 2024'S Premium Choices</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Crafting an Affordable DIY Google VR System at Home"
-date: 2024-09-27T16:10:45.577Z
-updated: 2024-09-28T16:11:29.700Z
+date: 2024-09-27T21:45:53.503Z
+updated: 2024-10-03T18:14:20.628Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -59,16 +59,10 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -84,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -110,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/728afd7e20b349094de30222af4ebc05eabd7a8ee
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -141,18 +135,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-final-cut-pro-for-beginners-the-definitive-starter-pack/"><u>[New] Final Cut Pro for Beginners The Definitive Starter Pack</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-exploring-the-possibilities-of-360-degree-fisheye-images/"><u>[New] In 2024, Exploring the Possibilities of 360-Degree Fisheye Images</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unmatched-playwrights-arena/"><u>[New] In 2024, Unmatched Playwright's Arena</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-zenful-beats-top-10-free-downloads-for-serene-meditation/"><u>[New] Zenful Beats - Top 10 Free Downloads for Serene Meditation</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-building-striking-soundbite-trailers-for-podcasts/"><u>[Updated] 2024 Approved Building Striking Soundbite Trailers for Podcasts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-resolving-faulty-airdrop-functionality-on-apple-devices/"><u>[Updated] 2024 Approved Resolving Faulty Airdrop Functionality on Apple Devices</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/3-ways-to-erase-iphone-se-2022-when-its-locked-within-seconds-by-drfone-ios/"><u>3 Ways to Erase iPhone SE (2022) When Its Locked Within Seconds</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-nokia-c300-frp-bypass-by-drfone-android/"><u>About Nokia C300 FRP Bypass</u></a></li>
-<li><a href="https://win-blog.techidaily.com/call-of-duty-warzone-bug-on-pacific-crash-explained-and-solved/"><u>Call Of Duty Warzone Bug on Pacific Crash Explained and Solved</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-install-the-most-recent-update-for-your-brother-hl-l2370dw-printer-driver/"><u>Download and Install the Most Recent Update for Your Brother HL-L2370DW Printer Driver</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-6s-plus-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 6s Plus Without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/master-memes-access-to-premium-free-designs-for-2024/"><u>Master Memes Access to Premium FREE Designs for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-the-no-right-click-issue-on-a-windows-10-computer/"><u>Troubleshooting the No-Right-Click Issue on a Windows 10 Computer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-superior-vistas-for-digital-viewership/"><u>[New] 2024 Approved Superior Vistas for Digital Viewership</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-dive-into-dreamland-asmrs-guide-for-quality-rest-for-2024/"><u>[New] Dive Into Dreamland ASMR's Guide for Quality Rest for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-how-to-choose-a-camera-gimbal-for-your-drone/"><u>[New] How to Choose a Camera Gimbal for Your Drone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-efficient-chromebook-screen-logger/"><u>[New] In 2024, Efficient Chromebook Screen Logger</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-efficiently-piecing-together-google-collage-projects/"><u>[New] In 2024, Efficiently Piecing Together Google Collage Projects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-evaluating-m1s-capabilities-for-heavy-duty-media-editing/"><u>[New] In 2024, Evaluating M1's Capabilities for Heavy-Duty Media Editing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-troubleshooting-tips-fixing-srt-from-premiere-freeze/"><u>[New] In 2024, Troubleshooting Tips Fixing SRT From Premiere Freeze</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-precision-and-power-top-5-text-plugins-for-after-effects-creativity-for-2024/"><u>[New] Precision and Power Top 5 Text Plugins for After Effects Creativity for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-perfect-pairing-finding-top-beats-for-unwrapping-videos/"><u>[Updated] In 2024, Perfect Pairing Finding Top Beats for Unwrapping Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-picking-between-filmora-and-democracy-creator-for-edits/"><u>[Updated] In 2024, Picking Between Filmora and Democracy Creator for Edits</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-experts-techniques-for-clearing-figma-backdrops/"><u>[Updated] The Expert's Techniques for Clearing Figma Backdrops</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/humor-hacks-create-memes-free-and-easy-for-2024/"><u>Humor Hacks Create Memes Free and Easy for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-from-novice-to-pro-steps-in-online-streaming/"><u>In 2024, From Novice to Pro Steps in Online Streaming</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-htc-vive-experience-without-nausea/"><u>In 2024, Navigating HTC Vive Experience Without Nausea</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-scaling-up-on-igtv-through-powerful-hash-tagging/"><u>In 2024, Scaling Up on IGTV Through Powerful Hash Tagging</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-guide-to-editbox-suite-reviewed/"><u>In 2024, Ultimate Guide to EditBox Suite, Reviewed</u></a></li>
+<li><a href="https://techidaily.com/is-your-xiaomi-redmi-note-12r-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Xiaomi Redmi Note 12R working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/professional-edge-in-instagram-videos-with-green-screen-tech-for-2024/"><u>Professional Edge in Instagram Videos with Green Screen Tech for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlocking-docs-transcription-feature-a-beginners-guide/"><u>Unlocking Docs' Transcription Feature A Beginner’s Guide</u></a></li>
 </ul></div>
 

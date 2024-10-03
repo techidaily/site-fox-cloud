@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  '3DR' Alone  Unpackaging a Single User Review\""
-date: 2024-09-17T21:41:13.108Z
-updated: 2024-09-21T18:18:56.633Z
+date: 2024-09-29T20:55:36.332Z
+updated: 2024-10-03T18:22:56.701Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -72,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
  People call 3DR Solo one of the most impressive drone with minimal complexities in design. It is the best product for cinematographic needs and you could easily imagine it hovering on the top to capture scenes for Hollywood movies. You will find a 5200mAh battery on top portion of this drone, located near power button. It appears little heavier with the gimbal, camera and battery installation, the overall weight goes up to 3.35 pounds. Note that, you need to get your drone registered with FAA to organise its flights because the weight goes above 0.5 pounds limit. You will find indicating LEDs on this device that keep on indicating full status during its flights and they can be observed in day light too. Users need to connect this device with a smartphone or iOS device to avail full control as well as to get live preview of shoots.
@@ -88,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
 #### 6\. Camera
@@ -101,6 +122,13 @@ thumbnail: https://thmb.techidaily.com/4aaf8bbfbdfb57b83b54a7e30f7b8f03d80755a12
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -125,12 +153,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-expanding-possibilities-with-virtual-reality-for-2024/"><u>[New] Expanding Possibilities with Virtual Reality for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-explore-the-best-9-online-platforms-featuring-advanced-3d-typography-for-2024/"><u>[New] Explore the Best 9 Online Platforms Featuring Advanced 3D Typography for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-leading-apps-for-editing-dji-drone-film-content-for-2024/"><u>[New] Leading Apps for Editing DJi Drone Film Content for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-no-cost-treasures-aplus-ae-template-collections-for-2024/"><u>[New] No-Cost Treasures A+ AE Template Collections for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-complete-inshot-editors-handbook-to-smoothness-for-2024/"><u>[New] The Complete Inshot Editor's Handbook to Smoothness for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-how-to-add-music-in-premiere-pro/"><u>[Updated] 2024 Approved How To Add Music In Premiere Pro?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-comprehensive-guide-to-microsoft-azure-transcription-service/"><u>[Updated] Comprehensive Guide to Microsoft Azure Transcription Service</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-free-youtube-spotlight-with-two-key-approaches-for-2024/"><u>[Updated] Free YouTube Spotlight with Two Key Approaches for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-integrating-automatic-speech-conversion-into-powerpoint-presentations/"><u>[Updated] In 2024, Integrating Automatic Speech Conversion Into PowerPoint Presentations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-reimagined-sony-bdp-s6700-experience/"><u>[Updated] In 2024, The Reimagined Sony BDP-S6700 Experience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-leading-websites-for-digital-3d-text-with-a-golden-accent/"><u>2024 Approved Leading Websites for Digital 3D Text with a Golden Accent</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-iphone-data-migration-tools-for-pc-mac-and-windows-top-5-picks/"><u>Best iPhone Data Migration Tools for PC, Mac & Windows: Top 5 Picks</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/evolving-views-on-artificial-intelligence-insights-from-the-abbyy-blog/"><u>Evolving Views on Artificial Intelligence: Insights From the ABBYY Blog</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-apple-iphone-x-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot Apple iPhone X Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-lenovo-thinkphone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-open-the-snipping-tool-in-windows-11/"><u>How to Open the Snipping Tool in Windows 11</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-poco-x5-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Poco X5</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/innovating-highest-standard-canon-sequences-for-2024/"><u>Innovating Highest Standard Canon Sequences for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/virtual-forum-transcription-for-2024/"><u>Virtual Forum Transcription for 2024</u></a></li>
+</ul></div>
 

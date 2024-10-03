@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Digitizing Memories  From Stillness to Movement\""
-date: 2024-09-23T16:06:12.794Z
-updated: 2024-09-28T16:14:20.823Z
+date: 2024-09-30T18:20:50.028Z
+updated: 2024-10-03T19:13:55.730Z
 tags: 
   - screen-recording
   - ai video
@@ -91,13 +91,6 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
@@ -110,6 +103,13 @@ Just above the timeline, you can find all kinds of tools to edit your video. For
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
 #### 4\. Add effects, transitions, audio, and more
@@ -119,10 +119,10 @@ As stated above, you can find a wide range of video editing options to explore i
 ![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
@@ -133,6 +133,13 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5\. Export your video
 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
@@ -140,20 +147,13 @@ That’s it! After making all the changes, you can preview your video on the rig
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## More Editing Tips for Creating Memorable Videos
 
@@ -212,18 +212,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-weaving-a-web-of-sound-youtube-music-and-video-integration-guide/"><u>[New] 2024 Approved Weaving a Web of Sound YouTube Music & Video Integration Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-innovative-approaches-to-achieve-stunning-gopro-time-lapse/"><u>[Updated] 2024 Approved Innovative Approaches to Achieve Stunning GoPro Time Lapse</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-which-should-you-use-obs-studio-or-bandicam/"><u>[Updated] 2024 Approved Which Should You Use, OBS Studio or Bandicam?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-your-first-step-to-successful-streaming/"><u>[Updated] Your First Step to Successful Streaming</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-smart-techniques-to-capture-gotomeet-participants/"><u>2024 Approved Smart Techniques to Capture GoToMeet Participants</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-music-files-on-realme-narzo-60-pro-5g-by-fonelab-android-recover-music/"><u>Complete guide for recovering music files on Realme Narzo 60 Pro 5G</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/converting-social-media-audio-to-personalized-mobile-alerts-for-2024/"><u>Converting Social Media Audio to Personalized Mobile Alerts for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-intel-nvme-drivers-fast-simple-and-efficient-installation/"><u>Download Intel NVME Drivers Fast: Simple and Efficient Installation</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-oppo-reno-9a-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Oppo Reno 9A</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-expert-edits-for-an-uncluttered-tiktok-archive/"><u>In 2024, Expert Edits for an Uncluttered TikTok Archive</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-ultimate-seal-on-cyberspace-expeditions/"><u>In 2024, Ultimate Seal on Cyberspace Expeditions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/musicality-in-whatsapp-expressions-for-2024/"><u>Musicality in WhatsApp Expressions for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-from-apple-iphone-8-by-drfone-ios/"><u>Unlock Apple ID without Phone Number From Apple iPhone 8</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-expert-windows-and-macos-screen-capture-tools-for-2024/"><u>[New] Expert Windows & macOS Screen Capture Tools for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-inventory-types-of-fb-video-ratios/"><u>[New] Inventory Types of FB Video Ratios</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-echoai-creatives-harmonizing-image-edits/"><u>[Updated] 2024 Approved EchoAI Creatives Harmonizing Image Edits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-revolutionizing-reality-top-vr-peripherals/"><u>[Updated] In 2024, Revolutionizing Reality Top VR Peripherals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/crafting-an-elite-home-computer-for-professional-4k-editing/"><u>Crafting an Elite Home Computer for Professional 4K Editing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dynamic-techniques-to-fast-track-language-skills/"><u>Dynamic Techniques to Fast-Track Language Skills</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-explore-10-elite-streamers-offering-freshest-live-content/"><u>In 2024, Explore 10 Elite Streamers Offering Freshest Live Content</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-voice-to-text-conversion-in-ms-word-a-step-by-step-guide/"><u>In 2024, Mastering Voice-to-Text Conversion in MS Word A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-premier-9-high-quality-online-mic-capture-solutions-23/"><u>In 2024, Premier 9 High-Quality Online Mic Capture Solutions ('23)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-vivo-y100a-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Vivo Y100A</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mastering-nba-game-streaming-a-comprehensive-guide-for-2024/"><u>Mastering NBA Game Streaming A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/pinning-down-content-5-superior-free-video-downloader-tools/"><u>Pinning Down Content 5 Superior Free Video Downloader Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/securely-store-and-download-linkedin-videos-heres-the-top-6-list-for-2024/"><u>Securely Store & Download LinkedIn Videos - Here's the Top 6 List for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/transformative-video-techniques-for-zoom-mastery-for-2024/"><u>Transformative Video Techniques for Zoom Mastery for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unseen-razers-restore-detection-via-razer-synapse-on-windows/"><u>Unseen Razers? Restore Detection via Razer Synapse on Windows</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-exploring-the-leading-online-video-communication-apps-beyond-omegle-top-picks-for-2024/"><u>Updated Exploring the Leading Online Video Communication Apps Beyond Omegle Top Picks for 2024</u></a></li>
 </ul></div>
 

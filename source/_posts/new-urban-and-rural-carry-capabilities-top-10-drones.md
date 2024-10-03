@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Urban and Rural Carry Capabilities  Top 10 Drones\""
-date: 2024-09-23T16:01:33.841Z
-updated: 2024-09-28T16:07:34.547Z
+date: 2024-09-30T17:38:29.098Z
+updated: 2024-10-03T19:27:48.276Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
@@ -102,11 +95,31 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
 
 ![vulcan uav airlift](https://images.wondershare.com/filmora/article-images/vulcan-uav-airlift.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Airlift series is one of Vulcan's heaviest lifting drones to date. With the ability to lift and move a payload of about 30 kg, this drone has a tough, and durable frame that allows it to display such extraordinary strength and grace. Its central core is made of transparent tubes which allow users to easily check in on the power systems, while also making sure that all vitals are protected, which makes the Vulcan UAV Airlift the ideal machine for working in rugged environments.
 
@@ -114,25 +127,11 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
 
 #### 3\. Vulcan UAV Raven
 
 ![vulcan uav raven](https://images.wondershare.com/filmora/article-images/vulcan-uav-raven.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The Vulcan UAV Raven is an absolute workhorse of a multicopter. Purpose-designed to be able to handle the toughest of jobs, this drone is capable of carrying a payload of up to 20 kg thanks to its high-grade carbon fibre and aluminium frame. This tough design is also one of the most safe drones on the market, as the Vulcan UAV Raven is built to be able to survive within the tough, and demanding worlds of both commercial and personal usage.
 
@@ -148,18 +147,25 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -186,21 +192,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-best-practices-for-seamless-transitions-using-b-roll/"><u>[New] 2024 Approved Best Practices for Seamless Transitions Using B Roll</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-vivavideo-unpacked-a-comprehensive-overview/"><u>[New] 2024 Approved VivaVideo Unpacked A Comprehensive Overview</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-voice-modification-on-tiktok-a-step-by-step-guide/"><u>[New] Mastering Voice Modification on TikTok A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-revamping-your-videos-top-5-mac-editors-at-hand/"><u>[New] Revamping Your Videos? Top 5 Mac Editors at Hand</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-going-against-the-tide-of-tradition-innovative-techniques-for-yt-rewinds-for-2024/"><u>[Updated] Going Against the Tide of Tradition Innovative Techniques for YT Rewinds for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-elevate-your-gaming-the-funimate-way/"><u>[Updated] In 2024, Elevate Your Gaming - The Funimate Way</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-top-8-effective-sub-to-srt-converters-for-online-windows-and-mac/"><u>[Updated] Top 8 Effective SUB to SRT Converters for Online, Windows & Mac</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/complete-directors-guide-to-powerdirector-24-software/"><u>Complete Director's Guide to PowerDirector '24 Software</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-the-leading-chatgpt-prompts-for-enhanced-engagement-curated-selection-from-github/"><u>Discover the Leading ChatGPT Prompts for Enhanced Engagement - Curated Selection From GitHub</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-judges-announce-date-for-ruling-on-trump-ban/"><u>Facebook Judges Announce Date for Ruling on Trump Ban</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gratuitous-high-quality-ideas-for-profitable-slideshows-for-2024/"><u>Gratuitous, High-Quality Ideas for Profitable Slideshows for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-best-radio-drama-scripts/"><u>In 2024, Best Radio Drama Scripts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-dominate-any-space-the-ultimate-metaverse-device-guide/"><u>In 2024, Dominate Any Space The Ultimate Metaverse Device Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Motorola Moto G Stylus 5G (2023)? | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-of-the-powerful-stanley-j5c09-corded-circular-saw/"><u>In-Depth Analysis of the Powerful Stanley J5C09 Corded Circular Saw</u></a></li>
-<li><a href="https://techidaily.com/will-mov-files-play-on-motorola-edge-40-by-aiseesoft-video-converter-play-mov-on-android/"><u>Will MOV files play on Motorola Edge 40 ?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-screen-capturing-on-snapchat-a-guide-for-smartphones/"><u>[New] 2024 Approved Screen Capturing on Snapchat - A Guide for Smartphones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-superior-15-camcorders-for-uhd-video/"><u>[New] 2024 Approved Superior 15 Camcorders for UHD Video</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-blueprint-for-successful-metaverse-campaigns/"><u>[New] In 2024, Blueprint for Successful Metaverse Campaigns</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-multiplayer-movies-review-poker-edition/"><u>[New] In 2024, MULTIPLAYER MOVIES REVIEW Poker Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-shooting-hdr-on-iphone-a-comprehensive-guide/"><u>[New] Shooting HDR on iPhone A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-overview-of-dji-flyer-x20-virtual-reality-lenses/"><u>[Updated] In 2024, Overview of DJi Flyer X20 Virtual Reality Lenses</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-premium-vector-graphics-the-ultimate-10-site-list/"><u>[Updated] In 2024, Premium Vector Graphics The Ultimate 10 Site List</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-tailored-transfer-process-for-mobile-camera-roll-on-snapchat/"><u>[Updated] In 2024, Tailored Transfer Process for Mobile Camera Roll on Snapchat</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-top-8-android-multi-user-video-chat-tools/"><u>[Updated] In 2024, Top 8 Android Multi-User Video Chat Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ultimate-playlist-of-film-scores-and-tracks/"><u>[Updated] In 2024, Ultimate Playlist of Film Scores & Tracks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-revolutionize-replies-enhancing-interaction-on-telegram-platforms/"><u>[Updated] Revolutionize Replies Enhancing Interaction on Telegram Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elite-aerial-assistants-tailored-for-gopro-cinematographers-for-2024/"><u>Elite Aerial Assistants Tailored For GoPro Cinematographers for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-15-pro-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 15 Pro without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-zero-to-hero-your-first-time-streaming-to-youtube/"><u>In 2024, From Zero to Hero Your First Time Streaming to Youtube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-gaggraphs-craft-your-own-jest/"><u>In 2024, GagGraphs Craft Your Own Jest</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonic-windows-tunes-hub/"><u>In 2024, Harmonic Windows Tunes Hub</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-guide-to-add-personalized-soundfilters-on-windows-photos/"><u>In 2024, Step-by-Step Guide to Add Personalized Sound/Filters on Windows Photos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mastering-the-art-of-saving-trending-youtube-clips-via-efficient-video-downloading-tools/"><u>Mastering the Art of Saving Trending YouTube Clips via Efficient Video Downloading Tools</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Xiaomi Redmi Note 12 Pro 4G? | Dr.fone</u></a></li>
 </ul></div>
 
