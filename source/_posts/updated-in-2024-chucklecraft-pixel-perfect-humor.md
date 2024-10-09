@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, ChuckleCraft  Pixel-Perfect Humor\""
-date: 2024-09-14T16:34:35.452Z
-updated: 2024-09-21T22:29:01.916Z
+date: 2024-10-06T23:46:19.583Z
+updated: 2024-10-09T02:34:07.937Z
 tags: 
   - screen-recording
   - ai video
@@ -79,17 +79,44 @@ Adobe After Effects is normally used for staging of a film, video game, and tele
 
 ![create meme in after effects](https://images.wondershare.com/filmora/article-images/2022/07/create-meme-in-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Steps to Use Adobe After Effects as Meme Maker**
 
 Step1 Open a brand-new After Effects document. And set your image's dimensions to any suitable size, preferably 700 by 700 pixels (for memes), to have enough space. In the image below, the file has been selected.
 
 ![set image after effects](https://images.wondershare.com/filmora/article-images/2022/07/set-image-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 If you want to adjust the size of the background layer, you can unlock it by clicking twice. Drag the desired image onto the After Effects workspace, after uploading it.
 
 Step3 Select your image in the layer panel and then change its size to fit in the required spot. Write the text for the top of the image. Instead of typing the bottom content, use the Duplicate Layer option to duplicate the top text and then change it, as required.
 
 ![change image size ae](https://images.wondershare.com/filmora/article-images/2022/07/change-image-size-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 After embellishments, you can save the file in your desired extension: By clicking on the file button and saving it.
 
@@ -117,13 +144,6 @@ Step3 Create the project by clicking on ‘create’ which will complete the wor
 
 ![start creating meme premiere](https://images.wondershare.com/filmora/article-images/2022/07/start-creating-meme-premiere.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: Adobe Alternative to Create Memes - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 An application software compatible with both MAC and Windows is [Wondershare's Filmora](https://tools.techidaily.com/wondershare/filmora/download/). it is a well-known and comprehensive video editor. Designed under the guidance of professional video makers. With the help of this technology, we can easily create memes and excel in the entertainment industry. Its interface is incredibly user-friendly, and the instructions are simple to follow.
@@ -147,10 +167,10 @@ Step2 Add your desired text and put it in the right position.
 ![add desired text](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Complete your meme and download it.
@@ -158,10 +178,17 @@ Step3 Complete your meme and download it.
 ![complete meme and download it](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -179,10 +206,10 @@ Step1 Open the Filmora meme maker on your browser. Drag or upload your file on t
 ![open filmora meme maker](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Add your desired text and put it in the right position.
@@ -194,10 +221,10 @@ Step3 Complete your meme and download it.
 ![complete meme and download it](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -226,5 +253,26 @@ There are a number of different tools available on internet for meme making. And
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-photo-editing-essentials-cut-out-unwanted-borders-smoothly/"><u>[New] Photo Editing Essentials Cut Out Unwanted Borders Smoothly</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-of-altering-photographic-contrast/"><u>[New] The Art of Altering Photographic Contrast</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-secret-to-capturing-seamless-google-classesmeets-for-2024/"><u>[New] The Secret to Capturing Seamless Google Classes/Meets for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-gamble-for-peace-10-chill-out-choices/"><u>[Updated] Gamble for Peace 10 Chill-Out Choices</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-leaderboard-of-the-best-web-capture-apps/"><u>[Updated] In 2024, The Leaderboard of the Best Web Capture Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-aim-for-excellence-prime-iphone-angles-for-professional-shots/"><u>2024 Approved Aim for Excellence Prime iPhone Angles for Professional Shots</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-blur-it-out-free-iphones-tips-for-crisp-image-edits/"><u>2024 Approved Blur It Out Free iPhones Tips for Crisp Image Edits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-devise-giggle-generating-pictorials-for-giphy/"><u>2024 Approved Devise Giggle-Generating Pictorials for Giphy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-from-online-video-beats-to-your-phones-ringtones-a-simple-guide/"><u>2024 Approved From Online Video Beats to Your Phone's Ringtones A Simple Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-playful-media-extractor-evaluation/"><u>2024 Approved Playful Media Extractor Evaluation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-refining-zoom-visuals-proactive-measures/"><u>2024 Approved Refining Zoom Visuals Proactive Measures</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-tactical-titles-trailer-producer/"><u>2024 Approved Tactical Titles Trailer Producer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-full-breakdown-mastering-facetune-for-photo-enhancement/"><u>2024 Approved The Full Breakdown Mastering Facetune for Photo Enhancement</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-future-of-mobile-entertainment-is-here-discover-the-best-49-free-compression-tools/"><u>2024 Approved The Future of Mobile Entertainment Is Here Discover the Best 49 Free Compression Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How To Pause Life360 Location Sharing For Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-realme-narzo-n55-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Realme Narzo N55 online without jailbreak</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-a34-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Samsung Galaxy A34 5G</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-pioneering-techniques-for-cross-social-video-sharing/"><u>In 2024, Pioneering Techniques for Cross-Social Video Sharing</u></a></li>
+<li><a href="https://techidaily.com/remove-oppo-lock-screen-without-password-oppo-a38-by-drfone-android-unlock-android-unlock/"><u>Remove Oppo Lock Screen without Password(Oppo A38)</u></a></li>
+</ul></div>
 

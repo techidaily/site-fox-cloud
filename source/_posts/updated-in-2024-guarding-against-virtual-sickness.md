@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Guarding Against Virtual Sickness"
-date: 2024-09-20T21:00:06.326Z
-updated: 2024-09-21T17:43:17.876Z
+date: 2024-10-03T02:45:32.609Z
+updated: 2024-10-08T21:43:06.093Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -62,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -86,12 +100,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-breaking-down-vimeo-streaming-giants-secrets-revealed/"><u>[New] 2024 Approved Breaking Down Vimeo Streaming Giant's Secrets Revealed</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transformative-strategies-in-creating-engaging-fb-content-for-2024/"><u>[Updated] Transformative Strategies in Creating Engaging FB Content for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-editing-excellence-choosing-premium-4k-displays/"><u>2024 Approved Editing Excellence Choosing Premium 4K Displays</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-exploring-high-frame-rate-filming-with-yi/"><u>2024 Approved Exploring High Frame Rate Filming with YI</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-find-your-favorites-ranking-of-8-preferred-mp3-extractors-android/"><u>2024 Approved Find Your Favorites Ranking of 8 Preferred MP3 Extractors (Android)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-mp4-enhancement-the-ultimate-srt-integration/"><u>2024 Approved Mastering MP4 Enhancement The Ultimate SRT Integration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-reinstating-old-school-windows-photo-viewer-on-modern-win10/"><u>2024 Approved Reinstating Old-School Windows Photo Viewer on Modern Win10</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-step-by-step-guide-to-creating-curved-graphics/"><u>2024 Approved Step-by-Step Guide to Creating Curved Graphics</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/advanced-remote-collaboration-tools-post-zoom-for-2024/"><u>Advanced Remote Collaboration Tools, Post-Zoom for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/free-top-12-best-idle-games-you-can-try-on-pc/"><u>FREE Top 12 Best Idle Games You Can Try on PC</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/groundbreaking-method-to-insert-gopro-clips-into-virtual-panoramic-movies-for-2024/"><u>Groundbreaking Method to Insert GoPro Clips Into Virtual Panoramic Movies for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-immersive-inventory-visualization/"><u>In 2024, Immersive Inventory Visualization</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-your-story-your-stage-youtube-video-mastery/"><u>In 2024, Your Story, Your Stage YouTube Video Mastery</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/public-vs-private-ai-collaborative-vs-secure-worlds/"><u>Public Vs. Private AI: Collaborative Vs. Secure Worlds</u></a></li>
+<li><a href="https://win11.techidaily.com/top-5-tactics-to-master-wsl-2-in-windows-environments/"><u>Top 5 Tactics to Master WSL 2 in Windows Environments</u></a></li>
+</ul></div>
 

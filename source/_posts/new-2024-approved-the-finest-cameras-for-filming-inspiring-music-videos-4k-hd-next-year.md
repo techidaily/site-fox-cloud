@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Finest Cameras for Filming Inspiring Music Videos (4K HD) Next Year\""
-date: 2024-09-28T19:36:52.338Z
-updated: 2024-10-03T16:23:06.191Z
+date: 2024-10-03T22:28:43.152Z
+updated: 2024-10-08T21:45:47.692Z
 tags: 
   - screen-recording
   - ai video
@@ -43,6 +43,13 @@ You may also like: [11 Best Bridge Cameras \[Ultimate Review\]](https://tools.te
 
 ## Part 1: 10 Best Cameras for Music Videos
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. [Sony Alpha a6500 Mirrorless Camera](https://www.amazon.com/Sony-Alpha-Mirrorless-Digital-Camera/dp/B01M586Y9R/ref=sr%5F1%5F5?keywords=sony%2Balpha%2Ba6500&qid=1583238912&sr=8-5)
 
 ![Sony Alpha a6500 ](https://images.wondershare.com/filmora/filmorapro/sony-alpha-a6500.jpg)
@@ -63,6 +70,13 @@ Weighing less than a pound without a lens (and not much more if you use one), th
 * 4k Movie Options Available
 
 **Pros:** The Sony Alpha a6500 Mirrorless Camera is very easy to hold, so filming is simple. It has a heavy-duty body and is compatible with multiple lens options. Also, it is more affordable than similar options.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. [Canon EOS 5D Mark IV](https://www.amazon.com/Canon-Mark-Frame-Digital-Camera/dp/B01KURGS9E/ref=sr%5F1%5F4?keywords=Canon+EOS+5D+Mark+IV&qid=1583239074&sr=8-4)
 
@@ -88,6 +102,19 @@ With options for both still and 4k video, the Canon EOS 5D Mark IV is the latest
 
 ![Blackmagic URSA Mini 4K Digital Cinema](https://images.wondershare.com/filmora/filmorapro/blackmagic-design-ursa-4k-cinema.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Price**: $2,995.00 MSRP
 
 Among [4K video cameras](https://tools.techidaily.com/wondershare/filmora/download/), the Blackmagic Design URSA Mini 4K Digital Cinema camera has been designed to record high-end, cinema-quality video with its high-end 4k global shutter sensor. The balanced body is easy to hold and perfect for any filmmaker. Also designed with an EF mount that can mount the most popular lenses, you can get any sort of “look” you’re seeking from your films.
@@ -102,16 +129,22 @@ Among [4K video cameras](https://tools.techidaily.com/wondershare/filmora/downlo
 
 **Pros:** The Blackmagic Design URSA Mini 4K Digital Cinema is super easy to hold and transport, which makes it a top choice for many who are looking to do fast-action shots for music videos. It’s great for filmmakers of any experience level, heavy-duty build for any situation, and has high-quality output for all video content that it produces.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4. [PANASONIC LUMIX ZS200 4K Digital Camera](https://www.amazon.com/PANASONIC-DC-ZS200K-Megapixel-VARIO-ELMAR-Stabilization/dp/B079QYMWZX/ref=sr%5F1%5F5?crid=3EDB6B2L8IOTM&keywords=panasonic+lumix+dmc-lx5&qid=1583239342&sprefix=Panasonic+Lumix+DMC-LX5%2Caps%2C364&sr=8-5)
 
 ![PANASONIC LUMIX ZS200](https://images.wondershare.com/filmora/filmorapro/panasonic-lumix-dmc-lx5.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Price**: $799.99 MSRP
 
@@ -127,16 +160,16 @@ If you’ve been looking for a travel size camera that you can use for those on-
 
 **Pros:** The Lumix ZS200 is one of the most affordable options that offer this level of portability, while also providing high-quality images. It’s straightforward to adjust and use, and it has an attached lens (with customizability options that are easy to work out).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5. [Canon EOS 60D](https://www.amazon.com/Canon-CMOS-Digital-Camera-Body/dp/B0040JHVCC/ref=sr%5F1%5F3?keywords=Canon+EOS+60D&qid=1583239432&sr=8-3)
 
 ![Canon EOS 60D](https://images.wondershare.com/filmora/filmorapro/canon-eos-60D.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Price:** $999.99 MSRP
 
@@ -152,13 +185,6 @@ The Canon EOS 60D is designed to be a powerhouse for creatives. It’s one of th
 * 9 Point AF system
 
 **Pros:** Heavy-duty cameras are great if you’re planning on traveling with them a lot, and the Canon EOS 60D provides that security. Many people find this to be a camera that is easy to get used to. It’s also incredibly customizable for video, audio, and still pictures, allowing you to get the best results every time that you take it out in the field.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6. [Nikon D3300 DSLR](https://www.amazon.com/Nikon-D3300-DSLR-Body-Black/dp/B07Z7DRXFZ/ref=sr%5F1%5F3?crid=1EFQ4ACDJFHNF&keywords=nikon+d3300&qid=1583239514&sprefix=Nikon+D3300%2Caps%2C359&sr=8-3)
 
@@ -177,13 +203,6 @@ If you’re looking to put together a music video that has a lifelike quality to
 * 2 MP CMOS DX sensor
 
 **Pros:** Budding videographers love the multiple options and ease of use that this particular camcorder provides. Many families have found that it’s a good, safe option for teens and young adults that may be dipping their toes into videography for the first time. Since it’s so popular for new videographers, there are dozens of tutorials that can help you to learn how to use its settings as effectively and quickly as possible.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7. [Canon VIXIA HF G20 Camcorder](https://www.amazon.com/Canon-Camcorder-30-4mm-304mm-Touchscreen-Internal/dp/B01MDV2I3L/ref=sr%5F1%5F3?keywords=Canon+VIXIA+HF+G20+HD+Camcorder&qid=1583239604&sr=8-3)
 
@@ -205,22 +224,15 @@ No matter how much experience you have in videography, you will find that the Ca
 
 **Pros:** This particular camcorder has both line in and mic in settings, which make it a good option for any live streaming you may want to try during the music video filming process. This design also prevents the distortion of audio for music videos. The VIXIA HF G20 is also a lightweight camcorder, which allows for the most versatility in regards to motion and catching the perfect shot. It also has in-camera controls for color gradation and other settings.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8. [JVC GY-HM250U Ultra 4K](https://www.amazon.com/JVC-GY-HM250U-Professional-Camcorder-Microphone/dp/B07D43NYXR/ref=sr%5F1%5F1?keywords=JVC+GY-HM250U+Ultra+4K+HD&qid=1583239683&sr=8-1)
 
 ![JVC GY-HM250U Ultra 4K](https://images.wondershare.com/filmora/filmorapro/jvc-gy-hm250u-ultra-4k.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Price**: $1999.99 MSRP
@@ -242,13 +254,6 @@ Seeking out a full-featured 4k HD camcorder? The JVC GY-HM250U Ultra 4K is a goo
 
 ![Canon EOS Rebel T6 ](https://images.wondershare.com/filmora/filmorapro/canon-eos-rebel-t6-digital-slr-camera.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Price:** $399.99 MSRP
 
 For many aspiring videographers, the Canon EOS Rebel T6 Digital SLR Camera is the standard when they’re looking to get the very best picture in all of their shots. With 18 megapixels and a variety of options available, it’s simple for you to adjust settings so that you can get exactly the look and feel that you’d like to have. Internal mic is of high quality, but you can also use ports to provide external options.
@@ -265,9 +270,23 @@ For many aspiring videographers, the Canon EOS Rebel T6 Digital SLR Camera is th
 
 **Pros:** This particular model of camera is straightforward to use, mainly because it switches quickly between camera and camcorder modes. It boasts a stable battery life so you can always use it out on the go, and you can get extra batteries for a low cost. Multiple audio and visual settings so you can get great-sounding music videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10. [Nikon D7000 DSLR](https://www.amazon.com/dp/B0042X9LC4/ref=psdc%5F3017941%5Ft3%5FB00AXTQQDS)
 
 ![Nikon D7000 DSLR](https://images.wondershare.com/filmora/filmorapro/nikon-d7000-dslr.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Price**: $799.99 MSRP
 
@@ -299,13 +318,6 @@ Panasonic has been a brand long sought out by camera enthusiasts, and this one i
 If you’re seeking out the best camera for music videos and you have a bigger budget, then we think that the Blackmagic Design Digital Cinema Camera is your top choice in this regard.
 
 This high-end camera is going to be pricey for you, but its mini handheld design makes it simple for you to get all of the best shots. This 4k camera is going to give you the best look for your videos every time.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Music Video Camera FAQs
 
@@ -369,24 +381,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-asmrs-role-in-better-nights-expert-vocal-guides/"><u>[New] 2024 Approved ASMR's Role in Better Nights Expert Vocal Guides</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-elite-slow-motion-choosing-the-best-video-cameras/"><u>[New] 2024 Approved Elite Slow Motion Choosing the Best Video Cameras</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-audio-integration-in-digital-photo-albums-for-2024/"><u>[New] Audio Integration in Digital Photo Albums for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pinnacle-top-5-camcorders-for-flexible-filming/"><u>[New] In 2024, Pinnacle Top 5 Camcorders for Flexible Filming</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-ultimate-iphone-slideshow-apps-ranked-6-13-for-2024/"><u>[New] Ultimate iPhone Slideshow Apps Ranked #6-13 for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-advancing-audible-experience-safely-on-spotify-platforms/"><u>[Updated] Advancing Audible Experience Safely on Spotify Platforms</u></a></li>
-<li><a href="https://win-blog.techidaily.com/free-ogvmpeg/"><u>「お使いやすく、高速で - オンラインFREE OGV/MPEGファイル変換」</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-reducing-loudness-gradually-techniques-for-logic-pro-users/"><u>2024 Approved Reducing Loudness Gradually Techniques for Logic Pro Users</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-tecno-pova-5-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Tecno Pova 5</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/fixed-obs-audio-capture-issue-for-2024/"><u>Fixed OBS Audio Capture Issue for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/from-shot-to-spectacle-pro-tips-for-transformative-photographic-edits-for-2024/"><u>From Shot to Spectacle Pro Tips for Transformative Photographic Edits for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/horizon-hurdlers-celebrating-the-most-staying-power-drones/"><u>Horizon Hurdlers Celebrating the Most Staying Power Drones</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-pinterest-video-extraction-top-5-free-tools-ranked/"><u>In 2024, Pinterest Video Extraction Top 5 Free Tools Ranked</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-unveiling-the-secrets-of-iphone-podcast-integration/"><u>In 2024, Unveiling the Secrets of iPhone Podcast Integration</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Itel P40+ | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/samsung-earbuds-and-laptop-pairing-easy-connection-process-explained/"><u>Samsung Earbuds & Laptop Pairing: Easy Connection Process Explained</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-perfect-fix-how-to-alter-your-stories-text-on-insta/"><u>The Perfect Fix: How to Alter Your Stories Text on Insta</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/visionary-screenplay-crafting-hub/"><u>Visionary Screenplay Crafting Hub</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-what-gamers-must-know-about-bandicam/"><u>[New] 2024 Approved What Gamers Must Know About Bandicam</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-explore-creative-photos-applying-radial-blur-techniques-ps/"><u>[Updated] 2024 Approved Explore Creative Photos Applying Radial Blur Techniques PS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ultimate-iphone-strategies-for-flawless-audio-downloads/"><u>[Updated] 2024 Approved Ultimate iPhone Strategies for Flawless Audio Downloads</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-beginners-pathway-to-personalizing-your-game-voice-free-in-free-fire/"><u>[Updated] In 2024, The Beginner's Pathway to Personalizing Your Game Voice, FREE in Free Fire</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-m1-pro-to-m1-max-assessing-the-leap-in-apples-chip-design-for-2024/"><u>[Updated] M1 Pro to M1 Max Assessing the Leap in Apple's Chip Design for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-unlocking-cost-effective-clouds-for-the-budget-conscious-for-2024/"><u>[Updated] Unlocking Cost-Effective Clouds for the Budget-Conscious for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/chrome-compatibility-solving-media-errors/"><u>Chrome Compatibility Solving Media Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-online-appeal-with-strategic-profiles/"><u>Elevate Your Online Appeal with Strategic Profiles</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-integrate-and-operate-with-chatgpt-plug-ins-effectively/"><u>How to Integrate and Operate with ChatGPT Plug-Ins Effectively</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-charting-a-new-course-for-creative-vr-content/"><u>In 2024, Charting a New Course for Creative VR Content</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/navigating-the-world-of-rayman-legends-critically-acclaimed-2d-gaming-adventure-examined/"><u>Navigating the World of Rayman Legends: Critically Acclaimed 2D Gaming Adventure Examined</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/sound-system-advances-announced/"><u>Sound System Advances Announced</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/xsplit-library-downloads-and-critical-perspectives-for-2024/"><u>XSplit Library Downloads and Critical Perspectives for 2024</u></a></li>
 </ul></div>
 

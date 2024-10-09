@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevating Your Audacity Sound Capture Game for 2024"
-date: 2024-09-27T16:34:23.957Z
-updated: 2024-10-03T22:17:28.167Z
+date: 2024-10-02T02:38:36.484Z
+updated: 2024-10-08T16:47:59.627Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Recording using Mac
@@ -61,10 +61,10 @@ Step3In the "Device" section of the Audacity preferences box, choose "Soundflowe
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Export your audio
@@ -115,18 +115,15 @@ Simply select the necessary file format from the drop-down box that appears next
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-transforming-images-the-art-of-applying-luts-in-pro/"><u>[New] 2024 Approved Transforming Images The Art of Applying LUTs in Pro</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-a-step-further-elite-video-editing-hacks-for-tiktok/"><u>[New] A Step Further Elite Video Editing Hacks for TikTok</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-essentials-understanding-whatsapp-calls/"><u>[New] In 2024, The Essentials Understanding WhatsApp Calls</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/op-10-online-yogis-for-peak-physique-and-harmony-for-2024/"><u>[New] Top 10 Online Yogis for Peak Physique and Harmony for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-essentials-of-expertly-editing-images-at-home/"><u>[Updated] 2024 Approved The Essentials of Expertly Editing Images at Home</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-detailed-analysis-of-the-latest-picsart-app-features/"><u>[Updated] In 2024, Detailed Analysis of the Latest PicsArt App Features</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-the-skies-with-xiaomis-4k-drone/"><u>2024 Approved Mastering the Skies with Xiaomi's 4K Drone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-superior-streaming-made-simple-enabling-av1-in-youtube/"><u>2024 Approved Superior Streaming Made Simple Enabling AV1 in YouTube</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-the-benefits-using-chatgpt-as-your-go-to-source-for-wellness-advice/"><u>Discover the Benefits: Using ChatGPT as Your Go-To Source for Wellness Advice</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/gratuito-conversor-online-de-imagens-pcx-para-png-do-movavi/"><u>Gratuito Conversor Online De Imagens PCX Para PNG Do Movavi</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-kinemasters-secrets-to-transition-excellence/"><u>In 2024, Kinemaster's Secrets to Transition Excellence</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/securing-the-right-a-guide-to-accessing-trustedinstaller-in-windows-nul-11/"><u>Securing the Right: A Guide to Accessing TrustedInstaller in Windows Nul 11</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/tips-for-resolving-hardware-failures-detected-during-power-on-self-test-post/"><u>Tips for Resolving Hardware Failures Detected During Power-On Self Test (POST)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-jocular-images-for-apple-devices/"><u>[New] In 2024, Jocular Images for Apple Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-video-innovators-showcase-15-leading-youtube-unboxing-sites/"><u>[Updated] Video Innovators Showcase 15 Leading YouTube Unboxing Sites</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024s-most-economical-cloud-stores-revealed/"><u>2024'S Most Economical Cloud Stores Revealed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beginners-aerial-adventure-top-10-best-kids-drones-for-2024/"><u>Beginner's Aerial Adventure Top 10 Best Kids' Drones for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-se-passcode-without-computer-drfone-by-drfone-ios/"><u>How to Unlock iPhone SE Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/minds-on-trial-best-general-knowledge-channels/"><u>Minds on Trial Best General Knowledge Channels</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/proven-methods-for-youtubers-rapid-subscriber-expansion/"><u>Proven Methods for Youtubers' Rapid Subscriber Expansion</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-ultimate-guide-to-basic-hdr-imaging/"><u>The Ultimate Guide to Basic HDR Imaging</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/unveiling-new-dimensions-past-manycams-scope/"><u>Unveiling New Dimensions Past ManyCam's Scope</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-free-tv-streaming-9-sites-you-need-to-know/"><u>Updated 2024 Approved Free TV Streaming 9 Sites You Need To Know</u></a></li>
 </ul></div>
 

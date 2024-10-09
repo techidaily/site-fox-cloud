@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Efficient Use of Mac's Preview App for 2024\""
-date: 2024-09-28T18:00:35.515Z
-updated: 2024-10-03T20:26:55.599Z
+date: 2024-10-06T02:58:24.670Z
+updated: 2024-10-08T21:32:32.706Z
 tags: 
   - screen-recording
   - ai video
@@ -69,6 +69,13 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -84,13 +91,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 **Step 3: Crop the Photo**
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
 
@@ -120,19 +120,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -148,6 +135,13 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Removing background requires the image to be in PNG format. If the photo you are working on is JPG, Preview prompts with a confirmation box asking your permission to convert the photo from JPG to PNG. You must allow this conversion in order to proceed with the background removal process.
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Combine Images into One
 
@@ -166,10 +160,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
@@ -219,10 +213,10 @@ Choose a destination folder in the **Where** field, select your preferred format
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -250,16 +244,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-quality-sd-card-for-sony-alpha-7s-ii/"><u>[New] 2024 Approved Top Quality SD Card for Sony Alpha 7S II</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-snapchat-screen-recording-mobile-tips-and-tricks/"><u>[New] Snapchat Screen Recording Mobile Tips and Tricks</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-infallible-technique-for-embedding-profile-urls-in-tiktok-for-2024/"><u>[New] The Infallible Technique for Embedding Profile URLs in TikTok for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-digital-media-screening-an-insightful-critique/"><u>[Updated] In 2024, Digital Media Screening - An Insightful Critique</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-strategies-for-creating-a-positive-interview-environment/"><u>[Updated] Strategies for Creating a Positive Interview Environment</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-pixel-perfection-best-video-cameras-for-extended-recording-times/"><u>2024 Approved Pixel Perfection Best Video Cameras for Extended Recording Times</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723017056638-hyperx-cloud-stinger-audio-trouble-heres-how-to-restore-your-mic/"><u>HyperX Cloud Stinger Audio Trouble? Here's How to Restore Your Mic!</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-a34-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy A34 5G by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-tecno-spark-20-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Tecno Spark 20 Without PUK Codes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/midnight-tales-in-motion-evaluating-parental-choices-for-kids-for-2024/"><u>Midnight Tales in Motion Evaluating Parental Choices for Kids for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-unique-language-learning-approach-my-experience-top-10-highlights/"><u>Mondly's Unique Language Learning Approach: My Experience (Top 10 Highlights)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-master-the-art-of-text-sculpting-for-an-astonishing-photos-effect/"><u>[New] In 2024, Master the Art of Text Sculpting for an Astonishing PHOTOS Effect</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-syma-x8c-feature-analysis-for-2024/"><u>[New] Syma X8C Feature Analysis for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-tailoring-your-vtubers-tone-best-app-recommendations-unveiled/"><u>[New] Tailoring Your Vtuber's Tone Best App Recommendations Unveiled</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-guide-to-boosting-views-on-tiktok-unboxings/"><u>[New] The Ultimate Guide to Boosting Views on TikTok Unboxings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-gopro-expertise-unleashed-livestreams-directed-at-periscope-and-facebook/"><u>[Updated] 2024 Approved Gopro Expertise Unleashed Livestreams Directed at Periscope & Facebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-guide-to-understanding-android-lightroom/"><u>[Updated] 2024 Approved The Ultimate Guide to Understanding Android Lightroom</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-visibility-a-comprehensive-guide-to-video-tagging/"><u>[Updated] In 2024, Enhance Visibility A Comprehensive Guide to Video Tagging</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/exclusive-catalog-budget-friendly-image-treasuries-online/"><u>Exclusive Catalog Budget-Friendly Image Treasuries Online</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hands-on-guide-to-easy-synaptics-touchpad-driver-download-and-upkeep/"><u>Hands-On Guide to Easy Synaptics Touchpad Driver Download and Upkeep</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Samsung Galaxy S23? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-prodigy-playgrounds-top-10-roguelike-creations/"><u>In 2024, Prodigy Playgrounds Top 10 Roguelike Creations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/kinemaster-editors-unite-building-fluid-sequences-together-for-2024/"><u>Kinemaster Editors Unite Building Fluid Sequences Together for 2024</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-2024-approved-best-4-elon-musk-voice-generators-to-make-you-sound-like-the-billionaire/"><u>New 2024 Approved Best 4 Elon Musk Voice Generators to Make You Sound Like the Billionaire</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/win11-rev-fixes-resurrected-non-printing-printer/"><u>Win11 Rev Fixes: Resurrected Non-Printing Printer</u></a></li>
 </ul></div>
 

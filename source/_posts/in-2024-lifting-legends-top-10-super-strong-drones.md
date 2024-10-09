@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Lifting Legends  Top 10 Super-Strong Drones\""
-date: 2024-09-16T19:38:21.036Z
-updated: 2024-09-21T18:11:43.713Z
+date: 2024-10-05T16:08:03.996Z
+updated: 2024-10-08T22:30:56.728Z
 tags: 
   - screen-recording
   - ai video
@@ -95,6 +95,13 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
@@ -106,6 +113,13 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 #### 2\. AZ 4K UHD Camera Drone Green Bee 1200
 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
 
@@ -127,9 +141,23 @@ Building off of an already sturdy line of drones, the Freefly ALTA 8 is the perf
 
 ![onyxstar hydra-12](https://images.wondershare.com/filmora/article-images/onyxstar-hydra-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads with absolute ease. Thanks to its 12 motors, this drone is capable of carrying a payload of up to 12 kg effectively and smoothly. Thanks to the HYDRA-12's ability to carry heavy payloads the possibilities for this drone are nearly endless. What is impossible for many drones on the market, the HYDRA-12 will do with great ease. And with a 30 min. flight time, you will have a lot of time in the air to get your job done.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -156,12 +184,18 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-premier-videography-devices-reviewed-2024-selection/"><u>[New] Premier Videography Devices Reviewed - 2024 Selection</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-ultimate-directory-of-freely-licensed-sound-sources-for-2024/"><u>[New] The Ultimate Directory of Freely Licensed Sound Sources for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-choosing-between-vimeo-free-premium-and-pro-membership-levels/"><u>[Updated] 2024 Approved Choosing Between Vimeo Free, Premium & Pro Membership Levels</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-crafting-quality-content-image-submission-for-youtubers/"><u>2024 Approved Crafting Quality Content Image Submission for YouTubers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-drone-dynamics-reimagined-the-hubsan-h501s-breakdown/"><u>2024 Approved Drone Dynamics Reimagined - The Hubsan H501S Breakdown</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-minute-movie-narrative-blueprint/"><u>2024 Approved Minute Movie Narrative Blueprint</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-superior-global-stage-viewings/"><u>2024 Approved Superior Global Stage Viewings</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-itel-a60-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Itel A60 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-realme-narzo-n55-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Realme Narzo N55 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-nikon-j5s-4k-capability/"><u>In 2024, The Ultimate Guide to Nikon J5's 4K Capability</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-samsung-galaxy-z-flip-5-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Samsung Galaxy Z Flip 5</u></a></li>
+</ul></div>
 

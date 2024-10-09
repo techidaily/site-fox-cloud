@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Complementing Narratives with Skillful B-Roll Usage\""
-date: 2024-09-18T23:05:18.045Z
-updated: 2024-09-22T01:53:41.278Z
+date: 2024-10-04T17:19:45.327Z
+updated: 2024-10-08T16:14:35.115Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -49,20 +56,27 @@ On the other hand, cutaways can show how different people react to what is being
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
 
@@ -84,22 +98,21 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -134,5 +147,26 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-spark-interest-and-build-community-through-these-10-igtv-approaches-for-2024/"><u>[New] Spark Interest and Build Community Through These 10 IGTV Approaches for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-swift-method-image-alchemy-into-engaging-youtube-thumbnail-pics/"><u>[New] Swift Method Image Alchemy Into Engaging YouTube Thumbnail Pics</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-comprehending-the-basics-of-whatsapp-calls/"><u>[Updated] Comprehending the Basics of WhatsApp Calls</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-acoustic-ambiance-in-photo-videos/"><u>2024 Approved Acoustic Ambiance in Photo Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-an-in-depth-look-at-basic-and-simplified-hdr-photography/"><u>2024 Approved An In-Depth Look at Basic and Simplified HDR Photography</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-clearing-up-black-screens-in-youtube-playback/"><u>2024 Approved Clearing Up Black Screens in YouTube Playback</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-epic-moments-in-the-race-for-olympic-gold/"><u>2024 Approved Epic Moments in the Race for Olympic Gold</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-fluxvideoart-compile-and-display-on-macos-sierra/"><u>2024 Approved FluxVideoArt Compile & Display on macOS Sierra</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-get-ahead-with-these-must-know-pixlr-techniques/"><u>2024 Approved Get Ahead with These Must-Know Pixlr Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-ideal-cameras-boosting-podcast-clarity/"><u>2024 Approved Ideal Cameras Boosting Podcast Clarity</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-must-have-essentials-for-a-starry-drive-with-your-sj4000/"><u>2024 Approved Must-Have Essentials for a Starry Drive with Your SJ4000</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-smoothest-android-3d-video-streaming/"><u>2024 Approved Smoothest Android 3D Video Streaming</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-srt-conversion-made-easy-a-step-by-step-approach/"><u>2024 Approved SRT Conversion Made Easy A Step-by-Step Approach</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-ultimate-guide-to-crafting-breathtaking-time-lapses-with-gopro/"><u>2024 Approved The Ultimate Guide to Crafting Breathtaking Time-Lapses with GoPro</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-quick-guide-to-restoring-essential-features-of-photo-viewer-on-win11/"><u>A Quick Guide to Restoring Essential Features of Photo Viewer on Win11</u></a></li>
+<li><a href="https://fox-http.techidaily.com/how-to-easily-and-quickly-draw-on-photos-app-in-windows-10/"><u>How to Easily and Quickly Draw on Photos App in Windows 10</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud From your Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshoot-and-resolve-qualcomm-atheros-bluetooth-driver-problems-in-windows-11/"><u>Troubleshoot and Resolve Qualcomm Atheros Bluetooth Driver Problems in Windows 11</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-new-gadgets-and-components-at-toms-hardware-hub/"><u>Unveiling New Gadgets and Components at Tom's Hardware Hub</u></a></li>
+</ul></div>
 

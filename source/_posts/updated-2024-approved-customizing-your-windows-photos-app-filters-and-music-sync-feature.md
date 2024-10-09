@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Customizing Your Window's Photos App  Filters & Music Sync Feature\""
-date: 2024-09-19T16:05:51.011Z
-updated: 2024-09-21T23:55:49.027Z
+date: 2024-10-06T04:44:08.071Z
+updated: 2024-10-08T19:36:51.643Z
 tags: 
   - screen-recording
   - ai video
@@ -70,17 +70,45 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -105,18 +133,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-maximizing-efficiency-with-azures-audio-transcription/"><u>[New] 2024 Approved Maximizing Efficiency with Azure's Audio Transcription</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-under-200-high-speed-action-cameras-for-captivating-shots/"><u>[New] 2024 Approved Under $200 High-Speed Action Cameras for Captivating Shots</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-decode-the-world-unveiling-the-top-22-platforms-for-video-translation-for-2024/"><u>[New] Decode the World Unveiling the Top 22 Platforms for Video Translation for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-dissecting-the-benefits-of-using-sns-hdr-over-others-for-2024/"><u>[New] Dissecting the Benefits of Using SNS HDR over Others for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-critical-take-on-sharex-expert-evaluations-and-alternates-for-2024/"><u>[New] The Critical Take on ShareX Expert Evaluations & Alternates for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nleashing-potential-the-art-of-youtube-seo-keywords/"><u>[New] Unleashing Potential The Art of YouTube SEO Keywords</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-effortless-conversion-of-srt-to-subtitles-subc-for-2024/"><u>[Updated] Effortless Conversion of SRT to Subtitles (SUBC) for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevate-console-experience-with-personalized-audio-settings/"><u>[Updated] Elevate Console Experience with Personalized Audio Settings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-from-static-to-spinning-mastering-photo-effects-in-illustrator-for-2024/"><u>[Updated] From Static to Spinning Mastering Photo Effects in Illustrator for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-joining-the-twitter-community-from-scratch-for-2024/"><u>[Updated] Joining the Twitter Community From Scratch for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/4-things-you-must-know-about-apple-iphone-xs-max-activation-lock-by-drfone-ios/"><u>4 Things You Must Know About Apple iPhone XS Max Activation Lock</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-narzo-n53-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Narzo N53</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-advanced-equipment-guide-top-5-innovative-slow-motion-devices/"><u>In 2024, Advanced Equipment Guide Top 5 Innovative Slow Motion Devices</u></a></li>
+<li><a href="https://techidaily.com/stellar-data-recovery-for-iphone-xs-max-failed-to-recognize-my-iphone-how-to-fix-it-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Stellar Data Recovery for iPhone XS Max failed to recognize my iPhone. How to fix it? | Stellar</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-instructions-for-transforming-your-footage-into-mp4-using-vlc-media-player-including-common-fixes/"><u>Step-by-Step Instructions for Transforming Your Footage Into MP4 Using VLC Media Player [Including Common Fixes]</u></a></li>
+</ul></div>
 

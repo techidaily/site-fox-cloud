@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Canva's Magic  How to Banish the Unwanted Backdrop\""
-date: 2024-09-18T16:35:14.120Z
-updated: 2024-09-21T20:04:23.841Z
+date: 2024-10-05T16:24:15.439Z
+updated: 2024-10-09T01:17:07.324Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,13 @@ Canva is beloved by bloggers and small businesses for its simple, intuitive desi
 
 Here's a quick step-by-step guide on how to use Canva to remove the background from an image on PC or mobile:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### On PC
 
 To remove the image's background in Canva using your PC, follow the steps below:
@@ -55,6 +62,13 @@ Step4 From the left side menu, click **"Background Remover."** Wait for the back
 
 ![background remover in canva](https://images.wondershare.com/filmora/article-images/2023/03/background-remover-in-canva.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Once the background is disappeared, click **"Apply"** to save your changes.
 
 ### On Mobile
@@ -64,6 +78,13 @@ The following steps will help you remove the image's background in Canva using i
 Step1 Install Canva from [App Store](https://apps.apple.com/us/app/canva-design-photo-video/id897446215) or [Google Play Store](https://play.google.com/store/apps/details?id=com.canva.editor&hl=en&gl=US) in first step. Launch the app and tap the purple "Plus" icon at the bottom-right of the screen.
 
 ![remove an image background in canva on mobile](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-canva-on-mobile.png)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Go to the **"More Ways To Create"** section and tap the **"See All"** option. Select your image and tap **"Create"** at the top right corner of the screen.
 
@@ -82,10 +103,10 @@ Canva's Erase and Restore function makes it easy to remove image backgrounds. [W
 ![erase and restore options in canva](https://images.wondershare.com/filmora/article-images/2023/03/erase-and-restore-options-in-canva.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### To erase an element from an image
@@ -105,10 +126,16 @@ Step2 Click on the **area** you want to restore.
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** These tools are only available in the Canva web and desktop version.
@@ -158,10 +185,10 @@ Step2 Let the tool process your image, and the background will be removed instan
 ![remove an image background in pixcut](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-pixcut.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -172,6 +199,13 @@ In the end, we've recommended PixCut as the best alternative to Canva for removi
 
 Hopefully, you've found this article helpful and can now optimize your images in any way you like!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facilitate Functions Of Removing Image's Background More Accurately
 
 Follwing the above guidance, you can remove the image's background with Canva with ease. However, there are two must-see functions in Canva which facilitate the accuracy of background removal.
@@ -181,10 +215,10 @@ Canva's Erase and Restore function makes it easy to remove image backgrounds. [W
 ![erase and restore options in canva](https://images.wondershare.com/filmora/article-images/2023/03/erase-and-restore-options-in-canva.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### To erase an element from an image
@@ -194,13 +228,6 @@ Step1 Select the **Erase** brush from the left panel under the **Background Remo
 Step2 Adjust the size of the **erase tool** to fit the element you want to remove.
 
 Step3 Select the **element** you want to remove.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### To undo an erase
 
@@ -286,5 +313,22 @@ Hopefully, you've found this article helpful and can now optimize your images in
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-tailored-video-edits-for-exceptional-vimeo-content/"><u>[New] 2024 Approved Tailored Video Edits for Exceptional Vimeo Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-integrating-comfort-with-efficiency-modern-approaches-to-office-design-for-2024/"><u>[New] Integrating Comfort with Efficiency Modern Approaches to Office Design for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ptimizing-youtube-audio-speed-desktop-and-mobile-way/"><u>[New] Optimizing YouTube Audio Speed - Desktop & Mobile Way</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-harmony-hub-innovations-showcased/"><u>[Updated] Harmony Hub Innovations Showcased</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-10-must-have-plug-ins-for-final-cut-cinematography/"><u>2024 Approved 10 Must-Have Plug-Ins for Final Cut Cinematography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-decoding-the-magic-of-full-sphere-video/"><u>2024 Approved Decoding the Magic of Full Sphere Video</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-delving-into-vrs-potential-and-limitations/"><u>2024 Approved Delving Into VR's Potential and Limitations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-expert-iphoneandroid-blur-application-guide/"><u>2024 Approved Expert iPhone/Android Blur Application Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-expert-recommendations-for-full-rotation-shots/"><u>2024 Approved Expert Recommendations for Full Rotation Shots</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-garmins-action-camera-triumph-a-comprehensible-look-at-ultra-30/"><u>2024 Approved Garmin's Action Camera Triumph - A Comprehensible Look at Ultra 30</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-premium-video-experience-best-tools-to-upgrade-your-downloads/"><u>2024 Approved Premium Video Experience Best Tools to Upgrade Your Downloads</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-asus-ax6000-rt-ax88u-revealed-unmatched-features-of-a-cutting-edge-wi-fi-6-router/"><u>Comprehensive Asus AX6000 (RT-AX88U) Revealed: Unmatched Features of a Cutting-Edge Wi-Fi 6 Router</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-samsung-galaxy-a54-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your Samsung Galaxy A54 5G Lock Screen Password</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-vn-video-editor-for-pc-a-brief-review/"><u>Updated VN Video Editor For PC - A Brief Review</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/why-teachers-can-benefit-from-ai-integration-unveiling-the-8-reasons-for-optimism-not-fear/"><u>Why Teachers Can Benefit From AI Integration - Unveiling the 8 Reasons for Optimism, Not Fear</u></a></li>
+</ul></div>
 

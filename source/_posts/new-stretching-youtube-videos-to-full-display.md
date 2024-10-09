@@ -1,7 +1,7 @@
 ---
 title: "[New] Stretching YouTube Videos to Full Display"
-date: 2024-09-17T16:26:08.319Z
-updated: 2024-09-21T20:22:08.109Z
+date: 2024-10-03T21:55:16.150Z
+updated: 2024-10-08T16:14:57.219Z
 tags: 
   - screen-recording
   - ai video
@@ -63,9 +63,23 @@ Step3Thereafter, drag and drop the YouTube video file from Project Media folder 
 
 ![drag video file into timeline](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on that portion of the video which you want to zoom in. Mark the start and end of the video for pan and zoom effect. Play the video to watch how the effect unfolds. Finally, click on OK button.
 
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
 
@@ -84,6 +98,13 @@ Step3After uploading, click on the Video and select Editor option from the left 
 Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom in means the timeline gets zoomed so that you can check out the video frame by frame to find out all the details in any portion of the video.
 
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -97,13 +118,6 @@ Step2Drag and drop the target YouTube video on Filmora into Project Media folder
 
 ![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
 
 ![drag video file into timeline](https://images.wondershare.com/filmora/guide/filmora-split-button.jpg)
@@ -113,13 +127,6 @@ Step4From Crop window, go to Pan & Zoom section. Place the rectangular box on th
 ![go to pan zoom section](https://images.wondershare.com/filmora/guide/crop-video-filmora.jpg)
 
 If you want, you can export the edited video in any desired file format directly from [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Way 3\. Use YouTube Built-in Editor
 
@@ -138,10 +145,17 @@ Step4You will find Zoom in and Zoom out icon below the video preview. Here, zoom
 ![zoom in out youtube video](https://images.wondershare.com/filmora/article-images/2022/07/zoom-in-youtube-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -170,5 +184,18 @@ There are several ways you can zoom into YouTube videos to check out the desired
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pushing-boundaries-with-intova-x-action-tech/"><u>[New] In 2024, Pushing Boundaries with Intova X Action Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-beyond-vlc-uncovering-hidden-streaming-gems/"><u>[Updated] 2024 Approved Beyond VLC Uncovering Hidden Streaming Gems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-a-step-by-step-guide-through-the-landscape-of-srt-for-2024/"><u>[Updated] A Step-by-Step Guide Through the Landscape of SRT for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-amplify-creativity-in-photography-innovative-pixlr-hacks-for-2024/"><u>[Updated] Amplify Creativity in Photography Innovative Pixlr Hacks for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-ultimate-5-gaming-monitors-for-playstation-and-xbox/"><u>[Updated] In 2024, The Ultimate 5 Gaming Monitors for PlayStation & Xbox</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/examining-the-tech-in-djis-phantom-3-prototype/"><u>Examining the Tech in DJI's Phantom 3 Prototype</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exclusive-list-the-ultimate-linkedin-training-programs-for-professionals/"><u>Exclusive List: The Ultimate LinkedIn Training Programs for Professionals</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-honor-x9a-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Honor X9a Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/transform-your-wmv-videos-to-ogg-at-no-cost-quick-and-simple-guide/"><u>Transform Your WMV Videos to OGG at No Cost - Quick and Simple Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-the-potential-of-folder-multiplication-on-windows-devices/"><u>Unlocking the Potential of Folder Multiplication on Windows Devices</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-how-to-remove-vocals-from-any-song-top-8-song-lyrics-removers/"><u>Updated How to Remove Vocals From Any Song Top 8 Song Lyrics Removers</u></a></li>
+</ul></div>
 

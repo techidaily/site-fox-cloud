@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Taking Solo Shots From Videos in Windows 10 Photos Interface\""
-date: 2024-09-29T22:09:49.275Z
-updated: 2024-10-03T21:00:06.563Z
+date: 2024-10-08T02:48:39.106Z
+updated: 2024-10-08T23:33:35.689Z
 tags: 
   - screen-recording
   - ai video
@@ -64,10 +64,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
@@ -80,28 +80,15 @@ We are explaining the solutions here –
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
@@ -120,10 +107,10 @@ Here comes the guide –
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -131,6 +118,13 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -157,22 +151,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-scripts-that-define-movie-industrys-variety/"><u>[New] 2024 Approved Scripts That Define Movie Industry's Variety</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-from-capture-to-clarity-the-complete-guide-for-garageband-editors-for-2024/"><u>[New] From Capture to Clarity The Complete Guide for GarageBand Editors for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-how-to-embrace-tiktok-as-a-macbook-enthusiast/"><u>[New] How to Embrace TikTok as a MacBook Enthusiast</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-social-exploration-pinpointing-popular-videos-on-the-worlds-biggest-network-for-2024/"><u>[New] Social Exploration Pinpointing Popular Videos on the World's Biggest Network for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-cutting-edge-video-editing-mastering-green-screen-integration/"><u>[Updated] 2024 Approved Cutting Edge Video Editing Mastering Green Screen Integration</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-exploring-digital-marketing-frontiers-the-metaverse-for-2024/"><u>[Updated] Exploring Digital Marketing Frontiers The Metaverse for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-premier-selection-ultimate-omnidirectional-cameras/"><u>[Updated] In 2024, Premier Selection Ultimate Omnidirectional Cameras</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oppo-find-x7-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Oppo Find X7 Ultra | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-capture-the-stars-top-skies-sites-reviewed/"><u>In 2024, Capture the Stars Top Skies Sites Reviewed</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-lava-blaze-curve-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Lava Blaze Curve 5G FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-elite-gimbal-solutions-youtube-creators-stabilizing-allies/"><u>In 2024, Elite Gimbal Solutions YouTube Creators' Stabilizing Allies</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Vivo G2? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-iphone-time-travel-mastering-prolonged-photo-captures/"><u>In 2024, IPhone Time Travel Mastering Prolonged Photo Captures</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-tutorial-transform-your-iphone-into-an-external-hard-drive-for-seamless-data-saving-options/"><u>Step-by-Step Tutorial: Transform Your iPhone Into an External Hard Drive for Seamless Data Saving Options</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-12th-circle-of-conversation-personalizing-whatsapp-bios-by-signs-for-2024/"><u>The 12Th Circle of Conversation - Personalizing WhatsApp Bios by Signs for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/web-funnies-forge/"><u>Web Funnies Forge</u></a></li>
-<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-samsung-galaxy-a05-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Samsung Galaxy A05? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-telehealth-advancements-with-vr-integrations/"><u>[New] 2024 Approved Telehealth Advancements with VR Integrations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-8-tablets-for-photo-editing-worth-a-try/"><u>[New] 2024 Approved Top 8 Tablets for Photo Editing Worth a Try</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-4k-uxga-gaming-the-asus-mg28uq-explained-for-2024/"><u>[New] 4K UXGA Gaming - The ASUS MG28UQ Explained for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-frozen-olympics-spectacular-2022-highlights/"><u>[New] Frozen Olympics Spectacular 2022 Highlights</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-masterclass-the-foremost-image-enhancers-on-iphones-and-androids/"><u>[New] Masterclass The Foremost Image Enhancers on iPhones and Androids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-filters-through-windows-10-photos-extracting-picture-moments/"><u>[Updated] Filters Through Windows 10 Photos Extracting Picture Moments</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-formulating-gripping-narratives-for-your-vlogs-for-2024/"><u>[Updated] Formulating Gripping Narratives for Your Vlogs for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-monetary-milestones-pewdiepies-income-summary/"><u>[Updated] Monetary Milestones PewDiePie’s Income Summary</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-premier-editing-suites-for-device-app-development/"><u>[Updated] Premier Editing Suites for Device App Development</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-complete-blueprint-for-iphone-podcast-downloads/"><u>[Updated] The Complete Blueprint for iPhone Podcast Downloads</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-how-to-capture-your-nintendo-switch-game-video/"><u>2024 Approved How To Capture Your Nintendo Switch Game Video</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/budget-friendly-filmmaking-choose-the-best-6-action-cameras-for-2024/"><u>Budget-Friendly Filmmaking Choose the Best 6 Action Cameras for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-stop-your-gas-station-simulator-from-keeping-the-computer-down/"><u>How to Stop Your Gas Station Simulator From Keeping the Computer Down!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-xiaomi-13-ultra-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Xiaomi 13 Ultra Unlock Without Password</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Motorola Moto G13? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-top-10-live-broadcast-gaming-applications/"><u>In 2024, Top 10 Live Broadcast Gaming Applications</u></a></li>
+<li><a href="https://games-able.techidaily.com/integrating-hrtf-knowledge-for-strategic-gameplay-in-valorant/"><u>Integrating HRTF Knowledge for Strategic Gameplay in Valorant</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/superior-web-destinations-alarm-ringtone-downloads-guide-for-2024/"><u>Superior Web Destinations Alarm Ringtone Downloads Guide for 2024</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/wie-man-digitale-rechteinschrankungen-von-drmed-kindle-und-epub-buchern-entfernt/"><u>Wie Man Digitale Rechteinschränkungen Von DRMed Kindle Und EPUB Büchern Entfernt</u></a></li>
 </ul></div>
 

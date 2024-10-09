@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Navigating Mac Preview with Ease  Ultimate Guide\""
-date: 2024-10-02T17:07:25.803Z
-updated: 2024-10-03T19:20:11.594Z
+date: 2024-10-01T22:39:44.207Z
+updated: 2024-10-08T17:37:37.791Z
 tags: 
   - screen-recording
   - ai video
@@ -85,6 +85,19 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -114,10 +127,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -137,10 +150,10 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Combine Images into One
@@ -160,10 +173,10 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
@@ -212,13 +225,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -244,22 +250,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-navigating-links-between-instagram-and-tiktok/"><u>[New] 2024 Approved Navigating Links Between Instagram and TikTok</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-full-spectrum-visionary-eizos-cg318-4k-reviewed-and-revealed-for-2024/"><u>[New] Full Spectrum Visionary EIZO's CG318-4K Reviewed and Revealed for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-benqs-visionary-approach-to-4k-monitors-unraveled-by-the-bl2711u-review/"><u>[New] In 2024, BenQ's Visionary Approach to 4K Monitors, Unraveled by the BL2711U Review</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-best-global-music-stream-service/"><u>[New] In 2024, Best Global Music Stream Service</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-choosing-livestream-software-the-obs-vs-streamlabs-dilemma/"><u>[New] In 2024, Choosing Livestream Software The OBS Vs. Streamlabs Dilemma</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aximizing-youtube-gains-a-comprehensive-approach-for-mobile-monetization-for-2024/"><u>[New] Maximizing YouTube Gains A Comprehensive Approach for Mobile Monetization for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-streamlined-steps-to-watching-vr-on-your-ios-device/"><u>[New] Streamlined Steps to Watching VR on Your IOS Device</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-humor-hacks-simplifying-the-process-of-meme-creation/"><u>[Updated] 2024 Approved Humor Hacks Simplifying the Process of Meme Creation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-adding-youtube-music-to-video/"><u>[Updated] In 2024, Adding YouTube Music To Video</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-innovative-image-editing-on-ios-best-tools-to-erase-objects-from-photos/"><u>[Updated] Innovative Image Editing on iOS Best Tools to Erase Objects From Photos</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-revolutionary-6-sustainable-minecraft-homes-for-2024/"><u>[Updated] Revolutionary 6 Sustainable Minecraft Homes for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-samsungs-new-edge-the-2023-bd-j5900-reviewed/"><u>2024 Approved Samsung's New Edge The 2023 BD-J5900 Reviewed</u></a></li>
-<li><a href="https://techidaily.com/different-methods-for-resetting-samsung-galaxy-s23-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Samsung Galaxy S23 Phones with Screen Locked and Not | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/improve-print-quality-a-guide-to-update-epson-wf-7620-printer-drivers-on-your-windows-computer/"><u>Improve Print Quality: A Guide to Update Epson WF-7620 Printer Drivers on Your Windows Computer</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-poco-c55-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Poco C55 Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-ranked-youtube-extractors-pc-mobile-and-more-tips-for-2024/"><u>Top-Ranked YouTube Extractors - PC, Mobile, and More Tips for 2024</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-evaluating-magix-samplitudes-market-position-against-other-audio-editing-suites/"><u>Updated 2024 Approved Evaluating MAGIX Samplitudes Market Position Against Other Audio Editing Suites</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dive-into-sonys-high-res-xperia-the-4k-phone-unveiled/"><u>[New] In 2024, Dive Into Sony's High-Res Xperia The 4K Phone Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-peephole-to-private-facebook-worlds/"><u>[New] Peephole to Private Facebook Worlds</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-spark-innovation-with-these-androids-top-graphic-designers/"><u>[Updated] 2024 Approved Spark Innovation with These Android's Top Graphic Designers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-eizos-boundaries-reached-the-cg318-4k-reviewed-for-2024/"><u>[Updated] EIZO's Boundaries Reached The CG318-4K Reviewed for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elite-windows-melody-makers/"><u>[Updated] Elite Windows Melody Makers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-how-to-make-a-favorite-tiktok-sound-your-caller-id/"><u>2024 Approved How to Make a Favorite TikTok Sound Your Caller ID</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-your-asus-atk0110-acpi-drivers-instantly-free-downloads-available-now/"><u>Get Your ASUS ATK0110 Acpi Drivers Instantly - Free Downloads Available Now</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-iphone-x-by-drfone-ios/"><u>How to jailbreak iCloud locked iPhone X</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-motorola-moto-g-5g-2023-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Motorola Moto G 5G (2023) with Video Repair Utility on Windows? </u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-apple-iphone-14-pro-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From Apple iPhone 14 Pro? 5 Tips You Must Know</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/laughter-layouts-design-meme-magic-on-kapwing-for-2024/"><u>Laughter Layouts Design Meme Magic on Kapwing for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/the-comprehensive-guide-to-usb-mouse-drivers-in-win71011/"><u>The Comprehensive Guide to USB-Mouse Drivers in Win7/10/11</u></a></li>
 </ul></div>
 

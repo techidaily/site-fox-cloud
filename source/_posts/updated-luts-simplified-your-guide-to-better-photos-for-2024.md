@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] LUTs Simplified  Your Guide to Better Photos for 2024\""
-date: 2024-10-02T18:23:28.802Z
-updated: 2024-10-03T22:13:44.921Z
+date: 2024-10-02T04:07:04.631Z
+updated: 2024-10-09T02:22:44.789Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,10 @@ Warm or cold tones and bold or washed-out styles are all options provided by the
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to use LUTs using Photoshop CC?
@@ -70,13 +70,6 @@ LUTs come pre-installed with programs, but you may also purchase them online and
 
 ![how to use luts using Photoshop cc](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Choose Adjustment Layer
 
 1. Opt for Color Lookup.
@@ -86,10 +79,10 @@ Choose Adjustment Layer
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 load 3d lut
@@ -107,6 +100,19 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 3. To do so, go to the 'Adjustments' tab and select the 'Color Lookup' button.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Here's the second one
 
 1. Open the LUT folder, which changes the version to your version.
@@ -123,6 +129,13 @@ Grow Together
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Closing Thoughts:
 
 LUTs are extremely useful since they allow photographers to save time by using the same LUTs or a set of LUTs for several photographs. Instead of making individual modifications to your photographs, you may color grade them all with the same LUTs. This gives a series a more unified vibe. You can even put them up as Actions in Photoshop.
@@ -132,13 +145,6 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](#)
 
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Closing Thoughts:
 
@@ -170,24 +176,15 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-adobe-premiere-power-enhancing-your-youtube-presence/"><u>[New] 2024 Approved Adobe Premiere Power Enhancing Your YouTube Presence</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-spectacular-8-cam-enhancers-for-improved-video-feeds/"><u>[New] 2024 Approved Spectacular 8 Cam Enhancers for Improved Video Feeds</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-democratize-your-digital-dedication-increase-your-follower-count-for-2024/"><u>[New] Democratize Your Digital Dedication Increase Your Follower Count for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-smile-worthy-edits-ranked-funny-photo-enhancers/"><u>[New] In 2024, Smile-Worthy Edits Ranked Funny Photo Enhancers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-strategies-for-effective-use-of-classroom-media-for-2024/"><u>[New] Strategies for Effective Use of Classroom Media for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-unlock-your-fcp-potential-with-these-10-plugs-for-2024/"><u>[New] Unlock Your FCP Potential with These 10 Plugs for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-drone-trail-tech-your-number-1-picks-for-personal-use/"><u>[Updated] 2024 Approved Drone Trail Tech Your Number 1 Picks for Personal Use</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-mastering-mobile-camera-best-android-practices/"><u>[Updated] 2024 Approved Mastering Mobile Camera Best Android Practices</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-reviving-the-past-essential-vhs-visuals-in-todays-edits/"><u>[Updated] 2024 Approved Reviving the Past Essential VHS Visuals in Today's Edits</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-channel-image-makeovers-on-the-house-for-2024/"><u>[Updated] Channel Image Makeovers on the House for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-ultimate-roadmap-for-spotify-ad-mastery/"><u>[Updated] In 2024, The Ultimate Roadmap for Spotify Ad Mastery</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-20-free-unlicensed-pubg-screenshot-compilations/"><u>[Updated] In 2024, Top 20 Free Unlicensed PUBG Screenshot Compilations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-pioneering-filmmakers-top-7-color-grading-hacks/"><u>[Updated] Pioneering Filmmakers' Top 7 Color Grading Hacks</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-excellent-20-copy-free-pubg-thumbnail-sequences/"><u>2024 Approved Excellent 20 Copy-Free PUBG Thumbnail Sequences</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-oneplus-frp-bypass-by-drfone-android/"><u>About OnePlus FRP Bypass</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-oppo-a1x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Realme 12 5G? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-30-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 30 5G Phone without PIN</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/the-definitive-ranking-of-mp4-encoders-which-one-should-you-pick/"><u>The Definitive Ranking of MP4 Encoders - Which One Should You Pick?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-lightning-fast-windows-evaluation-path/"><u>[New] 2024 Approved Lightning-Fast Windows Evaluation Path</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-premium-filmmaking-selecting-high-resolution-lenses/"><u>[Updated] 2024 Approved Premium Filmmaking Selecting High-Resolution Lenses</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-expertly-convert-videos-on-your-device-with-the-most-trusted-apps-8/"><u>[Updated] In 2024, Expertly Convert Videos on Your Device with the Most Trusted Apps #8</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-innovation-in-social-media-redefining-the-role-of-facebook-stories/"><u>[Updated] Innovation in Social Media Redefining the Role of Facebook Stories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-pro-drone-experience-a-thorough-look-at-dji-phantom-4/"><u>[Updated] The Pro Drone Experience A Thorough Look at DJI Phantom 4</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-samsung-galaxy-s23-fe-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Samsung Galaxy S23 FE Phones with/without a PC</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/saving-pennies-securing-peace-of-mind-the-complete-analysis-of-the-practical-procase-macbook-pro-n-caseto-budget-sleeve-review/"><u>Saving Pennies, Securing Peace of Mind: The Complete Analysis of the Practical ProCase MacBook Pro N-Caseto-Budget Sleeve Review</u></a></li>
+<li><a href="https://some-skills.techidaily.com/understanding-and-complying-with-instagrams-audio-ownership-laws-for-2024/"><u>Understanding and Complying with Instagram's Audio Ownership Laws for 2024</u></a></li>
 </ul></div>
 
