@@ -1,7 +1,7 @@
 ---
 title: "[New] Effective Captioning Techniques for Video Files in Windows Photos"
-date: 2024-09-12T21:17:19.305Z
-updated: 2024-09-17T00:36:48.567Z
+date: 2024-10-10T06:18:51.702Z
+updated: 2024-10-14T18:49:51.294Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -67,6 +74,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -77,6 +91,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 ## Conclusion
@@ -84,6 +105,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -108,12 +136,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-windows-wizardry-for-swift-image-editing/"><u>[New] 2024 Approved Window's Wizardry for Swift Image Editing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-action-and-adventure-with-ions-pro-3-camera-insight-for-2024/"><u>[New] Action and Adventure with ION's Pro 3 Camera Insight for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-guide-to-premium-free-online-screen-recorders/"><u>[New] In 2024, Guide to Premium Free Online Screen Recorders</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-budget-friendly-hd-cameras-for-thrilling-moments/"><u>[Updated] 2024 Approved Budget-Friendly HD Cameras for Thrilling Moments</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-optimal-visuals-selecting-superior-gear-for-4k-projects/"><u>[Updated] 2024 Approved Optimal Visuals Selecting Superior Gear for 4K Projects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-trending-stock-images-and-behind-the-scenes-stories/"><u>[Updated] 2024 Approved Top Trending Stock Images & Behind-the-Scenes Stories</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-deciphering-your-youtube-viewership-stats-for-2024/"><u>[Updated] Deciphering Your YouTube Viewership Stats for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unravel-the-secrets-to-successful-instagram-metrics-management-with-top-tools-for-2024/"><u>[Updated] Unravel the Secrets to Successful Instagram Metrics Management with Top Tools for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/deciphering-twitch-downtime-from-personal-connectivity-glitches-a-comprehensive-guide/"><u>Deciphering Twitch Downtime From Personal Connectivity Glitches: A Comprehensive Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-tecno-spark-20-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Tecno Spark 20 Pro</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/keeping-your-gopro-fogless-for-perfection-for-2024/"><u>Keeping Your GoPro Fogless for Perfection for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-fix-restoring-wi-fi-access-on-vizio-televisions/"><u>Mastering the Fix: Restoring Wi-Fi Access on Vizio Televisions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-conexant-smartaudio-hd-silent-problem-on-windows-11-a-step-by-step-guide/"><u>Solving the Conexant SmartAudio HD Silent Problem on Windows 11: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

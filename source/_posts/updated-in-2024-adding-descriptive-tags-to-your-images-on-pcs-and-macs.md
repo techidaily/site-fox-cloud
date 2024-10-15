@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Adding Descriptive Tags to Your Images on PCs and Macs"
-date: 2024-09-10T20:28:03.636Z
-updated: 2024-09-16T16:59:46.840Z
+date: 2024-10-13T19:33:45.211Z
+updated: 2024-10-14T20:14:14.568Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,19 @@ Step2Click the edit button there at the top.
 
 ![click edit button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Now click the More icon, which is at the top right portion of it (it usually looks like an ellipsis), and then in the dropdown menu, click on the Markup option.
 
 ![click more icon](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-2.jpg)
@@ -46,6 +59,13 @@ Step3Now click the More icon, which is at the top right portion of it (it usuall
 Step4Now click on the text button at the top left corner of the screen to add a text box to the image.
 
 ![click on the text button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5You can drag this text box and place it wherever you want it in your image. Also, to choose the font style, size, and color, you can click on the Text Style icon and save your changes.
 
@@ -65,6 +85,13 @@ Step3Now click on the text button at the top.
 
 ![click on text button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4To make the text box of your choice, you have to click and drag it.
 
 ![click and drag text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-7.jpg)
@@ -74,6 +101,13 @@ Step5Now you can write whatever you want to on your photo.
 Step6You can change the font color, size, and style with the help of a panel at your right.
 
 ![panel](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step7To save your edited image, click on the Menu button at the top left corner of your screen.
 
@@ -105,6 +139,13 @@ Step2Now click on the **Text Button**, which will appear on your sidebar at the 
 
 ![click on text button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Now you must select your text style by clicking on **heading**, **sub-heading**, and **body text**, depending on which one you want. You can also choose your text style from the designs already available.
 
 ![select text style](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-14.jpg)
@@ -113,13 +154,6 @@ Step4To edit your text's color, size, style, alignment, bold or italic effects, 
 
 ![click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-15.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5A menu will appear on your right side from which you can easily change or edit the above text features.
 
 ![a menu](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-16.jpg)
@@ -127,6 +161,13 @@ Step5A menu will appear on your right side from which you can easily change or e
 Step6Also, to change the text size inside the **Text Box**, drag its corners.
 
 ![change the text size](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-17.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step7Moreover, if you want to change the size of the **Text Box**, drag its borders from both sides.
 
@@ -149,13 +190,6 @@ Cons
 
 * You need to have a premium account to use the more advanced features.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. [Kapwing](https://www.kapwing.com/tools/add-text-to-image)
 
 **Introduction:**
@@ -163,13 +197,6 @@ Cons
 Kapwing is another photo editing website where you can professionally edit your photos for free. You can also add text to images using it. It is easy to use also and has approximately 10 million users currently.
 
 ![kapwing](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-19.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Pros
 
@@ -313,10 +340,10 @@ Cons
 * It does not support the Digital Negative Files (DNG) natively.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. [Inkscape](https://inkscape.org/release/inkscape-1.2.1/)
@@ -338,13 +365,6 @@ Cons
 * It is not too good in exporting formats.
 * Its interface is simple but not too much friendly. Therefore, you have to read or watch some tutorials first regarding it to understand its interface completely.
 * The startup screen doesn't have any close, minimize or maximize buttons.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. [Phoxo](http://www.phoxo.com/en/download/)
 
@@ -425,6 +445,13 @@ Cons
 * There are some bugs in it which cause errors sometimes.
 * You must purchase their premium plans to access more professional features.
 * There are some errors in previewing when you are using certain functions.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. [Pixlr](https://pixlr.com/x/)
 
@@ -602,5 +629,19 @@ The last words for today's topic here is that there are numerous solutions avail
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-detecting-block-status-recognizing-on-snapchat-silence/"><u>[New] Detecting Block Status Recognizing On-Snapchat Silence</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-quick-start-guide-making-your-gifs-count-as-emoji-stickers-in-telegram-for-2024/"><u>[New] Quick-Start Guide Making Your GIFS Count as Emoji Stickers in Telegram for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-how-to-seamlessly-incorporate-video-tracks-in-youtube-lists/"><u>[Updated] 2024 Approved How to Seamlessly Incorporate Video Tracks in YouTube Lists</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-google-meet-a-self-teached-path-for-hosts-and-attendees/"><u>[Updated] Google Meet A Self-Teached Path for Hosts & Attendees</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-steps-to-skip-the-water-stained-stock-photos/"><u>[Updated] Steps to Skip the Water-Stained Stock Photos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-superior-corporate-space-for-storage/"><u>[Updated] Superior Corporate Space for Storage</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-messages-files-on-150-2023-by-fonelab-android-recover-messages/"><u>Complete guide for recovering messages files on 150 (2023)</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/diy-guide-effective-techniques-to-wipe-your-iphone-clean/"><u>DIY Guide: Effective Techniques to Wipe Your iPhone Clean</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/harmonic-windows-tunes-hub-for-2024/"><u>Harmonic Windows Tunes Hub for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-docm-file-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .docm file electronically</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/kostenlose-hochwertige-konvertierung-von-h264-in-h265-reduzieren-sie-die-grosse-ohne-qualitatsverlust/"><u>Kostenlose Hochwertige Konvertierung Von H.2^64 In H.2^65: Reduzieren Sie Die Größe, Ohne Qualitätsverlust</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Elevating Your Role-Play  Advanced Closer Views Techniques for 2024\""
-date: 2024-09-09T17:22:27.313Z
-updated: 2024-09-16T21:10:53.197Z
+date: 2024-10-14T09:08:07.183Z
+updated: 2024-10-14T20:09:57.953Z
 tags: 
   - screen-recording
   - ai video
@@ -73,11 +73,44 @@ Step1There is a simple and convenient technique to manage the zoom while playing
 
 ![push r3 button ontroller](https://images.wondershare.com/filmora/article-images/2022/07/push-r3-button-controller.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2Zoom in by pressing forward on the right thumbstick that has been clicked down.
 
 ![press forward right thumbstick](https://images.wondershare.com/filmora/article-images/2022/07/press-forward-right-thumbstick.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Pull rearward on the clicked-down right thumbstick to zoom out. The same joystick (right) must constantly be pulled rearward to zoom out.
+
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Way 4\. Zoom in/out in Roblox on Tablet
 
@@ -100,17 +133,10 @@ Step4The camera angle and/or your character will only move if one of your finger
 ![zoom character on roblox](https://images.wondershare.com/filmora/article-images/2022/07/zoom-character-on-roblox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -145,5 +171,21 @@ You may wish to change your viewpoint when playing games on Roblox, the most cut
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-image-illumination-choose-best-websites-with-photo-framing-features/"><u>[New] 2024 Approved Image Illumination Choose Best Websites with Photo Framing Features</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-cease-automatic-footage-collection-qt/"><u>[Updated] In 2024, Cease Automatic Footage Collection QT</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-basic-understanding-of-animate-graphic-content/"><u>2024 Approved Basic Understanding of Animate Graphic Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-keep-your-linkedin-videos-at-the-fingertips-top-6-professional-downloader-apps/"><u>2024 Approved Keep Your LinkedIn Videos at the Fingertips Top 6 Professional Downloader Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-faces-incorporating-motion-blur-in-photos-with-picsart/"><u>2024 Approved Mastering Faces Incorporating Motion Blur in Photos with Picsart</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-playchoice-pondering-over-dacast/"><u>2024 Approved PlayChoice Pondering Over DaCast</u></a></li>
+<li><a href="https://program-issues.techidaily.com/5-proven-strategies-to-fix-grounded-crashing-problems-on-your-computer/"><u>5 Proven Strategies to Fix 'Grounded' Crashing Problems on Your Computer</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevate-your-workflow-expert-tips-on-integrating-chatgpt-in-daily-life/"><u>Elevate Your Workflow: Expert Tips on Integrating ChatGPT in Daily Life</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-ai-assisted-creativity-the-best-name-makers-for-pods/"><u>In 2024, AI-Assisted Creativity The Best Name Makers for Pods</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/optimal-zoom-audio-enhancing-quality-two-fold-approach/"><u>Optimal Zoom Audio Enhancing Quality, Two-Fold Approach</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Motorola Edge 2023? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-8-recommended-free-srt-translation-websites-expert-selections-for-2024/"><u>Top 8 Recommended Free SRT Translation Websites Expert Selections for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-from-apple-iphone-13-pro-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID From Apple iPhone 13 Pro Making It Possible</u></a></li>
+<li><a href="https://windows11.techidaily.com/unraveling-the-mystery-of-windows-11s-elevation-failures/"><u>Unraveling the Mystery of Windows 11’S Elevation Failures</u></a></li>
+</ul></div>
 

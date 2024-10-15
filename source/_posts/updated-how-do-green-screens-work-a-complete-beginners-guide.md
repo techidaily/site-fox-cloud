@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How Do Green Screens Work? [A Complete Beginner's Guide]"
-date: 2024-10-03T16:33:26.976Z
-updated: 2024-10-08T23:06:53.184Z
+date: 2024-10-10T21:04:26.320Z
+updated: 2024-10-15T07:51:39.779Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ For the most part, the process is fairly simple. It only becomes difficult when 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Is a Green Screen?
 
 The term “Green Screen” is used to describe a camera and editing trick. A large canvas is placed behind a scene, and it contains a color that is not present elsewhere in the shot. The color is typically a bright shade of blue or green. During the editing session, the green screen color is keyed out of the scene. It then leaves a blank space where another image may be superimposed into the video.
@@ -65,13 +72,6 @@ These days, there is still a fair amount of green screen used in mainstream come
 This is especially where the premise is not supposed to be taken seriously. In fact, there are many times when the fake green screen images being shown behind what is supposed to be a moving vehicle is part of the joke.
 
 ![why use green screens](https://images.wondershare.com/filmora/article-images/why-use-green-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Green screen is more commonly used no mainstream TV, and to a lesser extent in movies, to fill out a scene. For example, the production company may have quickly built a seaside party set for a five-second scene.
 
@@ -143,13 +143,6 @@ You also need to think about individual lighting and how it creates shadows. The
 
 Step five is the editing process, and a large part involves thinking about how the green screen would interact with the other elements in the scene. Commonly forgotten elements in an indoor setting are shadows from clouds, the wind, and background noises like cars passing or dogs barking.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5 Green Screen Ideas for Each Video-Making Scenario
 
 All green screen ideas needs to revolve around your plot that the things you wish to achieve. In many cases, green screen technology is going to save you money.
@@ -189,10 +182,16 @@ Just make sure you make correct and smart choices when you decide to add in extr
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/green-screen-ideas-masks.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Green Screen Ideas Need Not Exist Just in Videos**
@@ -202,10 +201,10 @@ The best green screen ideas are ones that occur as natural solutions to your pro
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/green-screen-ideas-animated.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In fact, in real life, there are plenty of people who are faking their Instagram images to great success. Notice the blank colors in the background, and the green seat in the image below. Using chromakeying, it is possible to make the Instagram user look as if she is living a luxurious lifestyle.
@@ -213,16 +212,10 @@ In fact, in real life, there are plenty of people who are faking their Instagram
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/green-screen-ideas-by-tbhbyron.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Best Green Screen Video Editing Tools for Beginners and Pros
@@ -232,6 +225,13 @@ The truth is that many different tools can be used to edit frames and replace el
 The tools that make green screening easy are often very expensive, but many of them come with a free trial that you can use prior to buying. For example, [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes with a free trial for both Microsoft and Apple desktop products. There are also tools like the VSDC Video Editor, iMovie, Virtual Dub and so forth.
 
 Do not be fooled by article that claim they list free Chroma key or green screening tools. Firstly, the genuinely free tools, such as the open source tools like Blender, are very labor intensive. Secondly, such articles are claiming the green-screening tools are free, but they only have free trials, you will be required to pay if you want to use the tools over the long term.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The 3 Best Green Screen Video Editors
 
@@ -267,16 +267,16 @@ It's free to download. Have a try now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2. [iMovie](https://www.apple.com/uk/imovie/)
 
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/iMovie-Interface.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The iMovie program is the cheap and tacky entry in the video editing world. It is only available on the iOS and Mac, and is mostly suited for people who do not want to spend a lot of money on their video editing software.
 
@@ -303,19 +303,6 @@ The iMovie program is the cheap and tacky entry in the video editing world. It i
 #### 3. [Lightworks](https://www.lwks.com/)
 
 ![how do green screens work](https://images.wondershare.com/filmora/article-images/lightworks-interface.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Despite having a few advanced tools, this is probably the best example of bad design and marketing ideas in the video editing world. The free version is so clunky and awful that nobody would agree to buy the premium version. Furthermore, the GUI is terrible and very unintuitive. It looks like a cheap update of a 1990s editor.
 
@@ -363,6 +350,13 @@ Let us know in the comments, and please share our content on social media so tha
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -388,24 +382,22 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-apple-macbook-air-vs-pro-which-m1-laptop-is-better/"><u>[New] 2024 Approved Apple MacBook Air Vs. Pro Which M1 Laptop Is Better?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-protecting-video-content-during-youtube-to-mp4-transfer/"><u>[New] 2024 Approved Protecting Video Content During YouTube-to-MP4 Transfer</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/levating-your-listening-palette-with-youtube-music/"><u>[New] Elevating Your Listening Palette with YouTube Music</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-step-by-step-process-high-dynamic-range-hdr-portraiture/"><u>[New] In 2024, Step-by-Step Process High Dynamic Range (HDR) Portraiture</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-visionary-educators-guide-to-multimedia-use/"><u>[New] In 2024, The Visionary Educator's Guide to Multimedia Use</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-unlock-every-shared-file-and-image-in-messaging-app/"><u>[New] Unlock Every Shared File and Image in Messaging App</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-7-creative-thumbnails-free-tools-for-youtube/"><u>[Updated] 2024 Approved 7 Creative Thumbnails Free Tools for YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-essential-iphone-app-recommendations-for-watermarking-pics/"><u>[Updated] 2024 Approved Essential iPhone App Recommendations for Watermarking Pics</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-ace-choices-top-10-streaming-apps-for-live-soccer-and-football-action-for-2024/"><u>[Updated] Ace Choices Top 10 Streaming Apps for Live Soccer & Football Action for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-elevating-meetings-a-comprehensive-guide-to-zoom-filters/"><u>[Updated] Elevating Meetings A Comprehensive Guide to Zoom Filters</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-capturing-brilliance-with-the-q500-drone/"><u>[Updated] In 2024, Capturing Brilliance with the Q500 Drone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-win11s-swift-screening-of-images/"><u>[Updated] In 2024, Win11's Swift Screening of Images</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/black-friday-bonanza-get-your-deal-612-for-eternal-windows-10/"><u>Black Friday Bonanza: Get Your Deal - $6.12 for Eternal Windows 10</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/easy-steps-for-posting-videos-on-facebook-from-devices/"><u>Easy Steps for Posting Videos on Facebook From Devices</u></a></li>
-<li><a href="https://solve-news.techidaily.com/extract-audio-from-video-a-comprehensive-guide-to-using-a-video-to-audio-converter/"><u>Extract Audio From Video: A Comprehensive Guide to Using a Video-to-Audio Converter</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/get-your-editing-mojo-back-with-this-final-cut-pro-overview/"><u>Get Your Editing Mojo Back with This Final Cut Pro Overview</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/pioneering-digital-music-management-win-media-and-cds/"><u>Pioneering Digital Music Management Win, Media and Cds</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/streaming-ultra-hd-content-accessing-youtube-in-4k-on-your-apple-tv-including-vintage-units/"><u>Streaming Ultra HD Content: Accessing YouTube in 4K on Your Apple TV, Including Vintage Units</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-easy-path-to-observing-well-liked-comments-on-the-video-platform-for-2024/"><u>The Easy Path to Observing Well-Liked Comments on the Video Platform for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-15-masterpieces-that-defined-stop-motion-artistry/"><u>[New] 15 Masterpieces That Defined Stop Motion Artistry</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-zero-to-hero-your-step-by-step-adventure-in-meme-magic-on-9gag/"><u>[New] 2024 Approved Zero to Hero Your Step-by-Step Adventure in Meme Magic on 9GAG</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-goofy-bliss-classic-film-revisited/"><u>[New] Goofy Bliss Classic Film Revisited</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-independent-evaluation-the-3dr-solo-experience/"><u>[New] Independent Evaluation The '3DR' Solo Experience</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-expert-guide-to-color-correction-implementing-luts-within-ae-projects/"><u>[Updated] 2024 Approved Expert Guide to Color Correction Implementing LUTs Within AE Projects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-comprehensive-approach-to-linking-your-tiktok-profile/"><u>[Updated] 2024 Approved The Comprehensive Approach to Linking Your TikTok Profile</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-clearer-captures-await-with-next-gen-tracker-tech/"><u>[Updated] Clearer Captures Await with Next-Gen Tracker Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-free-backdrops-for-sustainable-cinema-for-2024/"><u>[Updated] Free Backdrops for Sustainable Cinema for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-seamless-search-for-your-youtube-comments-across-platforms/"><u>[Updated] In 2024, Seamless Search for Your YouTube Comments Across Platforms</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-unlocking-ps-simple-grading-techniques-for-perfection/"><u>[Updated] Unlocking PS Simple Grading Techniques for Perfection</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quip-kernel-memomaker-suite/"><u>2024 Approved Quip Kernel MemoMaker Suite</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-thankful-discoveries-unlimited-outro-options/"><u>2024 Approved Thankful Discoveries Unlimited Outro Options</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-g2-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo G2 by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/save-big-with-limited-time-offers-on-high-end-oneplus-phones/"><u>Save Big with Limited-Time Offers on High-End OnePlus Phones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/step-by-step-to-reel-success-on-instagram/"><u>Step-by-Step to Reel Success on Instagram</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-laptop-power-failure-windows-7-and-10-solutions/"><u>Troubleshooting Laptop Power Failure: Windows 7 and 10 Solutions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/why-my-photos-are-upside-down-on-instagram-feed-for-2024/"><u>Why My Photos Are Upside Down on Instagram Feed for 2024</u></a></li>
 </ul></div>
 

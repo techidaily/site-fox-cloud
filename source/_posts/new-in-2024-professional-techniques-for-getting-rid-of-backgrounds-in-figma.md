@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Professional Techniques for Getting Rid of Backgrounds in Figma"
-date: 2024-10-05T21:00:27.268Z
-updated: 2024-10-08T16:48:24.819Z
+date: 2024-10-11T06:15:14.343Z
+updated: 2024-10-15T03:05:57.088Z
 tags: 
   - screen-recording
   - ai video
@@ -75,18 +75,18 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 ![running the pixcut plugin in figma](https://images.wondershare.com/filmora/article-images/2023/03/running-the-pixcut-plugin-in-figma.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
 
@@ -96,10 +96,10 @@ Follow these tips to remove the background of images with transparent or solid c
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### (2) 3 Other Figma Plugins
@@ -124,13 +124,6 @@ Step3 Select **"Find More Plugins"** and use the search option in the pop-up win
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### (3) Using Online Removers
 
 Another alternative is to use any tool that **removes the image background online**. For example, we recommend using the [Remove BG tool](https://www.remove.bg/).
@@ -138,22 +131,15 @@ Another alternative is to use any tool that **removes the image background onlin
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -174,6 +160,20 @@ Step2 **Right-click** on the image in the editor and click **"Plugins."**
 Step3 Select **"Find More Plugins"** and use the search option in the pop-up window to find the plugin you need.
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### (3) Using Online Removers
 
@@ -217,19 +217,22 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-beginners-guide-to-best-entry-level-cams-2024/"><u>[New] Beginner's Guide to Best Entry-Level Cams 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-days-viewing-assessing-file-size-in-gb-for-2024/"><u>[New] Day's Viewing Assessing File Size in GB for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-deciphering-youtubes-subscriber-code/"><u>[New] Deciphering YouTube's Subscriber Code</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-quickly-change-the-pace-of-videos-in-your-instagram-feed/"><u>[New] Quickly Change the Pace of Videos in Your Instagram Feed</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-change-voice-on-instagram-story-and-reels/"><u>[Updated] 2024 Approved How to Change Voice on Instagram Story and Reels?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-how-to-sell-your-brand-through-innovative-youtuber-collaborations/"><u>[Updated] How To Sell Your Brand Through Innovative YouTuber Collaborations</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/2-steps-to-get-ready-for-windows-11-creators-update/"><u>2 Steps to Get Ready for Windows 11 Creators Update</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-crafting-stunning-slideshows-on-iphone-series-13/"><u>In 2024, Crafting Stunning Slideshows on iPhone Series 13</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-expert-advice-5-proven-methods-to-document-minecraft-on-apple-devices/"><u>In 2024, Expert Advice 5 Proven Methods to Document Minecraft on Apple Devices</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Motorola Edge 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/navigating-keyword-optimization-in-podcast-seo-for-2024/"><u>Navigating Keyword Optimization in Podcast SEO for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-poco-c55-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Poco C55 and Browser | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-meme-gurus-list-of-the-best-designs-10/"><u>The Meme Guru's List of the Best Designs #10</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721103610269-updating-or-replacing-older-usb-composite-devices-heres-the-guide/"><u>Updating or Replacing Older USB Composite Devices? Here's the Guide!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-explore-top-ios-emulators-for-playing-psp-games/"><u>[New] 2024 Approved Explore Top iOS Emulators for Playing PSP Games</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-virtual-vanguard-10-most-liked-youtubers/"><u>[New] In 2024, Virtual Vanguard 10 Most Liked YouTubers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-a-look-at-the-best-narrative-creators-on-youtube-in-23/"><u>2024 Approved A Look at the Best Narrative Creators on YouTube in '23</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-assemble-creative-gifs-for-online-sharing/"><u>2024 Approved Assemble Creative GIFs for Online Sharing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-emoji-enhancement-techniques-converting-graphics-into-chat-app-stickers/"><u>2024 Approved Emoji Enhancement Techniques Converting Graphics Into Chat App Stickers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-from-amateur-to-expert-crafting-professional-gopro-content/"><u>2024 Approved From Amateur to Expert Crafting Professional Gopro Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-how-to-edit-drone-videos/"><u>2024 Approved How to Edit Drone Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-infusing-life-into-jujutsu-kaisen-with-tiktok-videos/"><u>2024 Approved Infusing Life Into Jujutsu Kaisen with TikTok Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-photoshop-insider-tips-for-novice-editors/"><u>2024 Approved Photoshop Insider Tips for Novice Editors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-step-by-step-on-azure-speech-transcription-services/"><u>2024 Approved Step-by-Step on Azure Speech Transcription Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-ultimate-guide-to-choosing-wedding-timers-on-google-play-and-apple-store/"><u>2024 Approved The Ultimate Guide to Choosing Wedding Timers on Google Play and Apple Store</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-apple-iphone-14-pro-max-without-apple-id-password-by-drfone-ios/"><u>In 2024, How To Erase an Apple iPhone 14 Pro Max Without Apple ID Password?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-imac-with-m1-experience-enhanced-performance-and-sleek-design/"><u>In-Depth Analysis of the iMac with M1: Experience Enhanced Performance & Sleek Design</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solutions-for-resolving-x3daudiodll-file-absentnot-detected-issues/"><u>Solutions for Resolving 'X3DAudio.dll' File Absent/Not Detected Issues</u></a></li>
+<li><a href="https://games-able.techidaily.com/strategies-to-overcome-steam-purchase-issues/"><u>Strategies to Overcome Steam Purchase Issues</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/switch-your-tunes-with-movavis-no-cost-mp3-to-mpeg-tool-upload-and-convert-today/"><u>Switch Your Tunes with Movavi's No-Cost MP3 to MPEG Tool - Upload & Convert Today!</u></a></li>
 </ul></div>
 

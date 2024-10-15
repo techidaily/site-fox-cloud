@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Journey From Photo Album to Video Storyboard\""
-date: 2024-09-15T19:17:56.215Z
-updated: 2024-09-16T22:00:01.427Z
+date: 2024-10-09T18:46:26.406Z
+updated: 2024-10-14T23:22:03.207Z
 tags: 
   - screen-recording
   - ai video
@@ -97,11 +97,31 @@ Once you have imported your photos, you can include them in the timeline. To do 
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -114,6 +134,13 @@ As stated above, you can find a wide range of video editing options to explore i
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
@@ -159,6 +186,13 @@ There you go! I’m sure that after reading this guide, you would be able to dig
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -182,12 +216,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-enhancing-online-presence-best-practices-for-win11-zoom-users/"><u>[New] 2024 Approved Enhancing Online Presence Best Practices for Win11 Zoom Users</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-scrutinizing-splitcam-a-leader-in-video-tech/"><u>[New] In 2024, Scrutinizing SplitCam - A Leader in Video Tech?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-mastering-instagram-the-art-of-rewinding-videos/"><u>[Updated] In 2024, Mastering Instagram The Art of Rewinding Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-complete-gopro-comparison-guide/"><u>[Updated] The Complete Gopro Comparison Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-tips-for-gradual-decrease-of-audio-loudness-in-fl-studio/"><u>[Updated] Tips for Gradual Decrease of Audio Loudness in FL Studio</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1725289733216-dvdand/"><u>「安心しろ！日本語対応、合法DVDコピー&バックアップソフトウェアの無料レンタル」</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/banishing-error-messages-fixing-far-cry-6-does-not-open-on-windows-and-mac/"><u>Banishing Error Messages: Fixing 'Far Cry 6 Does Not Open' On Windows and Mac</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ient-video-categorization-with-tags/"><u>Efficient Video Categorization with Tags</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-reactivate-sounds-on-an-iphone-stuck-in-mute/"><u>How to Reactivate Sounds on an iPhone Stuck in Mute</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-explore-top-picks-for-high-resolution-4k-panels/"><u>In 2024, Explore Top Picks for High-Resolution 4K Panels</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-realme-v30-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Realme V30 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-sony-xperia-xz-superior-a-4k-mobile-experience-analysis/"><u>In 2024, Sony Xperia XZ Superior A 4K Mobile Experience Analysis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-vlc-vs-mpc-decoding-the-best-free-media-player/"><u>In 2024, VLC Vs. MPC Decoding the Best Free Media Player</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-podcasters-guide-to-high-quality-home-recordings/"><u>The Podcaster’s Guide to High-Quality Home Recordings</u></a></li>
+</ul></div>
 

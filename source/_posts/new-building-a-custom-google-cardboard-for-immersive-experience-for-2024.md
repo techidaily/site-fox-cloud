@@ -1,7 +1,7 @@
 ---
 title: "[New] Building a Custom Google Cardboard for Immersive Experience for 2024"
-date: 2024-10-06T23:08:36.337Z
-updated: 2024-10-09T01:57:39.266Z
+date: 2024-10-11T11:10:42.873Z
+updated: 2024-10-15T10:41:26.787Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,10 @@ thumbnail: https://thmb.techidaily.com/2d67e14b0eb8d4077153a676b64f0ce1665316566
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -59,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/2d67e14b0eb8d4077153a676b64f0ce1665316566
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -78,10 +78,16 @@ thumbnail: https://thmb.techidaily.com/2d67e14b0eb8d4077153a676b64f0ce1665316566
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -104,10 +110,16 @@ thumbnail: https://thmb.techidaily.com/2d67e14b0eb8d4077153a676b64f0ce1665316566
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -135,17 +147,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-gentle-glide-of-noises-subdued-amplitude-adjustment/"><u>[New] 2024 Approved Gentle Glide of Noises Subdued Amplitude Adjustment</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-bio-link-addition-on-tiktok-for-2024/"><u>[New] Mastering Bio Link Addition on TikTok for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-1-to-10-superior-4k-screen-selections/"><u>[Updated] 1 to #10 Superior 4K Screen Selections</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-crafting-timeless-videos-with-historical-flair/"><u>[Updated] 2024 Approved Crafting Timeless Videos with Historical Flair</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-explore-creative-horizons-with-imaginative-snapchat-boomerang-techniques/"><u>[Updated] In 2024, Explore Creative Horizons with Imaginative Snapchat Boomerang Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-pclaptop-editors-without-relying-on-inshot/"><u>[Updated] In 2024, PC/Laptop Editors without Relying on Inshot</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-samba-seed-eaters/"><u>[Updated] Samba Seed Eaters</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-streaming-and-screenshotting-like-a-pro-essential-mac-techniques/"><u>[Updated] Streaming and Screenshotting Like a Pro Essential Mac Techniques</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/amplify-video-dynamics-a-guide-to-perfecting-jump-cutting-for-2024/"><u>Amplify Video Dynamics A Guide to Perfecting Jump Cutting for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-compatible-dell-router-and-access-point-drivers-now/"><u>Download Compatible Dell Router & Access Point Drivers Now</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-vivo-v27-pro-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Vivo V27 Pro FRP Without Computer</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlocking-the-past-ios-and-classic-psp-games-combo/"><u>Unlocking the Past: IOS & Classic PSP Games Combo</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-smart-editing-tricks-how-to-embed-dates-in-photo-albums/"><u>[New] Smart Editing Tricks How to Embed Dates in Photo Albums</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-elite-photography-narrative-assembler-kit/"><u>[Updated] 2024 Approved Elite Photography Narrative Assembler Kit</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-comprehensive-study-editmagics-power-edition/"><u>[Updated] In 2024, Comprehensive Study EditMagic's Power Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-sharpening-digital-images-through-strategic-zooming/"><u>[Updated] In 2024, Sharpening Digital Images Through Strategic Zooming</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-covert-guide-to-livestreaming-on-instagram-unseen-for-2024/"><u>[Updated] The Covert Guide to Livestreaming on Instagram Unseen for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-guide-to-hash-trackers-fb-twt-and-ig-networks/"><u>[Updated] The Ultimate Guide to Hash Trackers FB, Twt & IG Networks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-expert-tips-for-ipad-users-easily-convert-photos-to-pdf/"><u>2024 Approved Expert Tips for iPad Users Easily Convert Photos to PDF</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigate-through-apples-best-in-class-virtual-reality-games/"><u>2024 Approved Navigate Through Apple's Best-in-Class Virtual Reality Games</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/evaluating-the-value-of-wi-fi-mesh-network-solutions/"><u>Evaluating the Value of Wi-Fi Mesh Network Solutions</u></a></li>
+<li><a href="https://common-error.techidaily.com/from-frustration-to-fulfillment-in-nvidia-fixed/"><u>From Frustration to Fulfillment in NVIDIA Fixed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-beyond-virality-understanding-what-makes-triller-different-from-tiktok/"><u>In 2024, Beyond Virality Understanding What Makes Triller Different From TikTok</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-unlock-filmora-savings-top-7-ways-to-get-coupon-codes/"><u>New Unlock Filmora Savings Top 7 Ways to Get Coupon Codes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-honor-magic-6-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from Honor Magic 6</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premium-applications-for-animating-3d-scenes-for-2024/"><u>Premium Applications for Animating 3D Scenes for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/stay-ahead-the-guide-to-facebooks-new-algorithm/"><u>Stay Ahead The Guide to Facebook's New Algorithm</u></a></li>
 </ul></div>
 

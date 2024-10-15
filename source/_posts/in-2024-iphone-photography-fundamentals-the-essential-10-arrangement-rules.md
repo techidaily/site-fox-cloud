@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, IPhone Photography Fundamentals  The Essential 10 Arrangement Rules\""
-date: 2024-10-07T16:28:38.974Z
-updated: 2024-10-09T01:14:42.723Z
+date: 2024-10-13T16:53:26.127Z
+updated: 2024-10-15T01:54:22.683Z
 tags: 
   - screen-recording
   - ai video
@@ -39,18 +39,24 @@ thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318
 
 ![rule of third](https://images.wondershare.com/filmora/article-images/rule-of-third.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Leading Lines
 
  Leading lines add depth and scale to an image by leading the eyes into an image. When you want to capture a road running between two rows of trees, a suspended wooden bridge vanishing at a distant point, leading lines make sure that the picture is taken in such a way that the viewer’s eyes would follow your direction (here, the way you guide them along the rows of trees or the bridge vanishing in the horizon). Leading lines create a great impact on the photographs that you click with your iPhone and don’t let the observer wander away from your subject. The leading lines can be diagonal, straight, zigzag, curvy, or radial.
 
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Symmetry
 
@@ -65,13 +71,6 @@ thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318
 <img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Framing
 
  When we see a framed photograph, the frame brings out the beauty of the photograph. There are natural and man-made frames lying around. You just need to find that while clicking a picture. Framing the subject with such frames amplifies focus towards it, by isolating it from the world around. You can capture your subject through a hole, an arch, and different shapes and structures that you can visualize at that time.
@@ -84,11 +83,32 @@ thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318
 
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Shape
 
  Speaking of shape in photography composition sounds odd? ‘Rule of Thirds’ and ‘Leading Lines’ are not the only rules that make a photo composition. Line, shape, texture, form, space, color, and pattern also play a key role to make your iPhone photography a real treasure. Shape defines the two dimensional view of the subject and the entire scene as well. A well defined subject with a silhouette and backlighting or a black and white picture looks more appealing than a color picture where the shape of the subject or other objects is not prominent. Forms and shapes play an integral role in photography.
 
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Leave Empty Space
 
@@ -102,13 +122,6 @@ thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318
 
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fill Your Frame
 
  Making your subject stand out against the entire frame in a photograph creates more impact. You can easily obtain this goal with your iPhone by covering the entire frame with your subject. According to this amazing photography composition technique, all you have to do is move your iPhone closer to the subject and nullify the appearance of the surroundings to take a close shot. Like this, you are able to capture the intricate detailing of a leaf with its vivid colors and texture, the detailing and motif on a wall art and much more.
@@ -116,16 +129,10 @@ thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Break the Rules
@@ -135,10 +142,16 @@ thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclsion
@@ -148,13 +161,6 @@ thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -181,17 +187,14 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-top-10-igtv-channels-you-should-start-following/"><u>[New] 2024 Approved Top 10 IGTV Channels You Should Start Following</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-prime-window-viewer-for-speedy-images/"><u>[New] In 2024, Prime Window Viewer for Speedy Images</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-leading-lights-in-the-land-of-vr-entertainment-for-2024/"><u>[New] Leading Lights in the Land of VR Entertainment for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-10-game-changing-ways-for-designing-cover-art/"><u>[Updated] 2024 Approved 10 Game-Changing Ways for Designing Cover Art</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-cover-insta-peaks-iphoneandroid-edition-enhanced-features/"><u>[Updated] Cover Insta Peaks IPhone/Android Edition, Enhanced Features</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-elite-choices-for-image-capturing-for-2024/"><u>[Updated] Elite Choices for Image Capturing for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-learning-vector-artistry-an-overview-for-starters-and-software-picks/"><u>[Updated] Learning Vector Artistry An Overview for Starters & Software Picks</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-the-art-of-youtube-to-webm-conversion/"><u>[Updated] Mastering the Art of YouTube-to-WebM Conversion</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movavi-mp3-m2ts/"><u>無料アップグレード: Movavi MP3 M2TS変換機能で最適化します。オンライン簡単!</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/exploring-stellars-mac-data-recovery-ui/"><u>Exploring Stellar's Mac Data Recovery UI</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-14-pro-max-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone 14 Pro Max You Should Try Out</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/innovative-cloud-storage-solutions-mematic-app/"><u>Innovative Cloud Storage Solutions Mematic App</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-creative-reactors-the-10-premier-video-responses/"><u>[Updated] 2024 Approved Creative Reactors The 10 Premier Video Responses</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-crafting-atmospheres-with-cinematic-hues/"><u>[Updated] In 2024, Crafting Atmospheres with Cinematic Hues</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigating-the-quest-for-clean-photo-archives/"><u>2024 Approved Navigating the Quest for Clean Photo Archives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevating-your-visual-storytelling-with-advanced-drone-edits/"><u>Elevating Your Visual Storytelling with Advanced Drone Edits</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-videos-from-iphone-se-2022-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Videos from iPhone SE (2022) Without Backup? | Stellar</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-from-concept-to-click-an-in-depth-look-at-gif-memes/"><u>In 2024, From Concept to Click An In-Depth Look at GIF Memes</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-a51-5g-exceptional-value-in-the-5g-market/"><u>In-Depth Analysis of the Samsung Galaxy A51 5G - Exceptional Value in the 5G Market</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/inconsistent-stellar-video-editing-results/"><u>Inconsistent Stellar Video Editing Results</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-moving-ebooks-from-your-computer-to-a-kindle-reader/"><u>Step-by-Step Guide: Moving eBooks From Your Computer to a Kindle Reader</u></a></li>
 </ul></div>
 

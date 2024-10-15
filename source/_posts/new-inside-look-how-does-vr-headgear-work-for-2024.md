@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Inside Look  How Does VR Headgear Work for 2024\""
-date: 2024-10-08T00:42:59.109Z
-updated: 2024-10-09T01:36:02.300Z
+date: 2024-10-07T18:06:36.796Z
+updated: 2024-10-15T05:22:11.734Z
 tags: 
   - screen-recording
   - ai video
@@ -53,53 +53,59 @@ thumbnail: https://thmb.techidaily.com/25e355cfe41e9e10950c631e4aa9da16590e30c12
 
 ![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  HTC Vive VR headset is made in collaboration with Valve and it plugs directly into PCs and uses Valve’s humongous gaming ecosystem. The headset has over 70 sensors to allow for 360 degrees head tracking and it also boasts of a 90Hz refresh rate responsible for keeping down the latency, which in turn saves the users from suffering motions sickness. This headset is currently available for purchase from $799.
 
 ### [Samsung Gear VR](http://www.samsung.com/global/galaxy/gear-vr/  )
 
 ![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
 
- The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
 
 ### [Oculus Rift](https://www.oculus.com/rift/  )
 
 ![oculus-rift](https://images.wondershare.com/filmora/article-images/oculus-rift.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Oculus Rift headset was responsible for the current hysteria in virtual reality. The Rift plugs into the computer’s USB and DVI ports and tracks the movements of the head to provide 3D displays on its stereo screens. The consumer edition of the Rift comes with a 2160 x 1200 resolution as well as a refresh rate of 90Hz. The Rift matches HTC Vive in terms of the refresh rate, but lags behind Sony’s PlayStation VR, though it is a pretty advanced VR headset in terms of the technology used.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### [Sony PlayStation VR](https://www.playstation.com/en-us/explore/playstation-vr/  )
 
 ![sony-playstation-vr](https://images.wondershare.com/filmora/article-images/sony-playstation-vr.jpg)
 
- Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
 
 ### [Google Cardboard](https://vr.google.com/cardboard/  )
 
@@ -136,24 +142,19 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-free-nba-action-at-home-the-best-15-ways-to-watch-games-online/"><u>[New] 2024 Approved Free NBA Action at Home The Best 15 Ways to Watch Games Online</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-disabling-or-enabling-pip-mode-youtube-on-iphone-guide/"><u>[New] In 2024, Disabling or Enabling PIP Mode YouTube on iPhone Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-expert-tips-for-effortless-green-screening-in-kinemaster-software/"><u>[New] In 2024, Expert Tips for Effortless Green Screening in KineMaster Software</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-prime-virtual-lecture-title-craftsman/"><u>[New] In 2024, Prime Virtual Lecture Title Craftsman</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-practical-approach-to-hymnal-phone-tones/"><u>[Updated] 2024 Approved A Practical Approach to Hymnal Phone Tones</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-benq-sw320-monitor-reveal-a-spectacle-in-4k-technology/"><u>[Updated] In 2024, BenQ SW320 Monitor Reveal A Spectacle in 4K Technology</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-mastering-instagrams-podcast-post-and-story-distribution/"><u>[Updated] In 2024, Mastering Instagram's Podcast Post & Story Distribution</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-pros-cons-and-guide-to-utilizing-samsung-photo-editor/"><u>[Updated] Pros, Con's, and Guide to Utilizing Samsung PHOTO EDITOR</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-macbook-mixer-dynamic-perfect-streams-in-5-steps/"><u>[Updated] The MacBook-Mixer Dynamic Perfect Streams in 5 Steps</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-exploring-echoes-in-social-space-an-old-fb-content-pathway/"><u>2024 Approved Exploring Echoes in Social Space An Old FB Content Pathway</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-real-time-capture-mastery-discover-the-top-4-livestream-strategies/"><u>2024 Approved Real-Time Capture Mastery Discover the Top 4 Livestream Strategies</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comprehensive-solutions-for-the-mfc42dll-file-missing-issue/"><u>Comprehensive Solutions for the mfc42.dll File Missing Issue</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/efficient-scheduling-combining-to-do-and-ifttt-services/"><u>Efficient Scheduling: Combining To-Do and IFTTT Services</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your Apple iPhone 12 Pro Max?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-complete-playbook-for-team-call-recording-desktopmobile/"><u>In 2024, The Complete Playbook for Team Call Recording (Desktop/Mobile)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/pazera-unchained-master-your-music-extraction-techniques-for-2024/"><u>Pazera Unchained Master Your Music Extraction Techniques for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/streamlining-content-sharing-between-pc-and-iphone-for-2024/"><u>Streamlining Content Sharing Between PC and iPhone for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/the-rotated-video-conundrum-in-instagrams-feed/"><u>The Rotated Video Conundrum in Instagram's Feed</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-comparing-free-video-powerhouses-who-will-you-choose-vlc-or-mpc-for-2024/"><u>[New] Comparing Free Video Powerhouses Who Will You Choose, VLC or MPC for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-dial-up-your-visual-storytelling-with-animated-texts-no-cost-for-2024/"><u>[New] Dial up Your Visual Storytelling with Animated Texts, No Cost for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-smart-shopping-top-7-mirrorless-cameras-under-1000/"><u>[New] In 2024, Smart Shopping Top 7 Mirrorless Cameras Under $1,000</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-yuneec-typhoon-h-examined-a-drone-review-perspective/"><u>[New] In 2024, Yuneec Typhoon H Examined A Drone Review Perspective</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pixelpioneer-8-version-visual-conjurer-for-2024/"><u>[New] PixelPioneer 8-Version Visual Conjurer for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-transfer-videos-and-photos-from-a-pc-to-an-iphone/"><u>[Updated] How to Transfer Videos and Photos From a PC to an iPhone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-streamline-your-screen-captures-with-4-methods/"><u>[Updated] Streamline Your Screen Captures with 4 Methods</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/imovie-why-does-it-alter-my-videos-in-2024/"><u>IMovie Why Does It Alter My Videos, In 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-itel-p40-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Itel P40 to iPod | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-join-jargon-free-youtube-chats/"><u>In 2024, Join Jargon-Free YouTube Chats</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-windows-10-like-a-tech-wizard/"><u>In 2024, Navigating Windows 10 Like a Tech Wizard</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/mastering-video-rotation-a-simple-and-efficient-process/"><u>Mastering Video Rotation A Simple and Efficient Process</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-the-roborock-s8-maxv-ultra-a-must-have-luxury-robotic-vacuum/"><u>Ultimate Guide to the Roborock S8 MaxV Ultra: A Must-Have Luxury Robotic Vacuum</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-unique-features-of-siri-vs-chatgpt-a-comprehensive-guide/"><u>Understanding the Unique Features of Siri Vs. ChatGPT: A Comprehensive Guide</u></a></li>
 </ul></div>
 

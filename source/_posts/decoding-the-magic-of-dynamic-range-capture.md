@@ -1,7 +1,7 @@
 ---
 title: "Decoding the Magic of Dynamic Range Capture"
-date: 2024-09-12T19:41:43.570Z
-updated: 2024-09-16T23:14:36.235Z
+date: 2024-10-12T18:37:37.214Z
+updated: 2024-10-15T07:06:55.277Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,13 @@ The table below shows different HDR and their details;
 | **Available on**              | iPhone 12 line, iPhone 13 line                                                                                             | iPhone 11 lineup and iPhone 12 lineup | iPhone Xs and later | iPhone X and newer |
 | **Photo types it works with** | smart HDR works with Portrait and Portrait Lighting modes, panoramic shots, bursts, frames in Live Photos and action shots | single high dynamic range (HDR) image |                     |                    |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Smart HDR 4 (iPhone 13)
 
 Apple's computational photography system smart HDR 4 is available on iPhone 13.
@@ -85,16 +92,10 @@ In this, we can get A preview of the final image shown as you capture an image a
 ![smart hdr 3](https://images.wondershare.com/filmora/article-images/2022/07/what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes-3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983551">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Smart HDR (iPhone 11)
@@ -108,6 +109,13 @@ Smart HDR is embedded in the iPhone 11 and iPhone 11 Pro that promises to bring 
 * It seems to use both an image sensor and a depth map from its TrueDepth camera setup.
 
 ![smart hdr](https://images.wondershare.com/filmora/article-images/2022/07/what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Auto HDR (iPhone X)
 
@@ -154,16 +162,10 @@ Because of computational photography, the iPhone automatically adjusts color, su
 The iPhone has had this feature for a few years now and it keeps getting better with every new release.
 
 <!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Camera Comparison: Different Versions of Smart HDR Vs Previous HDR in iPhone
@@ -177,13 +179,6 @@ The table below shows different HDR and their details;
 | **First Appeared**            | 2022                                                                                                                       | 2021                                  | 2018                | 2017               |
 | **Available on**              | iPhone 12 line, iPhone 13 line                                                                                             | iPhone 11 lineup and iPhone 12 lineup | iPhone Xs and later | iPhone X and newer |
 | **Photo types it works with** | smart HDR works with Portrait and Portrait Lighting modes, panoramic shots, bursts, frames in Live Photos and action shots | single high dynamic range (HDR) image |                     |                    |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Smart HDR 4 (iPhone 13)
 
@@ -199,6 +194,19 @@ For example, a picture of the sun may show more detail in the cloudless sky whil
 
 ![smart hdr 4](https://images.wondershare.com/filmora/article-images/2022/07/what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Smart HDR 3 (iPhone 12)
 
 Apple's computational photography system "smart HDR 3" is available on iPhone 12\. The feature has been upgraded with a new algorithm to create more natural-looking images by removing some of the artifacts that have been found in previous iterations of the technology.
@@ -212,10 +220,10 @@ In this, we can get A preview of the final image shown as you capture an image a
 ![smart hdr 3](https://images.wondershare.com/filmora/article-images/2022/07/what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Smart HDR (iPhone 11)
@@ -230,19 +238,6 @@ Smart HDR is embedded in the iPhone 11 and iPhone 11 Pro that promises to bring 
 
 ![smart hdr](https://images.wondershare.com/filmora/article-images/2022/07/what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes-4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Auto HDR (iPhone X)
 
 Auto HDR is a feature in the camera of the iPhone X series that takes multiple pictures at different exposures and then combines them to create one well-exposed photo. One of the things that make the iPhone camera so great is computational photography.
@@ -256,6 +251,20 @@ This feature is designed to improve the quality of your photos by automatically 
 * It's enabled by default in iOS 11 so you don't have to do anything.
 
 ![auto hdr](https://images.wondershare.com/filmora/article-images/2022/07/what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Should you Lookout for the HDR feature on iPhone 14?
 
@@ -301,5 +310,21 @@ Auto HDR will make sure both shadows and highlights are in focus, while Smart HD
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-innovative-prime-lenses-for-professionals-shooting-4k/"><u>[New] 2024 Approved Innovative Prime Lenses for Professionals Shooting 4K</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-xsplit-index-direct-split-and-reviews/"><u>[New] 2024 Approved XSplit Index Direct Split and Reviews</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-essential-windows-11-editors-for-professionals-for-2024/"><u>[New] Essential Windows 11 Editors for Professionals for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-tablet-list-for-photographers-going-beyond-filmora-for-2024/"><u>[New] The Ultimate Tablet List for Photographers Going Beyond Filmora for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-softening-audio-levels-alives-approach/"><u>[Updated] Softening Audio Levels Alive’s Approach</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/becoming-fluent-in-italys-body-talk-lingo/"><u>Becoming Fluent in Italy's Body Talk Lingo</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevate-your-images-top-10-grid-organizers-for-2024/"><u>Elevate Your Images Top 10 Grid Organizers for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/expert-audio-enhancement-toolkit-for-2024/"><u>Expert Audio Enhancement Toolkit for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/samsungs-latest-smartphone-unveiling-event-what-you-need-to-know/"><u>Samsung's Latest Smartphone Unveiling Event: What You Need To Know</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/seamless-data-protection-for-windows-11-users-creating-a-system-that-auto-backs-up-to-external-drives/"><u>Seamless Data Protection for Windows 11 Users: Creating a System That Auto-Backs up to External Drives</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamlining-portaudio-synthesis-with-audacitys-fixes-for-win-os/"><u>Streamlining PortAudio Synthesis with Audacity’s Fixes for Win OS</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-editors-guide-to-age-old-vhs-effects-in-digital-video-production/"><u>The Editor's Guide to Age-Old VHS Effects in Digital Video Production</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/which-m1-model-suits-you-best-air-vs-pro-analysis/"><u>Which M1 Model Suits You Best? Air Vs. Pro Analysis</u></a></li>
+</ul></div>
 

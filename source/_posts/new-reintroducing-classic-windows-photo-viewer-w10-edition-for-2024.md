@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reintroducing Classic Windows Photo Viewer - W10 Edition for 2024\""
-date: 2024-09-09T22:52:08.014Z
-updated: 2024-09-16T21:17:56.843Z
+date: 2024-10-10T02:55:58.232Z
+updated: 2024-10-15T07:30:07.421Z
 tags: 
   - screen-recording
   - ai video
@@ -70,9 +70,23 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -93,10 +107,10 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -105,20 +119,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -143,5 +151,17 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-digital-canvas-delight-premier-apps-for-ipados-artistry/"><u>[New] Digital Canvas Delight Premier Apps for iPadOS Artistry</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-lg-redefines-reality-with-its-latest-virtual-gaming-device/"><u>[New] In 2024, LG Redefines Reality with Its Latest Virtual Gaming Device</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-pioneering-8-android-group-chat-applications-over-four-participants/"><u>[New] In 2024, Pioneering 8 Android Group Chat Applications, Over Four Participants</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-unveiling-professional-monitor-recording-by-zdsoft/"><u>[New] In 2024, Unveiling Professional Monitor Recording by ZDSoft</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-quick-and-painless-podcast-go-live-technique/"><u>[New] The Quick and Painless Podcast Go Live Technique</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-boost-engagement-with-these-premier-html5-players/"><u>[Updated] Boost Engagement with These Premier HTML5 Players</u></a></li>
+<li><a href="https://common-error.techidaily.com/beat-disk-read-errors-a-comprehensive-guide-to-overcoming-cddvd-player-error-39-issues/"><u>Beat Disk Read Errors: A Comprehensive Guide to Overcoming CD/DVD Player Error 39 Issues</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-youtube-alternatives-3-best-video-sharing-sites/"><u>In 2024, YouTube Alternatives 3 Best Video Sharing Sites</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-create-jaw-dropping-slow-mo-videos-with-these-top-10-editors/"><u>New Create Jaw-Dropping Slow Mo Videos with These Top 10 Editors</u></a></li>
+<li><a href="https://os-tips.techidaily.com/quick-guide-safeguarding-your-motorola-content-on-pcs-in-the-cloud-or-across-phones/"><u>Quick Guide: Safeguarding Your Motorola Content on PCs, in the Cloud, or Across Phones</u></a></li>
+</ul></div>
 

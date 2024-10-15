@@ -1,7 +1,7 @@
 ---
 title: "\"Must-Know Leaders in Virtual Reality Realm for 2024\""
-date: 2024-10-01T22:47:53.871Z
-updated: 2024-10-08T23:23:23.541Z
+date: 2024-10-13T20:47:57.574Z
+updated: 2024-10-15T07:59:53.339Z
 tags: 
   - screen-recording
   - ai video
@@ -49,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/a2a04cdf466fbea2e01b9f9b4e0e053a2190bbd1c
  Aside from the sister company, Here Be Dragons, With.in also works with other companies such as Apple, The New York Times, NBC, Vice Media and the United Nations.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Art Work of With.in
@@ -68,10 +68,10 @@ thumbnail: https://thmb.techidaily.com/a2a04cdf466fbea2e01b9f9b4e0e053a2190bbd1c
 * **The Click Effect**  The short film is about an underwater adventure that takes the viewer to the beauty of the ocean. A person will have the connection with not only the ocean but also the dolphin and whales. A free-spirited approach to the right ocean adventure is displayed in the short film.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## About Chris Milk
@@ -88,16 +88,16 @@ thumbnail: https://thmb.techidaily.com/a2a04cdf466fbea2e01b9f9b4e0e053a2190bbd1c
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -125,19 +125,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-the-aesthetic-edge-crafting-podcast-logos-with-panache/"><u>[New] In 2024, The Aesthetic Edge Crafting Podcast Logos with Panache</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-narrow-your-focus-on-elite-hdr-camera-systems/"><u>[New] Narrow Your Focus on Elite HDR Camera Systems</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-perspectives-perfected-top-11-bridging-camera-reviews/"><u>[Updated] In 2024, Perspectives Perfected Top 11 Bridging Camera Reviews</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-streamlining-video-submissions-from-imovie-to-vimeo/"><u>[Updated] In 2024, Streamlining Video Submissions From iMovie to Vimeo</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-pioneering-pedagogy-through-film-in-the-classroom/"><u>[Updated] Pioneering Pedagogy Through Film in the Classroom</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-snowball-rally-highlights-from-the-beijing-games-2022/"><u>[Updated] Snowball Rally Highlights From the Beijing Games, 2022</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-step-by-step-to-social-glory-enhance-your-feed-with-gifs-insta-style-for-2024/"><u>[Updated] Step-By-Step to Social Glory Enhance Your Feed with GIFs (Insta Style) for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-superior-frameworks-for-zooid-creation-for-2024/"><u>[Updated] Superior Frameworks for Zooid Creation for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-verdict-on-video-clips-a-deep-dive-into-inshots-performance/"><u>[Updated] The Verdict on Video Clips A Deep Dive Into InShot's Performance</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-10-budget-friendly-jpeg-to-gif-conversion-tools-online/"><u>[Updated] Top 10 Budget-Friendly JPEG to GIF Conversion Tools Online</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/flac-aviflacmovavi/"><u>FLAC格式自動化 - AVI到FLAC無成本轉換解決方案：Movavi</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-the-art-of-influence-essential-marketing-expressions-explained/"><u>In 2024, The Art of Influence Essential Marketing Expressions Explained</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-android-ad-blockers-your-choice-comparison-for-2024/"><u>Top 7 Android Ad Blockers Your Choice Comparison for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/ustream-live-and-comparable-platforms/"><u>Ustream Live & Comparable Platforms</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-free-recording-tool-for-every-android-enthusiast/"><u>[New] Free Recording Tool for Every Android Enthusiast</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-trimming-the-bends-correcting-gopro-fish-eye-effect/"><u>[New] Trimming the Bends Correcting GoPro Fish Eye Effect</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-excellent-avi-player-pcmobile-compatibility/"><u>2024 Approved Excellent AVI Player - PC/Mobile Compatibility</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-oppo-reno-10-proplus-5g-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Oppo Reno 10 Pro+ 5G</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagram-angles-the-complete-manual-for-effective-video-turns/"><u>Instagram Angles The Complete Manual for Effective Video Turns</u></a></li>
+<li><a href="https://program-issues.techidaily.com/origin-back-online-after-recent-fix-no-more-connection-troubles/"><u>Origin Back Online After Recent Fix - No More Connection Troubles</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-touchpad-troubles-in-windows-operating-systems-1187-a-comprehensive-guide-to-solutions/"><u>Overcoming Touchpad Troubles in Windows Operating Systems (11/8/7): A Comprehensive Guide to Solutions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/picsart-guide-discreetly-mask-faces/"><u>Picsart Guide Discreetly Mask Faces</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unlocking-the-full-potential-of-zoom-on-your-google-meet-calls-for-2024/"><u>Unlocking the Full Potential of Zoom on Your Google Meet Calls for 2024</u></a></li>
 </ul></div>
 

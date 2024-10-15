@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Transcending Boundaries  The VR Evolutionary Journey\""
-date: 2024-10-02T22:13:05.423Z
-updated: 2024-10-08T16:21:40.473Z
+date: 2024-10-07T22:43:52.348Z
+updated: 2024-10-14T21:46:41.136Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/e431075a9d1c5a5fc01489c600cd9d77b46bf785e
  )
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -54,34 +54,28 @@ thumbnail: https://thmb.techidaily.com/e431075a9d1c5a5fc01489c600cd9d77b46bf785e
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## About the European VR game makers and their funding
 
  Funding for the games has always remained one of the prime concerns for the game developers and publishers. You know that it takes large amounts to be invested for the games. When it comes to the funding policies for the European game developers, most of them are covering the entire expenses using their own funds. Take a look at what the survey report has to say about that. Asking about the sources of the fund for the games 57.8 percent said that their funds come from the company’s existing fund while contrary to this, 32.9 percent game developers said that they manage their own fund from their personal accounts.
 
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
 
@@ -90,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/e431075a9d1c5a5fc01489c600cd9d77b46bf785e
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -121,24 +115,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-crafting-the-perfect-virtual-space-with-zooms-features/"><u>[New] 2024 Approved Crafting the Perfect Virtual Space with Zoom's Features</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-decoding-youtubes-algorithm-behind-prominent-comments/"><u>[New] 2024 Approved Decoding YouTube's Algorithm Behind Prominent Comments</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-digitizing-memories-from-stillness-to-movement/"><u>[New] 2024 Approved Digitizing Memories From Stillness to Movement</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-ultimate-guide-to-customized-text-editing-techniques/"><u>[New] 2024 Approved The Ultimate Guide to Customized Text Editing Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-drone-trailblazers-the-most-attentive-models/"><u>[New] Drone Trailblazers The Most Attentive Models</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-highest-quality-images-10-premium-4k-cameras-in-smartphones/"><u>[New] In 2024, Highest Quality Images 10 Premium 4K Cameras in Smartphones</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-kinetic-keywords-animation-mastery-for-social-media-captions-for-2024/"><u>[New] Kinetic Keywords Animation Mastery for Social Media Captions for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-swap-periscope-leading-video-apps-for-iphoneandroid-devices-for-2024/"><u>[New] Swap Periscope Leading Video Apps for iPhone/Android Devices for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-cinematic-lighting-5-must-haves-for-streams/"><u>[Updated] 2024 Approved Cinematic Lighting 5 Must-Haves for Streams</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-blending-harmonies-in-a-social-media-slot-for-2024/"><u>[Updated] Blending Harmonies in a Social Media Slot for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-comprehensive-capture-and-review-with-az/"><u>[Updated] Comprehensive Capture & Review with AZ</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-infusing-life-into-text-instagram-story-animations-tips/"><u>[Updated] In 2024, Infusing Life Into Text Instagram Story Animations Tips</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-fix-no-video-on-sony-a6400-camera/"><u>2024 Approved How to Fix No Video On Sony A6400 Camera</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-honor-play-7t-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Honor Play 7T? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/asus-unveils-new-nuc-pertplus-model-packing-a-meteor-lake-cpu-core-ultra-5-125h-for-860/"><u>Asus Unveils New NUC Pert+ Model: Packing a Meteor Lake CPU, Core Ultra-5 125H for $860</u></a></li>
-<li><a href="https://fox-info.techidaily.com/essential-vr-gear-for-aerial-devices/"><u>Essential VR Gear for Aerial Devices</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy F54 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-lightning-fast-visualization-for-win11-users/"><u>In 2024, Lightning-Fast Visualization for Win11 Users</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/mixed-emotions-after-moving-from-windows-10-to-windows-11-the-irreplaceable-features-i-yearn-for/"><u>Mixed Emotions After Moving From Windows 10 to Windows 11: The Irreplaceable Features I Yearn For</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-harness-your-screen-with-screencastify-recorder/"><u>[New] 2024 Approved Harness Your Screen with Screencastify Recorder</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ultimate-oculus-rift-game-hits-of-the-season/"><u>[New] 2024 Approved Ultimate Oculus Rift Game Hits of the Season</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-fusing-fun-and-functionality-top-6-engaging-video-formats-for-2024/"><u>[New] Fusing Fun and Functionality Top 6 Engaging Video Formats for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-free-range-humor-development-unleash-your-wit/"><u>[New] In 2024, Free-Range Humor Development Unleash Your Wit</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-superior-online-multimedia-collaboration-tools-for-2024/"><u>[New] Superior Online Multimedia Collaboration Tools for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-from-silence-to-sounds-windows-10-recorder-use-for-2024/"><u>[Updated] From Silence to Sounds Windows 10 Recorder Use for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-gentle-guides-to-nocturnal-nirvana-top-asmr-talents/"><u>[Updated] Gentle Guides to Nocturnal Nirvana Top ASMR Talents</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-downloading-twitters-animated-content-simplified/"><u>[Updated] In 2024, Downloading Twitter's Animated Content Simplified</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/frontier-of-film-virtual-realities-in-theaters/"><u>Frontier of Film Virtual Realities in Theaters</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-troubleshoot-the-malfunctioning-rockstar-launcher-for-a-smooth-gaming-experience/"><u>How to Troubleshoot the Malfunctioning Rockstar Launcher for a Smooth Gaming Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-ultimate-flashy-game-collection-quick-and-lightweight/"><u>In 2024, Ultimate Flashy Game Collection - Quick and Lightweight</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/review-ultra-hd-blade-cam-at-full-spectrum/"><u>Review Ultra HD Blade Cam at Full Spectrum</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-failed-texture-loads-in-activisions-battle-royale-game/"><u>Troubleshooting Failed Texture Loads in Activision's Battle Royale Game</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
 </ul></div>
 

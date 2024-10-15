@@ -1,7 +1,7 @@
 ---
 title: "[New] Unlocking the Potential of Audacity's Audio Features"
-date: 2024-09-14T22:52:09.287Z
-updated: 2024-09-16T20:47:28.404Z
+date: 2024-10-14T00:01:33.472Z
+updated: 2024-10-14T16:26:13.191Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,19 @@ Step3To choose the kind of track you want, click "Tracks" at the top of the page
 
 Step4To begin the recording, simply click the "Record" button. As soon as you press record, an audio graph of your voice should start to display. Using the "Shift + R" hotkeys on your keyboard, you can add a new recording if you'd like to.
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Recording using Mac
 
 To record audio on your Mac, you might need to install Audacity and additional plugins. The best option is to use the Soundflower program, which enables you to send sound to other apps rather than your computer's speakers. Here's how to use Soundflower and Audacity to record audio on a Mac.
@@ -52,6 +65,13 @@ Step2The Soundflower app must then be set up. To achieve this, choose "Sounds" f
 Step3In the "Device" section of the Audacity preferences box, choose "Soundflower (2ch)". From the recording area, choose "Software playthrough." Click "OK" to save the options you've selected.
 
 Step4Launch audacity, then open the app whose audio you wish to record. To begin the recording, click the "Record" button.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Export your audio
 
@@ -99,18 +119,24 @@ Simply select the necessary file format from the drop-down box that appears next
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-transform-your-reddit-presence-with-these-tactics/"><u>[New] 2024 Approved Transform Your Reddit Presence with These Tactics</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-twitch-vs-youtube-an-in-depth-comparative-analysis/"><u>[New] In 2024, Twitch vs YouTube An In-Depth Comparative Analysis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-reactivate-and-enhance-photo-viewing-with-ease-win-11/"><u>[New] Reactivate and Enhance Photo Viewing with Ease (Win 11)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-deciphering-the-rights-based-language-of-instagrams-music-features/"><u>[Updated] 2024 Approved Deciphering the Rights-Based Language of Instagram's Music Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-learn-efficiently-how-to-use-zero-cost-timers-for-2024/"><u>[Updated] Learn Efficiently How To Use Zero Cost Timers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-chromatics-a-practical-approach/"><u>[Updated] Mastering Chromatics A Practical Approach</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-reclaiming-one-headphone-harmony/"><u>[Updated] Reclaiming One-Headphone Harmony</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-samsung-gear-360-top-alternative-cameras-2023-edition/"><u>[Updated] Samsung Gear 360 Top Alternative Cameras 2023 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unleash-creativity-with-ease-mastering-the-art-of-photo-text-editing-for-2024/"><u>[Updated] Unleash Creativity with Ease Mastering the Art of Photo Text Editing for 2024</u></a></li>
+<li><a href="https://win-updates.techidaily.com/1-repackaged-software-solutions-a-strategic-approach-to-application-delivery/"><u>1. Repackaged Software Solutions: A Strategic Approach to Application Delivery</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-a-brief-overview-understanding-vr-jargon/"><u>2024 Approved A Brief Overview Understanding VR Jargon</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-oppo-find-x7-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Oppo Find X7 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/einfache-schritte-zur-installation-und-entfernung-von-anwendungen/"><u>Einfache Schritte Zur Installation Und Entfernung Von Anwendungen</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-update-your-acers-wi-fi-card-free-fast-driver-downloads-inside/"><u>How to Update Your Acer's Wi-Fi Card: Free, Fast Driver Downloads Inside!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-ultimate-shift-from-standard-definition-to-dynamic-range-brilliance-for-2024/"><u>The Ultimate Shift From Standard Definition to Dynamic Range Brilliance for 2024</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-samsung-galaxy-f14-5g-by-fonelab-android-recover-data/"><u>Undelete lost data from Samsung Galaxy F14 5G</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unveiling-youtubes-new-era-post-vidcon-events-for-2024/"><u>Unveiling Youtube's New Era Post-VidCon Events for 2024</u></a></li>
+</ul></div>
 

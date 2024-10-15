@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unrivaled Dramas From the Eightfold Storytelling Sphere"
-date: 2024-10-02T00:26:05.517Z
-updated: 2024-10-08T21:34:33.941Z
+date: 2024-10-13T16:18:06.815Z
+updated: 2024-10-14T21:46:33.256Z
 tags: 
   - screen-recording
   - ai video
@@ -48,13 +48,6 @@ As aspiring screenwriters, it is important for us to focus on markets where we c
 
 ## Part 2\. Scripts examples from 8 genre
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Best horror scripts
 
 **_1\. Annabelle_**
@@ -72,6 +65,13 @@ The screenplay was written by [**Gary Dauberman**](https://en.wikipedia.org/wiki
 **_2\. Halloween_**
 
 ![halloween](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writer:** John Carpenter and Debra Hill
 
@@ -99,13 +99,6 @@ Download the script here: <https://www.scriptslug.com/script/21-jump-street-2012
 
 ![the edge of seventeen](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Writer:** Kelly Fremon Craig
 
 How this amazing comedy drama script came about is a good example of a writer who punches above his weight. If you have a great comedy script and a favorite producer or director, there's nothing stopping you from sending it to them and seeing what happens.
@@ -129,13 +122,6 @@ When Scrooge's nephew Fred returns the letters Scrooge once wrote to his sister 
 _**2\. Angel's Poinsettia**_
 
 ![angel's poinsettia](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Writer:** Sally Painter
 
@@ -211,13 +197,6 @@ Level of difficulty: _6/10 – conversational, easy lines to remember and that a
 
 ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
 
 **Download the script here:** <http://offthewallplays.com/wp-content/uploads/2018/12/WALK-IN-PARK-half-script-1.pdf>
@@ -237,6 +216,13 @@ This screenplay explores the relationship between two criminals – Denzel Washi
 _**2\. Casino Royale**_
 
 ![casino royale](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Writers:** Robert Wade and Paul Haggis
 
@@ -298,13 +284,6 @@ Like any child of the 90s, I admit to having a soft spot for The Lion King. The 
 
 Have you ever stored various videos and photos on a memory card or on the computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Make a Video with Wondershare Filmora Easy Movie Maker
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a video editing software that enables users to create amazing videos efficiently using a wide range of powerful editing tools. It gives filters, animated elements, and other video effects. The filters and overlays allow transforming of video with a variety of filters and graphic overlays.
@@ -317,13 +296,6 @@ The key features offered by [Wondershare Filmora](https://tools.techidaily.com/w
 
 ![make a video with wondershare filmora](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-17.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The 4K editing support feature enables users to edit and export videos at a resolution of up to 4K. The GIF support feature allows importing, editing, and exporting of GIF files. The noise removal feature facilitates removal of unwanted background noise readily.
 
 The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) feature enables users to adjust the white balance and dynamic range of their clips. The audio mixer feature enables changing the audio of each track. The advanced text editor allows editing the color, size, font, and even animation of the text. The screen recording feature enables recording the screen of the computer and webcam efficiently. The video stabilization feature eliminates the effects of camera shake.
@@ -331,10 +303,10 @@ The [color tuning](https://tools.techidaily.com/wondershare/filmora/download/) f
 ![color tuning](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-18.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -348,6 +320,13 @@ Creating video content that can potentially go viral is no longer a complicated 
 When you look at the top-grossing movies at the box office, it's no surprise that they primarily consist of superhero movies made by big studios with big budgets. Black Widow is the[top-grossing film of 2022](https://www.boxofficemojo.com/chart/top%5Flifetime%5Fgross/?area=XWW) so far, with Shang-Chi and The Legend of the Ten Rings a close second. In third place is F9: The Fast Saga, the ninth installment in the overwhelmingly popular Fast and Furious franchise.
 
 ![reason of picking films](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Sure, we'd all love to write one of those big blockbusters, but it's going to take a lot of blood, sweat, and writing to earn Marvel's trust. That's why I want to draw attention to the movie that is in fourth place: A Quiet Place Part II. The sequel to 2018's A Quiet Place has grossed over $160 million this year and still has three months to go. Why is this significant? I will explain.
 
@@ -380,6 +359,13 @@ This script was written by **John Carpenter and Debra Hill** in just ten days (o
 Part of its enduring appeal is the simplicity of its concept: A kid who murdered his babysitter escapes from a mental institution to pursue the babysitter and her friends, all while being pursued by his psychiatrist. This logline virtually writes the script itself, so in that sense it's no wonder Carpenter and Hill were able to knock it out so quickly.
 
 **Download the script here:** <https://www.studiobinder.com/blog/halloween-script-screenplay-pdf-download/>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Best comedy scripts
 
@@ -455,6 +441,13 @@ A short video (usually animated) that explains ideas, products, or services in a
 
 This template begins with a scene where a character is struggling with the same problem your audience is facing. Once you've established a connection, you present the solution, show how it works and the results it delivers, and wrap it up with a call to action.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Best short drama scripts
 
 _**1\. A GIFT – TEN MINUTE PLAY FOR TWO ACTORS**_
@@ -472,6 +465,13 @@ Ages of the actors: _Approximately 30-40 years of age_
 Suitable for: _All ages_
 
 ![a gift](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In this ten-minute play for two actors, two young men meet on a train. One is a serious young man on his way to propose to his girlfriend, the other is a cynical loner who advises the former to escape the wedding while he can. The council backfires and an earnest young man sets out on a journey, leaving the recluse in this comedy-drama with a wonderful twist to his story.
 
@@ -496,6 +496,19 @@ Set: _A Park. Daytime in the present. It is a bucolic atmosphere in the middle o
 Level of difficulty: _6/10 – conversational, easy lines to remember and that also flow easily_
 
 ![a walk in the park](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-10.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 When Jack meets Esther in the park one day, he swears she looks familiar. Although Esther initially denies that she even knows him, she invites him to sit down and they start talking. Jack tells her a story about a girl he knew a long time ago, a girl he called "Essie", who helped him get over another girl who broke his heart a long time ago. A short five-minute game for seniors - one man and one woman.
 
@@ -556,13 +569,6 @@ The film stands out in the now crowded genre by avoiding any cataclysmic showdow
 **_1\. Cinderella_(1950)**
 
 ![cinderella 1950](https://images.wondershare.com/filmora/article-images/2022/07/best-screenplays-from-8-genre-15.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Writers:** William Peet, Ted Sears, Homer Brightman, Kenneth Anderson, Erdman Penner, Winston Hibler, Harry Reeves, Joe Rinaldi
 
@@ -630,22 +636,19 @@ Creating video content that can potentially go viral is no longer a complicated 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-precision-and-excellence-a-guide-to-professional-audacity-recordings/"><u>[New] 2024 Approved Precision and Excellence A Guide to Professional Audacity Recordings</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-elevating-your-podcasts-online-presence-via-seo/"><u>[New] Elevating Your Podcast's Online Presence via SEO</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-evaluating-cost-effectiveness-in-youtube-promotions-for-2024/"><u>[New] Evaluating Cost Effectiveness in YouTube Promotions for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-explore-the-best-ai-naming-software-for-podcasters/"><u>[New] Explore the Best AI Naming Software for Podcasters</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-fb-slideshows-for-content-sharing-for-2024/"><u>[New] Mastering FB Slideshows for Content Sharing for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-proven-methods-to-excellence-in-srt-file-design/"><u>[New] Proven Methods to Excellence in SRT File Design</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-transform-your-photos-with-ease-comprehensive-guide-on-background-erasure-tool-usage-for-2024/"><u>[New] Transform Your Photos with Ease Comprehensive Guide on Background Erasure Tool Usage for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-leveraging-branding-skills-skyrocketing-your-youtube-subscriber-base/"><u>[Updated] 2024 Approved Leveraging Branding Skills Skyrocketing Your YouTube Subscriber Base</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-mastering-effective-social-media-video-promos/"><u>[Updated] 2024 Approved Mastering Effective Social Media Video Promos</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-monitor-magic-asuss-mg28uq-review-reveals-a-new-vision-era/"><u>[Updated] 2024 Approved Monitor Magic – ASUS's MG28UQ Review Reveals a New Vision Era</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-rhythm-of-the-skies-bebop-parrot-revisited/"><u>[Updated] The Rhythm of the Skies Bebop Parrot Revisited</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/bp550-review-latest-tech-advances/"><u>BP550 Review Latest Tech Advances</u></a></li>
-<li><a href="https://win-dash.techidaily.com/easy-steps-to-set-up-jizz-planet-extension-in-kodi-v19-the-ultimate-guide/"><u>Easy Steps to Set Up Jizz Planet Extension in Kodi v19 - The Ultimate Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/identify-malfunctioning-drivers-with-windows-device-manager-on-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Identify malfunctioning drivers with Windows Device Manager on Windows 11 & 10 & 7</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-optimal-aspect-ratios-for-video-content-creation/"><u>In 2024, Optimal Aspect Ratios for Video Content Creation</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/music-matters-imovie-editing-tips-for-2024/"><u>Music Matters IMovie Editing Tips for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-cutting-edge-ipad-calculator-app-thats-so-impressive-youll-want-an-apple-pencil/"><u>Unveiling the Cutting-Edge iPad Calculator App That's So Impressive, You'll Want an Apple Pencil!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-tricks-to-simulate-quantum-leap-phenomena/"><u>[New] In 2024, Tricks to Simulate Quantum Leap Phenomena</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-wheres-the-magic-explore-real-world-hidden-gems-through-location-services/"><u>[New] In 2024, Where's the Magic? Explore Real-World Hidden Gems Through Location Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-video-resolution-converter-for-desktop-or-online/"><u>[Updated] 2024 Approved Top Video Resolution Converter for Desktop or Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-transforming-audio-to-text-on-slides-for-ppt/"><u>[Updated] 2024 Approved Transforming Audio to Text on Slides for PPT</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-free-and-easy-building-attractive-youtube-intros-without-expense/"><u>[Updated] In 2024, Free & Easy Building Attractive YouTube Intros without Expense</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-redefining-collaboration-the-power-of-immersive-vr/"><u>[Updated] In 2024, Redefining Collaboration The Power of Immersive VR</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-obs-mastery-5-edits-that-will-elevate-your-work-for-2024/"><u>[Updated] OBS Mastery 5 Edits That Will Elevate Your Work for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-innovative-shots-with-purpose-top-20-ideas-for-inspiration/"><u>2024 Approved Innovative Shots with Purpose Top 20 Ideas for Inspiration</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-ultimate-utilities-free-and-paid-macpc-bd-software-compared/"><u>2024 Approved Ultimate Utilities Free & Paid Mac/PC BD Software Compared</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-xiaomi-redmi-a2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/excellence-in-voice-modification-tools-featuring-magic-for-2024/"><u>Excellence in Voice Modification Tools, Featuring Magic for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-12-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone 12 Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/key-steps-to-replace-mouse-software-on-windows-1011/"><u>Key Steps to Replace Mouse Software on WINDOWS 10/11</u></a></li>
 </ul></div>
 

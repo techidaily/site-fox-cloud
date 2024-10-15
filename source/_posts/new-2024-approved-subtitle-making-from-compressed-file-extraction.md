@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Subtitle Making From Compressed File Extraction\""
-date: 2024-09-10T17:10:59.985Z
-updated: 2024-09-16T19:53:06.717Z
+date: 2024-10-12T16:54:59.231Z
+updated: 2024-10-14T17:11:28.213Z
 tags: 
   - screen-recording
   - ai video
@@ -63,11 +63,25 @@ Step2 Click on 'Select zip file to convert' and upload the zip file that contain
 
 ![click on select zip file to convert](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Once you upload the ZIP, the tool will instantly list all SRT files in the ZIP archive.
 
 Step4 Finally, hit the ‘Save’ button right in front of the SRT file to save the individual SRT to your local drive or you can just use the ‘Save All’ button to save the files as a folder.
 
 ![hit save button](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Extract SRT file in a Zip File on Android or Ios
 
@@ -86,10 +100,10 @@ Step3 Tap on the ZIP file to preview its content. Then tap ‘Extract’ to extr
 ![tap extract to extract srt files](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4 Finally, tap on ‘Done’ to complete the process.
@@ -125,13 +139,6 @@ The software is very straightforward to utilize, and another excellent thing is 
 * Boasts a very clean interface that makes it easy to operate by all users.
 * Lightweight software and it doesn't compromise computer functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Edit SRT with Filmora Software
 
 Firstly, make sure you've downloaded and installed I've [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) software on your computer.
@@ -146,20 +153,34 @@ Step3 Move the SRT file to the Timeline and right-click it > select ‘Advanced 
 
 ![select advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Edit the SRT file according to your requirements. You can edit time.code, change subtitles, and do lots more.
 
 ![edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 After you've completed the editing process, right-click on the ‘SRT’ file from the timeline. Then, choose ‘Export Subtitle File’ from the pop-up list and save it the SRT file to a preferred location on your computer.
 
 ![right click on srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -223,6 +244,13 @@ Step3 Tap on the ZIP file to preview its content. Then tap ‘Extract’ to extr
 
 ![tap extract to extract srt files](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Finally, tap on ‘Done’ to complete the process.
 
 **For iPhone**
@@ -234,13 +262,6 @@ Step1 Open ‘Files App’ on your iOS device and locate the ZIP file. Then tap 
 Step2 Hold down the ZIP file and select ‘Quick Look’ from the pop-up list > Tap Preview.
 
 ![select quick look](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Now, locate the SRT file and use the Share icon at the bottom left corner of your screen to save it to your device. You can open the SRT file afterward!
 
@@ -281,16 +302,16 @@ Step4 Edit the SRT file according to your requirements. You can edit time.code, 
 
 ![edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 After you've completed the editing process, right-click on the ‘SRT’ file from the timeline. Then, choose ‘Export Subtitle File’ from the pop-up list and save it the SRT file to a preferred location on your computer.
 
 ![right click on srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -320,5 +341,16 @@ The article above has covered everything about converting zip to srt with or wit
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-the-best-laptops-for-video-editing-you-should-know/"><u>[New] 2024 Approved The Best Laptops For Video Editing You Should Know</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-avoiding-common-mistakes-how-to-go-live-on-tiktok-from-pc/"><u>[New] In 2024, Avoiding Common Mistakes – How to Go Live On TikTok From PC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-engineering-peak-canon-sequential-films/"><u>[New] In 2024, Engineering Peak Canon Sequential Films</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-mastering-audio-diminishment-in-lumafusion/"><u>[New] In 2024, Mastering Audio Diminishment in Lumafusion</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-basic-framework-of-tech-driven-narratives/"><u>[Updated] 2024 Approved Basic Framework of Tech-Driven Narratives</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-x7b-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-first-contact-with-freight-elevating-the-opening-moment/"><u>In 2024, First Contact with Freight Elevating the Opening Moment</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transcribe-speech-to-text-seamlessly-using-words-tools/"><u>In 2024, Transcribe Speech to Text Seamlessly Using Word's Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-unlock-your-movies-gratis-player-for-windowsmacos/"><u>In 2024, Unlock Your Movies Gratis Player for Windows/MacOS</u></a></li>
+</ul></div>
 

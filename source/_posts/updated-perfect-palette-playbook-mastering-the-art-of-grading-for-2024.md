@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfect Palette Playbook  Mastering the Art of Grading for 2024\""
-date: 2024-09-10T01:52:44.571Z
-updated: 2024-09-16T19:33:58.970Z
+date: 2024-10-08T02:13:18.143Z
+updated: 2024-10-15T05:00:25.896Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,13 @@ Whether you shoot video on your smartphone or DSLR, you always want to give it a
 
 ![premiere pro 2021](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-tutorial-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. [Color Grading with DaVinci Resolve: Beginner to Advanced](https://www.udemy.com/course/color-grading-with-da-vinci-resolve-beginner-to-advanced/)
 
 Course updates to Resolve 17 are largely complete. more updates and re-recorded lectures will be added regularly.
@@ -78,20 +85,6 @@ This course is designed to show you what it means to create a cinematic color gr
 * Learn to use standard techniques and tips to color grade your movies in a cinematic way using various programs and plugins.
 
 ![cinematic color grading](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-tutorial-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. [Color Grading Masterclass: Resolve 15](https://www.udemy.com/course/color-grading-masterclass/)
 
@@ -171,6 +164,13 @@ You can do it! Even if you're a beginner or just starting, this course will teac
 
 ![cinematic color grading](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-tutorial-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. [Premiere Pro Lumetri 2020: Color Correct & Color Grade](https://www.udemy.com/course/premiere-lumetri-2020/)
 
 Start learning color correction and color grading in this beginner's class. This lesson does not include boring theoretical lessons. From the first lesson, we dive straight into practical examples and real situations.
@@ -191,6 +191,19 @@ Confused about color correction tools and how they work? What is good color grad
 
 ![premiere pro lumetri 2020](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-tutorial-9.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9\. [Amber & Teal - Cinematic Color Grading in Photoshop](https://www.udemy.com/course/cinematic-color-grading/)
 
 Using Amber and Teal gradation techniques to add mood and feel to photographs is a trick used by the giants of the silver screen. You can bring the same impressive cinematic style to your work using three different color methods in Photoshop using the Color Lookup tool, the Color Balance adjustment layer, and my personal favorite Photoshop tool — Curves. You'll learn all of this by working with three images hands-on, plus you'll learn how to remove a color cast from an image and how to fine-tune images using the Adobe color wheel. This powerful work is so simple that even Photoshop beginners can achieve amazing results.
@@ -203,13 +216,6 @@ Using Amber and Teal gradation techniques to add mood and feel to photographs is
 * Smart work for incredible coloring results with Photoshop's most powerful tool: Curves
 
 ![amber and teal gradation techniques](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-tutorial-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 10\. [Adobe Lightroom СС: Color Correction in Lightroom A to Z](https://www.udemy.com/course/lightroom-cc-professional-color-correction/)
 
@@ -257,10 +263,23 @@ You will learn the complete basic training of color correction and grading in Pr
 ![understanding color](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-tutorial-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. How to use Filmora to color grade video?
@@ -271,21 +290,22 @@ To give the atmosphere of great effects, it is easy to directly apply some fixed
 
 ![drag and drop objects onto timeline video clip](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-tutorial-13.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Of course, you may choose **"Advanced"** for a more subtle color correction if you're still not satisfied with the result. There are components in Adjust such Enhancement, White Balance, and Vignette. In the **Preset** menu, you can also select a finer pre-made configuration.
 
 ![select a finer pre made configuration](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-tutorial-14.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -295,6 +315,13 @@ In short, we've touched on many different color grading tutorials that simplify 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -326,5 +353,26 @@ In short, we've touched on many different color grading tutorials that simplify 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-expand-your-horizons-with-these-elite-science-yts/"><u>[New] In 2024, Expand Your Horizons with These Elite Science YTs</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-reviewing-the-core-of-magix-photo-framework/"><u>[New] In 2024, Reviewing the Core of MAGIX Photo Framework</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-zero-price-text-enhancements-for-vfx-artists/"><u>[New] In 2024, Zero-Price Text Enhancements for VFX Artists</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-micro-post-your-next-audio-adventure-for-2024/"><u>[New] Micro-Post Your Next Audio Adventure for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-blueprint-for-tiktok-media-transfer-for-2024/"><u>[New] The Ultimate Blueprint for TikTok Media Transfer for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-co-creating-content-brands-team-up-for-youtube-success-for-2024/"><u>[Updated] Co-Creating Content Brands Team Up for YouTube Success for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-commence-your-filmmaking-adventure-with-xps-toolkit/"><u>[Updated] Commence Your Filmmaking Adventure with XP's Toolkit</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-novice-to-content-creator-your-youtube-journey-begins-for-2024/"><u>[Updated] From Novice to Content Creator Your YouTube Journey Begins for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-sightsphere-scrutiny-summary/"><u>[Updated] SightSphere Scrutiny Summary</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-sonys-pursuit-of-perfection-the-4k-smartphone-experience/"><u>[Updated] Sony's Pursuit of Perfection The 4K Smartphone Experience</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/conversione-gratuita-online-da-mp3-a-3gp-con-movavi-trasforma-i-tuoi-file-audio/"><u>Conversione Gratuita Online Da MP3 a 3GP Con Movavi - Trasforma I Tuoi File Audio</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/elevate-your-voice-discovering-the-leading-vocal-changer-applications-for-android-for-2024/"><u>Elevate Your Voice Discovering the Leading Vocal Changer Applications for Android for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-honor-x9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-crafting-quality-content-image-submission-for-youtubers/"><u>In 2024, Crafting Quality Content Image Submission for YouTubers</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-cross-social-smiles-top-meme-picks-on-reddit-and-twitter/"><u>In 2024, Cross-Social Smiles Top Meme Picks on Reddit & Twitter</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-perplexing-case-of-unexpected-video-aspects-in-instagram/"><u>In 2024, The Perplexing Case of Unexpected Video Aspects in Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/quickly-master-time-lapse-techniques-for-samsung-phones-for-2024/"><u>Quickly Master Time Lapse Techniques for Samsung Phones for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solve-lag-and-improve-your-gameplay-in-bless-unleashed-for-pc-players/"><u>Solve Lag and Improve Your Gameplay in Bless Unleashed for PC Players</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-top-5-best-tools-to-convert-text-to-audio-online-for-free/"><u>Updated Top 5 Best Tools to Convert Text to Audio Online for Free</u></a></li>
+</ul></div>
 

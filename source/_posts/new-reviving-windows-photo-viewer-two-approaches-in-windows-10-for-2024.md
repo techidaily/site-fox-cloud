@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reviving Windows Photo Viewer  Two Approaches in Windows 10 for 2024\""
-date: 2024-09-11T02:29:14.792Z
-updated: 2024-09-17T00:34:33.014Z
+date: 2024-10-12T22:38:44.514Z
+updated: 2024-10-15T09:23:50.095Z
 tags: 
   - screen-recording
   - ai video
@@ -70,9 +70,23 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -88,15 +102,28 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -104,13 +131,6 @@ Here is the detailed guide –
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -137,5 +157,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-prime-15-luts-to-perfect-gopro-cinematic-shots/"><u>[New] 2024 Approved Prime 15 LUTs to Perfect GoPro Cinematic Shots</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-prime-6-tools-to-remove-signature-backgrounds-effortlessly/"><u>[New] 2024 Approved Prime 6 Tools to Remove Signature Backgrounds Effortlessly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unlock-potential-with-best-sd-cards-for-gopro-hero-78/"><u>[New] In 2024, Unlock Potential with Best SD Cards for GoPro HERO 7/8</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-iphones-with-ease-download-podcasts-made-simple/"><u>[New] Navigating iPhones with Ease - Download Podcasts Made Simple</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-perfecting-trailer-audio-a-step-by-step-approach/"><u>[New] Perfecting Trailer Audio A Step-by-Step Approach</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-djis-innovation-race-how-mavic-air-shifts-the-scene-against-spark/"><u>[Updated] 2024 Approved DJI’s Innovation Race How Mavic Air Shifts the Scene Against Spark</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ultimate-facetune-guide-elevating-your-image-quality/"><u>[Updated] 2024 Approved Ultimate Facetune Guide Elevating Your Image Quality</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-green-thumbs-united-top-10-agrigames-for-friends-and-family/"><u>2024 Approved Green Thumbs United Top 10 AgriGames for Friends and Family</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/amplify-your-chat-status-with-melodies-for-2024/"><u>Amplify Your Chat Status with Melodies for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/eyemosaic-the-essential-photo-patcher/"><u>EyeMosaic The Essential Photo Patcher</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-2022-winter-games-skate-spotlights/"><u>In 2024, 2022 Winter Games Skate Spotlights</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-elite-race-sims-ultimate-selection/"><u>In 2024, Elite Race Sims Ultimate Selection</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-top-12-game-choices-for-the-ultimate-pc-clicking-journey/"><u>In 2024, Top 12 Game Choices for the Ultimate PC Clicking Journey</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-hp-officejet-3830-printer-driver-on-your-pc-windows-version-available-here/"><u>Install HP OfficeJet 3830 Printer Driver on Your PC - Windows Version Available Here</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-top-5-best-free-avi-video-rotators/"><u>New 2024 Approved Top 5 Best Free AVI Video Rotators</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-accelerate-your-footage-a-step-by-step-guide-to-time-lapse-videos/"><u>New In 2024, Accelerate Your Footage A Step-by-Step Guide to Time Lapse Videos</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/productivity-unlocked-4-revolutionary-uses-of-chatgpt-for-timing/"><u>Productivity Unlocked: 4 Revolutionary Uses of ChatGPT for Timing</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mpe-mp3-moveave/"><u>오피스 상대 공간의 MPE 파일을 원형 MP3로 자유성 이전화 - Moveave</u></a></li>
+</ul></div>
 
