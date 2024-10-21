@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Capture with Purpose  IPhone's 10 Commandments of Image Design\""
-date: 2024-10-09T08:19:26.649Z
-updated: 2024-10-14T23:13:41.504Z
+date: 2024-10-17T19:57:36.636Z
+updated: 2024-10-20T18:58:22.049Z
 tags: 
   - screen-recording
   - ai video
@@ -45,13 +45,6 @@ thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce7
 
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Symmetry
 
  For the perfect photo composition with an iPhone, one should understand what all make for the right composition. Photographers divide the frame they want to click into rough patterns and position the subject at the right place to get wonderful shots. Both man-made and natural symmetry and patterns represent eye-catching compositions. You can either take a shot following the symmetric patterns or break them to make the subject stand out by adding focal points and tension.
@@ -59,10 +52,23 @@ thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce7
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Framing
@@ -72,10 +78,10 @@ thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce7
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Diagonals
@@ -85,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce7
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Shape
@@ -98,16 +104,10 @@ thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce7
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Leave Empty Space
@@ -123,16 +123,10 @@ thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce7
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Fill Your Frame
@@ -140,13 +134,6 @@ thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce7
  Making your subject stand out against the entire frame in a photograph creates more impact. You can easily obtain this goal with your iPhone by covering the entire frame with your subject. According to this amazing photography composition technique, all you have to do is move your iPhone closer to the subject and nullify the appearance of the surroundings to take a close shot. Like this, you are able to capture the intricate detailing of a leaf with its vivid colors and texture, the detailing and motif on a wall art and much more.
 
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Break the Rules
 
@@ -161,6 +148,13 @@ thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce7
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -187,15 +181,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-chuckle-inducing-cover-versions/"><u>[New] 2024 Approved Chuckle-Inducing Cover Versions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-max-360-or-hero-11-unveiling-top-notch-gopro-cams/"><u>[New] Max 360 or Hero 11 Unveiling Top-Notch GoPro Cams</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-comprehensive-analysis-simplified-hdr-techniques/"><u>[Updated] 2024 Approved Comprehensive Analysis Simplified HDR Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-essentials-of-time-stamped-photography/"><u>[Updated] The Essentials of Time-Stamped Photography</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-podcast-live-the-straightforward-fix/"><u>2024 Approved Podcast Live The Straightforward Fix</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722975869820-get-your-hands-on-thrustmaster-t150-racing-rapid-download-of-high-quality-drivers/"><u>Get Your Hands on Thrustmaster T150 Racing: Rapid Download of High-Quality Drivers!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo X90S? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-scrutinizing-the-advanced-features-of-dji-phantom-3/"><u>In 2024, Scrutinizing the Advanced Features of DJI Phantom 3</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/pioneering-posts-a-facebook-guide-to-going-viral/"><u>Pioneering Posts A Facebook Guide to Going Viral</u></a></li>
-<li><a href="https://win-able.techidaily.com/step-by-step-fix-for-nonfunctioning-discord-screen-capture-feature/"><u>Step-by-Step Fix for Nonfunctioning Discord Screen Capture Feature</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-creative-windows-tools-for-video-editing/"><u>[New] 2024 Approved Creative Windows Tools for Video Editing</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-essentials-of-drafting-engaging-vlogger-speeches/"><u>[New] 2024 Approved Essentials of Drafting Engaging Vlogger Speeches</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elevate-your-reel-game-mastering-attractive-instagram-unboxing/"><u>[New] In 2024, Elevate Your Reel Game Mastering Attractive Instagram Unboxing</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-professional-mov-file-handling-on-your-latest-windows-11-system-for-2024/"><u>[New] Professional .MOV File Handling on Your Latest Windows 11 System for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-ranked-your-must-have-5-iphones-for-excellent-podcasting/"><u>[New] Ranked Your Must-Have 5 iPhones for Excellent Podcasting</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-4k-lenses-compatible-with-smartphones/"><u>[Updated] 2024 Approved 4K Lenses Compatible with Smartphones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-humor-haven-free-tools-for-meme-artistry/"><u>[Updated] Humor Haven FREE Tools for Meme Artistry</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-best-platforms-for-futuristic-font-designs/"><u>[Updated] In 2024, Best Platforms for Futuristic Font Designs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-lighted-paths-guiding-viewers-with-intelligent-illumination-for-2024/"><u>[Updated] Lighted Paths Guiding Viewers with Intelligent Illumination for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-smart-eco-friendly-screen-tech-compilation/"><u>[Updated] Smart, Eco-Friendly Screen Tech Compilation</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-new-releases-on-movavi-highlights-from-the-recent-months/"><u>Exploring New Releases on Movavi: Highlights From the Recent Months</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-sell-your-brand-through-innovative-youtuber-collaborations/"><u>In 2024, How To Sell Your Brand Through Innovative YouTuber Collaborations</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximize-mobile-playtime-with-an-external-controller-for-android/"><u>Maximize Mobile Playtime with an External Controller for Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/shake-up-your-streams-xplit-alternatives-explored/"><u>Shake Up Your Streams Xplit-Alternatives Explored</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/snap-happy-with-iphone-burst-mode-for-2024/"><u>Snap-Happy with iPhone Burst Mode for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/sonic-visuals-on-the-move-a-deep-dive-into-sonys-xperia-xz-for-2024/"><u>Sonic Visuals on the Move - A Deep Dive Into Sony's Xperia XZ for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-secret-life-of-a-designer-canvas-hidden-edits/"><u>The Secret Life of a Designer Canva's Hidden Edits</u></a></li>
 </ul></div>
 

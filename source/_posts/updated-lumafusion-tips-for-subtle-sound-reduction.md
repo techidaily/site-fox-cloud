@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Lumafusion Tips for Subtle Sound Reduction"
-date: 2024-09-09T19:09:22.086Z
-updated: 2024-09-17T01:18:49.419Z
+date: 2024-10-19T23:49:25.612Z
+updated: 2024-10-20T20:27:01.463Z
 tags: 
   - screen-recording
   - ai video
@@ -79,29 +79,29 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-## Part 3\. Related FAQs about LumaFusion
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -127,11 +127,25 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about LumaFusion
 
@@ -140,10 +154,10 @@ In that window, you can select the MP3 format in the format customization box to
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
@@ -176,5 +190,22 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-building-striking-podcast-branding-logo-design-guide/"><u>[New] Building Striking Podcast Branding Logo Design Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-free-iphones-masterclass-perfect-your-pictures-with-simple-edits/"><u>[New] FREE iPhones Masterclass Perfect Your Pictures with Simple Edits</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-visualize-and-create-with-top-7-innovative-animation-suites/"><u>[New] In 2024, Visualize & Create with Top 7 Innovative Animation Suites</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-why-are-my-videos-flipped-in-instagram-written-by-michael-aaron-millman-and-richard-g-cox-jr/"><u>[New] Why Are My Videos Flipped in Instagram' Written by Michael Aaron Millman and Richard G. Cox, Jr</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-expert-tips-for-superior-4k-visual-quality-with-gear/"><u>[Updated] 2024 Approved Expert Tips for Superior 4K Visual Quality with Gear</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-from-zero-to-hero-accelerating-your-way-to-a-top-10000-followers-in-no-time-on-insta/"><u>[Updated] From Zero to Hero Accelerating Your Way to a Top 10,000 Followers in No Time on Insta</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-find-zen-with-these-10-game-choices/"><u>[Updated] In 2024, Find Zen with These 10 Game Choices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-locate-the-best-bargains-on-gopro-cameras-for-2024/"><u>[Updated] Locate the Best Bargains on GoPro Cameras for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-step-by-step-to-excellence-the-ultimate-powerdirectors-user-manual/"><u>[Updated] Step-by-Step to Excellence The Ultimate PowerDirector's User Manual</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-top-15-facebook-videograbber-add-ons-compatible-with-firefox/"><u>2024 Approved Top 15 Facebook Videograbber Add-Ons, Compatible with FireFox</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-apple-iphone-x-without-itunes-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked Apple iPhone X Without iTunes</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/an-insight-into-runtime-brokers-role-on-your-machine/"><u>An Insight Into Runtime Broker's Role on Your Machine</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-live-action-top-9-gaming-portals/"><u>In 2024, Live Action Top 9 Gaming Portals</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-project-pics-blend-outside-focus-with-radial-filters-psx/"><u>In 2024, Project Pics Blend Outside Focus with Radial Filters PSX</u></a></li>
+</ul></div>
 

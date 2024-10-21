@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Decorate Your Windows 11 Photos App  Add Aesthetic Filters + Audio Streams\""
-date: 2024-10-09T21:54:49.107Z
-updated: 2024-10-15T02:04:35.115Z
+date: 2024-10-18T18:19:53.886Z
+updated: 2024-10-20T21:24:13.586Z
 tags: 
   - screen-recording
   - ai video
@@ -59,10 +59,10 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
@@ -77,31 +77,30 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -109,6 +108,13 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -135,20 +141,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elevating-your-viewing-experience-with-benq-sw320-monitor/"><u>[New] 2024 Approved Elevating Your Viewing Experience with BenQ SW320 Monitor</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-premiere-your-stories-with-free-templates/"><u>[New] 2024 Approved Premiere Your Stories with Free Templates</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-create-brand-symbols-from-templates-at-no-cost/"><u>[New] Create Brand Symbols From Templates at No Cost</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-exploring-free-superior-webm-video-playback-solutions/"><u>[New] In 2024, Exploring Free, Superior WebM Video Playback Solutions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-quelling-unsteady-motion-effects/"><u>[Updated] 2024 Approved Quelling Unsteady Motion Effects</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-exclusive-dj-design-samples-high-quality-downloads-ready/"><u>2024 Approved Exclusive DJ Design Samples High-Quality Downloads Ready</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-solo-voices-that-echo-a-podcasters-pathway/"><u>2024 Approved Solo Voices that Echo A Podcaster's Pathway</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixes-implemented-for-a-smooth-start-of-evil-genius-2/"><u>Fixes Implemented for a Smooth Start of Evil Genius 2</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/how-to-combat-shake-in-visual-media-for-2024/"><u>How to Combat Shake in Visual Media for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-unwritable-memory-errors-handling-references-at-0x-memory-address-0x/"><u>How to Fix 'Unwritable' Memory Errors: Handling References at 0X Memory Address (0X)</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-nokia-c02-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Nokia C02 Fingerprint Lock</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-tecno-pova-5-pro-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Tecno Pova 5 Pro Android SIM Unlock APK</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/optimal-settings-for-watching-nba-live-streams-for-2024/"><u>Optimal Settings for Watching NBA LIVE STREAMs for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/quiet-quick-clean-auditory-connections-for-2024/"><u>Quiet, Quick, Clean Auditory Connections for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-apex-alchemy-choosing-the-best-laptops-for-video-wizards/"><u>[New] 2024 Approved Apex Alchemy Choosing the Best Laptops for Video Wizards</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-navigating-digital-dimensions-metaverse-and-multiverse/"><u>[New] 2024 Approved Navigating Digital Dimensions Metaverse and Multiverse</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-nurturing-discussions-strategies-to-connect-with-followers/"><u>[New] In 2024, Nurturing Discussions Strategies to Connect With Followers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-6-metaverse-examples-to-help-you-have-a-deep-insight-about-it/"><u>[Updated] 6 Metaverse Examples to Help You Have a Deep Insight About It</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-best-freebies-winning-windowsmac-video-tools-for-2024/"><u>[Updated] Best Freebies Winning Windows/Mac Video Tools for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-lumafusion-tips-for-subtle-sound-reduction/"><u>[Updated] Lumafusion Tips for Subtle Sound Reduction</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-splitcam-review-is-it-the-best-video-recorder-in-2024/"><u>[Updated] SplitCam Review Is It The Best Video Recorder, In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ai-driven-high-quality-editing-platform-for-2024/"><u>AI-Driven High-Quality Editing Platform for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/boosting-stream-consistency-with-obs-fixes-for-2024/"><u>Boosting Stream Consistency with OBS Fixes for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-wildlife-of-capcoms-epic-adventure-monster-hunter-world-reviewed/"><u>Exploring the Wildlife of Capcom's Epic Adventure - Monster Hunter: World Reviewed</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/hdr-on-your-desk-a-windows-guide-to-color-mastery-for-2024/"><u>HDR on Your Desk A Windows Guide to Color Mastery for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-watch-hulu-outside-us-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-dynamic-distortion-for-images-and-videos/"><u>In 2024, Dynamic Distortion for Images & Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/navigating-the-maze-of-music-rights-on-instagram/"><u>Navigating the Maze of Music Rights on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/public-domain-game-music-downloads-for-2024/"><u>Public Domain Game Music Downloads for 2024</u></a></li>
 </ul></div>
 

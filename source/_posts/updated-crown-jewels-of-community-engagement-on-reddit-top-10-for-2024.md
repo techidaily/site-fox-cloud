@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crown Jewels of Community Engagement on Reddit - Top 10 for 2024\""
-date: 2024-10-11T16:17:39.124Z
-updated: 2024-10-15T04:04:50.502Z
+date: 2024-10-19T22:02:15.257Z
+updated: 2024-10-21T00:31:41.517Z
 tags: 
   - screen-recording
   - ai video
@@ -56,19 +56,6 @@ When writing the article (Nov., 2022), this Reddit post features over 400k votes
 
 ![times square billboard](https://images.wondershare.com/filmora/article-images/2023/01/times-square-billboard.png)
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Its purpose is quite ironic. The point was to make this image of Chancellor Palpatine from Star Wars the first result on Google whenever someone searched for "The Senate."
 
 Sadly, the attempt failed but still received a lot of attention.
@@ -84,6 +71,13 @@ $GME stands for GameStop's stock name. BRR represents printing money. The idea b
 ### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
@@ -116,10 +110,10 @@ You understand the pain if you've gone through something like this.
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
@@ -133,10 +127,10 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Some things on Reddit don't have to make sense to get a lot of attention.
@@ -204,16 +198,10 @@ When writing the article (Nov., 2022), this Reddit post features over 400k votes
 ![times square billboard](https://images.wondershare.com/filmora/article-images/2023/01/times-square-billboard.png)
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Its purpose is quite ironic. The point was to make this image of Chancellor Palpatine from Star Wars the first result on Google whenever someone searched for "The Senate."
@@ -221,10 +209,10 @@ Its purpose is quite ironic. The point was to make this image of Chancellor Palp
 Sadly, the attempt failed but still received a lot of attention.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. [$GME GO BRRR (r/wallstreetbets)](https://www.reddit.com/r/wallstreetbets/comments/l8rf4k/times%5Fsquare%5Fright%5Fnow/)
@@ -235,13 +223,6 @@ It represents a fun and public meme of someone buying a billboard in New York. T
 
 $GME stands for GameStop's stock name. BRR represents printing money. The idea behind it - publicly displaying the astonishing soar of GameStop's stock at that time.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
@@ -249,6 +230,13 @@ $GME stands for GameStop's stock name. BRR represents printing money. The idea b
 Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
@@ -264,6 +252,13 @@ What's even more interesting is that the driver commented on this Reddit post, l
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Reddit gets most of its users inside its gaming communities. As a result, these can be some of the hottest topics with countless popular posts.
 
 This one, for example, features 269k votes. 98% of them Upvoted, all probably enthusiastic gamers themselves.
@@ -272,23 +267,9 @@ The image shows an experienced gamer who spent countless hours beating a game, t
 
 You understand the pain if you've gone through something like this.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. [All News Anchors Say the Same Thing(/r/videos)](https://www.reddit.com/r/videos/comments/88ll08/this%5Fis%5Fwhat%5Fhappens%5Fwhen%5Fone%5Fcompany%5Fowns%5Fdozens/)
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
 
@@ -299,6 +280,13 @@ The phrase "this is extremely dangerous to our democracy" is repeated repeatedly
 ### 7\. [Thirsty Frog Takes a Bath (r/aww)](https://www.reddit.com/r/aww/comments/90bu6w/heat%5Findex%5Fwas%5F110%5Fdegrees%5Fso%5Fwe%5Foffered%5Fhim%5Fa/)
 
 ![thirsty frog takes a bath reddit](https://images.wondershare.com/filmora/article-images/2023/01/frog-taking-a-bath.png)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Some things on Reddit don't have to make sense to get a lot of attention.
 
@@ -376,22 +364,18 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-tapping-into-traditional-hymns-downloads-and-editing-guide/"><u>[New] 2024 Approved Tapping Into Traditional Hymns Downloads & Editing Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-ultimate-stargazers-guide-to-luxury-car-accessories-sj4000/"><u>[New] 2024 Approved The Ultimate Stargazer's Guide to Luxury Car Accessories (SJ4000)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-drone-giants-competing-dji-mavic-meets-karma-for-2024/"><u>[New] Drone Giants Competing DJi Mavic Meets Karma for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-expertise-in-editing-mastery-a-dive-into-filmoras-best-practices/"><u>[New] Expertise in Editing Mastery A Dive Into Filmora's Best Practices</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-quick-content-crusade-youtubes-shortform-versus-tiktoks-trendsetting/"><u>[Updated] 2024 Approved The Quick Content Crusade YouTube's Shortform Versus TikTok’s Trendsetting</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-expert-tips-opening-and-playing-srt-on-pcmac/"><u>[Updated] In 2024, Expert Tips Opening and Playing SRT on PC/Mac</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-iconic-video-titles-youtubes-most-watched-lore/"><u>[Updated] In 2024, Iconic Video Titles YouTube's Most-Watched Lore</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-masterful-tools-for-youtube-text-extraction-online-for-2024/"><u>[Updated] Masterful Tools for YouTube Text Extraction Online for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-securing-continuous-frame-playback-in-live-broadcasts/"><u>[Updated] Securing Continuous Frame Playback in Live Broadcasts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-skyrocketing-views-tactics-for-a-100kplus-youtube-hit/"><u>[Updated] Skyrocketing Views Tactics for a 100K+ YouTube Hit</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/craft-your-story-pace-with-instagrams-temp-control-feature-for-2024/"><u>Craft Your Story Pace with Instagram's Temp Control Feature for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-s24-ultra-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-iphone-picture-perfection-mastering-resolution-shifts/"><u>In 2024, IPhone Picture Perfection Mastering Resolution Shifts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-mastery-in-minutes-full-vsco-app-guide/"><u>In 2024, Mastery in Minutes Full VSCO App Guide</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/perfecting-the-instagram-story-format-with-youtube-integration-for-2024/"><u>Perfecting the Instagram Story Format with YouTube Integration for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-actions-to-take-when-windows-10-becomes-unresponsive/"><u>Step-by-Step Actions to Take When Windows 10 Becomes Unresponsive</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-moto-g-stylus-exceptional-performance-long-lasting-battery-and-user-friendly-stylus-design/"><u>Unveiling the Moto G Stylus: Exceptional Performance, Long-Lasting Battery, and User-Friendly Stylus Design</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-picture-perfect-prose-exploring-apps-for-image-text-edits/"><u>[New] 2024 Approved Picture Perfect Prose Exploring Apps for Image Text Edits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-quick-pexels-tips-for-visual-explorers/"><u>[New] Quick Pexels Tips for Visual Explorers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-review-vlcs-capability-to-record-screens-for-2024/"><u>[New] Review VLC's Capability to Record Screens for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-simplest-way-win-clownfish-vocal-alteration-tool/"><u>[New] Simplest Way Win Clownfish Vocal Alteration Tool</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlock-the-power-of-instagram-reels-with-these-strategies-for-2024/"><u>[New] Unlock the Power of Instagram Reels with These Strategies for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-adding-descriptive-tags-to-your-images-on-pcs-and-macs/"><u>[Updated] In 2024, Adding Descriptive Tags to Your Images on PCs and Macs</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-and-math-are-they-compatible/"><u>AI & Math: Are They Compatible?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-practices-for-documenting-youtube-live-videos-for-2024/"><u>Best Practices for Documenting Youtube LIVE Videos for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-conquer-profits-on-the-go-youtube-studio-monetization-explained/"><u>In 2024, Conquer Profits On-the-Go YouTube Studio Monetization Explained</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/instant-inspiration-free-video-intro-kits-for-2024/"><u>Instant Inspiration - Free Video Intro Kits for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/is-mega-mewtwo-the-strongest-pokemon-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Is Mega Mewtwo The Strongest Pokémon On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/strategies-for-producing-top-notch-professional-gopro-content-for-2024/"><u>Strategies for Producing Top-Notch, Professional Gopro Content for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/streamline-your-video-workflows-selecting-the-best-players-for-2024/"><u>Streamline Your Video Workflows Selecting the Best Players for 2024</u></a></li>
 </ul></div>
 

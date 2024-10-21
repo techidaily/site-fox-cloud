@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Innovative Interviews  Fans' Magnetism in Audio for 2024\""
-date: 2024-10-09T17:58:04.036Z
-updated: 2024-10-15T03:42:10.005Z
+date: 2024-10-18T17:12:11.057Z
+updated: 2024-10-20T21:36:59.468Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Icebreaker questions are used to begin an interview or meeting. These are person
 
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here are some icebreaker questions that you can ask to start an interview.
 
 1. Where did you grow up and make the impact on you today?
@@ -59,6 +66,19 @@ Here are some icebreaker questions that you can ask to start an interview.
 A leading question suggests a particular answer to the question that the questioner desires. These questions mostly have a yes or no answer. However, if you extract your question from the answer just given by the guest of the podcast, it is also a leading question.
 
 ![leading questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-3.jpg)
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Some leading questions that you can ask are discussed below.
 
@@ -79,10 +99,10 @@ Some leading questions that you can ask are discussed below.
 15. What do you suggest to our audience who are facing the same problems?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Comparison Questions
@@ -90,13 +110,6 @@ Some leading questions that you can ask are discussed below.
 In an interview, a comparison question is one where you ask a person what he prefers between these two things. This type of question can also advance the discussion of the topic. Besides, you can get a deeper understanding of what guests think and feel about this podcast episode.
 
 ![comparison questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can ask questions from the comparison questions given below.
 
@@ -116,13 +129,6 @@ You can ask questions from the comparison questions given below.
 14. In which weather do you feel comfortable, summer or winter?
 15. What do you prefer to eat, pizza or a burger?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Great Closing Questions
 
 When we move on to this type of question, typically, it's time to end the show. Closing interview questions are questions the hosts might ask at the end of the podcast to wrap things up. The following question can be asked to conclude the podcast on a happy note.
@@ -137,13 +143,6 @@ When we move on to this type of question, typically, it's time to end the show. 
 8. Where can the audience find out more about you?
 9. Where may listeners sign up for your course or purchase your products?
 10. How can listeners contact you online?
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. What's a Good Podcast Interview Question?
 
@@ -160,18 +159,18 @@ Asking better questions on a podcast requires preparation beforehand. Here are s
 
 You can get the best information from the person you are interviewing if you do the following:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Ask WHY?
 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What happened next?
 
@@ -180,6 +179,19 @@ If your guest is overwhelmed by the emotions and has stopped before completing h
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -198,19 +210,6 @@ So you see how this can continue to move forward by simply mirroring your guest.
 
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4\. Podcast Questions to Avoid Asking
 
 Avoiding asking wrong questions is as important as asking good questions. Some questions will negatively impact your podcast's quality, so avoid asking such questions. Here are some questions that you should not ask.
@@ -220,6 +219,13 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Questions you anticipate will result in a "yes" should be avoided, as a simple "yes" adds little value to the interview for those listening.
 * Similarly, avoid asking questions to which you can predict the answer will be a "no."
 * Avoid questions that might offend your guest.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
@@ -261,20 +267,15 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-innovate-iconoclastic-images-using-giphy/"><u>[New] 2024 Approved Innovate Iconoclastic Images Using Giphy</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-compendium-classification-of-camera-types-for-videos-for-2024/"><u>[New] Compendium Classification of Camera Types for Videos for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-full-spectrum-on-morphvox-technology-for-voice-conversion/"><u>[New] In 2024, Full Spectrum on MorphVOX Technology for Voice Conversion</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-eliminate-vr-discomfort-10-tips/"><u>[Updated] 2024 Approved Eliminate VR Discomfort 10 Tips</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-what-is-periscope-is-it-free-and-how-to-sign-up-it/"><u>[Updated] 2024 Approved What Is Periscope? Is It Free and How to Sign up It?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024s-superior-camera-gear-roundup/"><u>[Updated] 2024'S Superior Camera Gear Roundup</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-digital-cutting-edge-streamlined-strategies-for-editing-videos-on-vimeo-for-2024/"><u>[Updated] Digital Cutting Edge Streamlined Strategies for Editing Videos on Vimeo for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-evaluating-brightness-in-hdr-quality-assessment-complete/"><u>[Updated] In 2024, Evaluating Brightness in HDR Quality Assessment Complete?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-revolutionize-your-online-presence-with-these-eight-strategies/"><u>[Updated] Revolutionize Your Online Presence with These Eight Strategies</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-shortcuts-to-wealth-in-youtube-shorts-for-2024/"><u>[Updated] Shortcuts to Wealth in YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-syncing-your-browser-with-auto-play-feature-in-facebook/"><u>2024 Approved Syncing Your Browser with Auto-Play Feature in Facebook</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-f04-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy F04 Lock Screen Password?</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/james-ritter-named-abbyys-new-cfo-strategic-leadership-in-finance/"><u>James Ritter Named ABBYY's New CFO: Strategic Leadership in Finance</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/makeup-inspiration-videos/"><u>Makeup Inspiration Videos</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/1719818051081-my-computer-screen-upside-down-how-to-fix-it/"><u>My Computer Screen Upside Down – How to Fix It</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-conquer-the-metaverse-top-7-devices-that-matter/"><u>[New] In 2024, Conquer the Metaverse Top 7 Devices That Matter</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-essential-vr-adventures-on-oculus-devices/"><u>[New] In 2024, Essential VR Adventures on Oculus Devices</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-stay-in-the-limelight-how-to-keep-youtube-cc-and-boost-views/"><u>[Updated] 2024 Approved Stay in the Limelight How to Keep YouTube CC and Boost Views</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-voices-on-the-page-techniques-for-effective-scriptwriting-for-2024/"><u>[Updated] Voices on the Page Techniques for Effective Scriptwriting for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-vivo-t2-pro-5g-frp-bypass-by-drfone-android/"><u>About Vivo T2 Pro 5G FRP Bypass</u></a></li>
+<li><a href="https://win-trending.techidaily.com/how-to-switch-your-flipbuilder-apps-interface-from-english-to-your-local-language/"><u>How to Switch Your FlipBuilder App's Interface From English to Your Local Language</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-samsung-galaxy-s24-ultra-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Samsung Galaxy S24 Ultra Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/live-streaming-mastery-top-software-manycam-and-more/"><u>Live Streaming Mastery: Top Software - ManyCam and More</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/optimal-strategies-for-downloading-audio-from-pinterest-videos/"><u>Optimal Strategies for Downloading Audio From Pinterest Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-hidden-paths-to-pristine-stock-photography-for-2024/"><u>The Hidden Paths to Pristine Stock Photography for 2024</u></a></li>
 </ul></div>
 

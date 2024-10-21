@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Breaking Boundaries  Custom Font Use in After Effects\""
-date: 2024-10-11T01:46:59.573Z
-updated: 2024-10-14T18:58:28.806Z
+date: 2024-10-15T21:56:39.260Z
+updated: 2024-10-20T17:52:34.407Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,13 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
@@ -55,10 +62,10 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
@@ -69,16 +76,16 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
 
@@ -97,10 +104,10 @@ These features also include adding texts and changing the fonts of those texts o
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -119,19 +126,6 @@ The article discussed the detailed process of **how to add font to Adobe After E
 These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
-
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
@@ -172,15 +166,22 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cutting-edge-editors-scouting-the-ultimate-tools-for-youtube-shorts/"><u>[New] In 2024, Cutting Edge Editors Scouting the Ultimate Tools for YouTube Shorts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-beginners-guide-to-joining-facebook/"><u>[New] In 2024, The Beginner's Guide to Joining Facebook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-direct-download-dojo-become-a-master-of-ifunny-jokes-for-2024/"><u>[Updated] Direct Download Dojo Become a Master of iFunny Jokes for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-mastering-mp4-enhancement-the-ultimate-srt-integration/"><u>[Updated] Mastering MP4 Enhancement The Ultimate SRT Integration</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-why-you-should-know-your-apples-m1-max-clip/"><u>[Updated] Why You Should Know Your Apple's M1 Max Clip</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-s17e-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on S17e</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-find-my-friends-work-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Xiaomi Redmi 12 | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/on-air-in-minutes-easy-steps-to-start-a-live-stream/"><u>On Air in Minutes Easy Steps to Start a Live Stream</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unlocking-av1-an-entry-point-to-encoding/"><u>Unlocking AV1 An Entry Point to Encoding</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-best-worth-steadicams-for-high-end-aerial-film-production/"><u>[New] In 2024, Best-Worth Steadicams for High-End Aerial Film Production</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-ignite-passion-the-top-10-inspirational-films/"><u>[New] In 2024, Ignite Passion The Top 10 Inspirational Films</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-zooming-ahead-with-excellent-video-quality/"><u>[New] Zooming Ahead with Excellent Video Quality</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-tips-for-itunes-podcast-enrollment/"><u>[Updated] 2024 Approved Tips for iTunes Podcast Enrollment</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-all-around-vs-3d-visual-perspectives/"><u>[Updated] All Around Vs 3D Visual Perspectives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-expert-tips-for-utilizing-snapchat-highlights-effectively/"><u>[Updated] In 2024, Expert Tips for Utilizing Snapchat Highlights Effectively</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-jubilant-join-and-leave-steps/"><u>[Updated] In 2024, Jubilant Join & Leave Steps</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/capturing-clarity-iphone-low-light-techniques/"><u>Capturing Clarity IPhone Low Light Techniques</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/easy-tutorial-on-recovering-voice-recordings-from-your-ios-device/"><u>Easy Tutorial on Recovering Voice Recordings From Your iOS Device</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-infinix-note-30i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-iphone-se-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data from iPhone SE? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-chortlecove-app-where-laughter-thrives-online/"><u>In 2024, ChortleCove App - Where Laughter Thrives Online</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/maximize-your-social-media-presence-with-cross-platform-strategies-fb-li-xing-plus-youtube/"><u>Maximize Your Social Media Presence with Cross-Platform Strategies (FB, LI, Xing + YouTube)</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/unlock-the-mystery-behind-phasmophobias-90-load-plateau-in-game-launches/"><u>Unlock the Mystery Behind Phasmophobia's 90% Load Plateau in Game Launches</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/value-airborne-innovations-top-5-budget-drone-selections/"><u>Value Airborne Innovations Top 5 Budget Drone Selections</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-v30-pro-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo V30 Pro Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
 </ul></div>
 

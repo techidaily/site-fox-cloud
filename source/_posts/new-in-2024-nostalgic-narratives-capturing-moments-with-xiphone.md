@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Nostalgic Narratives  Capturing Moments with XiPhone\""
-date: 2024-09-10T18:48:42.620Z
-updated: 2024-09-16T16:50:27.631Z
+date: 2024-10-15T20:24:56.528Z
+updated: 2024-10-20T18:50:21.100Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,13 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -76,6 +83,19 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
 #### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
@@ -96,6 +116,13 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
 #### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
@@ -109,6 +136,13 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -133,12 +167,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-deciding-on-live-stream-software-streamlabs-vs-obs-comparison/"><u>[New] 2024 Approved Deciding on Live Stream Software Streamlabs Vs. OBS Comparison</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-where-to-hunt-for-excellent-instagram-ringtones-and-perfect-alarm-crafts/"><u>[New] 2024 Approved Where to Hunt for Excellent Instagram Ringtones and Perfect Alarm Crafts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-boost-your-iphone-videography-skills-master-these-8-essentials/"><u>[New] In 2024, Boost Your iPhone Videography Skills Master These 8 Essentials</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-anglers-companion-best-action-cams-for-fishing-for-2024/"><u>[New] The Angler’s Companion Best Action Cams for Fishing for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-versamix-suite-mac-and-pc/"><u>[New] VersaMix Suite - Mac & PC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-mastering-podcast-name-selection-step-by-step-guide-plus-50plus-top-ideas-list/"><u>[Updated] 2024 Approved Mastering Podcast Name Selection Step-by-Step Guide + 50+ Top Ideas List</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-step-by-step-vivacut-video-editing-complete-guide-for-24/"><u>[Updated] 2024 Approved Step-by-Step VivaCut Video Editing Complete Guide for '24</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-tier-hdr-camera-selection-made-easy/"><u>[Updated] 2024 Approved Top-Tier HDR Camera Selection Made Easy</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-live-stream-to-screen-seamlessly-reviewed/"><u>[Updated] Live-Stream to Screen, Seamlessly Reviewed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-precision-techniques-shifting-bulk-video-data-from-iphone-to-mac/"><u>[Updated] Precision Techniques Shifting Bulk Video Data From iPhone to Mac</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-google-pixel-7a-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Google Pixel 7a Phone When You Forget the Password</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cutting-edge-youtube-video-editing-techniques-premiere-pro/"><u>Cutting Edge YouTube Video Editing Techniques - Premiere Pro</u></a></li>
+<li><a href="https://techtrends.techidaily.com/deciding-between-building-or-purchasing-your-own-computer-system/"><u>Deciding Between Building or Purchasing Your Own Computer System</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-files-for-galaxy-s24plus-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD .mts files for Galaxy S24+?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-music-from-honor-90-pro-by-fonelab-android-recover-music/"><u>How to retrieve erased music from Honor 90 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Infinix Smart 8 HD? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-smilescreen-simple-steps-for-video-making/"><u>In 2024, SmileScreen Simple Steps for Video Making</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/smooth-snapshot-mastery-eliminate-shakes/"><u>Smooth Snapshot Mastery - Eliminate Shakes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/transforming-your-shots-with-ease-in-photoshop/"><u>Transforming Your Shots with Ease in Photoshop</u></a></li>
+</ul></div>
 

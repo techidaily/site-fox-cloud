@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfecting Titles on Footage  Step-by-Step Tutorial for Windows Photos App\""
-date: 2024-09-09T17:22:12.281Z
-updated: 2024-09-17T01:31:52.044Z
+date: 2024-10-14T20:26:34.468Z
+updated: 2024-10-20T21:30:48.177Z
 tags: 
   - screen-recording
   - ai video
@@ -67,6 +67,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -77,13 +84,40 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -108,12 +142,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-growth-hacks-for-youtubers-short-form-content-boosting-view-counts-effectively/"><u>[New] 2024 Approved Growth Hacks for YouTuber's Short Form Content Boosting View Counts Effectively</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-steady-as-you-go-camera-stability-without-a-tripod/"><u>[New] 2024 Approved Steady as You Go Camera Stability Without a Tripod</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-t5-thievery-a-comprehensive-action-footage-analysis/"><u>[New] 2024 Approved T5 Thievery - A Comprehensive Action Footage Analysis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-hero4-meets-hero5-a-camera-battle-for-2024/"><u>[New] Hero4 Meets Hero5 A Camera Battle for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-render-and-upload-your-youtube-video-faster/"><u>[New] In 2024, How to Render and Upload Your YouTube Video Faster?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-whispering-wonders-for-zzzs-choice-vocalists/"><u>[New] In 2024, Whispering Wonders for Zzz's Choice Vocalists</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-projector-or-tv-optimal-choice-for-excellent-4k-display-experience-for-2024/"><u>[New] Projector or TV Optimal Choice for Excellent 4K Display Experience for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-reimagining-receipt-a-new-approach-to-package-revelation/"><u>[New] Reimagining Receipt A New Approach to Package Revelation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-next-generation-of-social-video-periscopes-counterparts/"><u>[New] The Next Generation of Social Video Periscope's Counterparts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-reality-altered-by-virtual-sight/"><u>[Updated] In 2024, Reality Altered by Virtual Sight</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-airborne-warriors-meet-dji-mavic-2-and-hero5-black/"><u>2024 Approved Airborne Warriors Meet DJi Mavic 2 & HERO5 Black</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-exclusive-lineup-all-angle-recorders/"><u>2024 Approved Exclusive Lineup All-Angle Recorders</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-ultimate-instructions-for-prolonged-iphone-shots/"><u>2024 Approved The Ultimate Instructions for Prolonged iPhone Shots</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-realign-read-aloud-settings-on-word-app/"><u>How To Realign Read Aloud Settings on Word App</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-13-pro-to-others-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 13 Pro to others devices? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-lenses-to-screens-reviewing-nikon-d7500/"><u>In 2024, From Lenses to Screens Reviewing Nikon D7500</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-6-nft-platforms-unlocking-creativity-for-artists-for-2024/"><u>Top 6 NFT Platforms Unlocking Creativity for Artists for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-review-of-apples-iphone-xs-max-a-luxury-device-with-stellar-features/"><u>Top Review of Apple's iPhone XS Max: A Luxury Device with Stellar Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/voices-vibrate-on-vinyl-perfecting-podcast-scriptwriting-for-2024/"><u>Voices Vibrate on Vinyl Perfecting Podcast Scriptwriting for 2024</u></a></li>
+</ul></div>
 

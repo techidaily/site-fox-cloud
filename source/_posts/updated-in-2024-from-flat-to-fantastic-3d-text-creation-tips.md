@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, From Flat to Fantastic  3D Text Creation Tips\""
-date: 2024-10-08T21:31:04.329Z
-updated: 2024-10-14T16:41:30.475Z
+date: 2024-10-15T16:17:02.840Z
+updated: 2024-10-20T21:26:36.581Z
 tags: 
   - screen-recording
   - ai video
@@ -45,33 +45,25 @@ Step2 Click on the **Type tool** and click anywhere on your blank canvas. Then, 
 
 ![type tool illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-type-tool.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Now, look at the bottom-right corner of the program. Find the **Font** settings and change your font type and size to anything you want.
 
 ![change font illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-font.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Next, choose any color you want for your text from the panel on the screen's left side. Just remember to click on your text first before you start changing colors.
 
 ![change color](https://images.wondershare.com/filmora/article-images/adobe-illustrator-color.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 Align the text to make it easier to edit and move around the canvas later. Just click on it and then click on the three buttons in the image below. This section is located at the bottom-right corner of the screen.
@@ -79,26 +71,32 @@ Step5 Align the text to make it easier to edit and move around the canvas later.
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
 ![turn text into three d](https://images.wondershare.com/filmora/article-images/adobe-illustrator-panel.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step8 Now, all left to do is experiment with the settings in this panel and adjust how you want your 3D text to look. You can adjust its width, rotation, presets, angle, perspective, and so on. Just play around with the settings until you find your ideal result.
 
@@ -126,6 +124,19 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
@@ -134,6 +145,13 @@ Step4 Finally, import a video in Filmora and drag it under the text into the Tim
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Both programs will get the job done if you use Adobe Illustrator or Filmora for your 3D text effect. The main difference is that it will be easier with Filmora. The choice is yours. Have fun!
@@ -141,13 +159,6 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
 
@@ -162,6 +173,13 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
@@ -195,17 +213,16 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-m1-innovation-elevating-smoothness-in-every-editors-toolkit/"><u>[New] 2024 Approved M1 Innovation Elevating Smoothness in Every Editor's Toolkit</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-first-row-fun-without-football-baseball-or-basketball-for-2024/"><u>[New] First Row Fun Without Football, Baseball, or Basketball for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-discover-10-budget-friendly-vectors-and-design-pages-for-2024/"><u>[Updated] Discover 10 Budget-Friendly Vectors and Design Pages for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-setting-up-the-pip-feature-in-the-youtube-app-for-easy-video-streaming-for-2024/"><u>[Updated] Setting up the PIP Feature in the YouTube App for Easy Video Streaming for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-learn-to-record-your-xbox-games-with-ease/"><u>2024 Approved Learn to Record Your Xbox Games with Ease</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/elevate-your-photos-with-effective-blurs/"><u>Elevate Your Photos with Effective Blurs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/from-snapshot-to-success-an-in-depth-video-guide-for-youtube-photos/"><u>From Snapshot to Success An In-Depth Video Guide for YouTube Photos</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/iconic-trailer-highlight-assortment/"><u>Iconic Trailer Highlight Assortment</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-bring-life-to-your-instagram-posts-with-branded-graphics-and-icons/"><u>In 2024, Bring Life to Your Instagram Posts with Branded Graphics & Icons</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-future-of-fb-ads-whats-a-must-try/"><u>In 2024, Future of FB Ads – What’s a Must-Try?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/overcoming-glitches-a-comprehensive-fix-for-ring-of-elysium-crashes/"><u>Overcoming Glitches: A Comprehensive Fix for Ring of Elysium Crashes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/premiere-quality-unleashed-an-expert-overview-of-the-samsung-galaxy-s10s-top-features/"><u>Premiere Quality Unleashed: An Expert Overview of the Samsung Galaxy S10's Top Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-a-film-enthusiasts-guide-to-mastery-with-gopro-for-2024/"><u>[New] A Film Enthusiast's Guide to Mastery with GoPro for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-frugal-flight-experts-choice-under-500-drone-guide/"><u>[New] Frugal Flight Experts' Choice Under $500 Drone Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-step-by-step-guide-to-creating-curved-graphics-for-2024/"><u>[New] Step-by-Step Guide to Creating Curved Graphics for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/blur-unwanted-parts-of-your-videos-with-these-mobile-apps/"><u>Blur Unwanted Parts of Your Videos with These Mobile Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/dive-into-android-gaming-excellence-with-kinemaster-review/"><u>Dive Into Android Gaming Excellence with KineMaster Review</u></a></li>
+<li><a href="https://article-helps.techidaily.com/essential-strategies-to-enhance-your-use-of-macs-preview-app/"><u>Essential Strategies to Enhance Your Use of Mac's Preview App</u></a></li>
+<li><a href="https://win-forum.techidaily.com/quick-tips-how-to-resize-your-videos-on-any-gadget-with-ease/"><u>Quick Tips: How to Resize Your Videos on Any Gadget with Ease</u></a></li>
+<li><a href="https://games-able.techidaily.com/restart-your-ps5-controller-techniques-and-timings/"><u>Restart Your PS5 Controller: Techniques and Timings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ten-best-practices-for-meme-creation/"><u>Ten Best Practices for Meme Creation</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ier-video-transcription-aid-automated-for-2024/"><u>Top-Tier Video Transcription Aid, Automated for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/win-11-adding-movescopies-context-menu-commands/"><u>Win 11: Adding Moves/Copies Context Menu Commands</u></a></li>
 </ul></div>
 

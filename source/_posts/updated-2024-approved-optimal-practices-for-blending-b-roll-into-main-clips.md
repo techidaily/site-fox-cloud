@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Optimal Practices for Blending B-Roll Into Main Clips\""
-date: 2024-10-11T01:54:55.068Z
-updated: 2024-10-14T22:25:52.826Z
+date: 2024-10-17T19:53:41.513Z
+updated: 2024-10-20T16:17:21.569Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -46,10 +53,10 @@ The ideal way to use B roll is to put it behind interviews. This kind of footage
 On the other hand, cutaways can show how different people react to what is being said in an interview. After all, transitions are commonly used to switch from one person's experience with a certain topic to another person's experience with the same topic. All of these different kinds of footage give filmmakers and videographers more freedom to tell their stories without relying too much on dialogue or narration.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. What types of b roll are there?
@@ -59,13 +66,6 @@ We'll examine the top 5 uses for B rolls across a variety of video genres and di
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
@@ -80,10 +80,10 @@ B roll footage can be used to tell a story that supports the narrative of your v
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
@@ -91,6 +91,13 @@ This particular kind of B roll film is captured without any direction being give
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -101,13 +108,6 @@ If flaws were discovered during primary photography, the directors could have re
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -143,16 +143,17 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-critical-top-5-minute-tight-video-capturers-guide/"><u>[New] 2024 Approved Critical Top 5 Minute-Tight Video Capturers Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-enjoy-unparalleled-quality-youtubes-elite-4k-solutions-for-2024/"><u>[New] Enjoy Unparalleled Quality YouTube's Elite 4K Solutions for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-instagram-videos-wandering-why-angles-change/"><u>[New] Instagram Videos Wandering - Why Angles Change?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-assessing-if-sns-hdr-deserves-your-investment-time-for-2024/"><u>[Updated] Assessing If SNS HDR Deserves Your Investment Time for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-best-of-the-best-trivia-channels/"><u>[Updated] In 2024, Best of the Best Trivia Channels</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-upside-of-asmr-a-closer-look-at-its-advantages/"><u>[Updated] In 2024, The Upside of ASMR A Closer Look At Its Advantages</u></a></li>
-<li><a href="https://win-premium.techidaily.com/tiffjpeg-movavi/"><u>無料線上Tiff到Jpeg转换 - 使用Movavi图像编辑器</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/de-beste-kostenlose-pdf-hergebruikers-voor-windows-verantwoord-applicaties-om-vrije-pdf-formatten-te-editeren/"><u>De Beste Kostenlose PDF-Hergebruikers Voor Windows - Verantwoord Applicaties Om Vrije PDF-Formatten Te Editeren</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-your-drivers-with-windows-device-manager-in-windows-11-by-drivereasy-guide/"><u>How to identify missing your drivers with Windows Device Manager in Windows 11</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/microsoft-store-repair-protocol-for-error-code-x800704cf/"><u>Microsoft Store Repair Protocol for Error Code X800704CF</u></a></li>
-<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-oneplus-ace-2-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of OnePlus Ace 2 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-detailed-analysis-tunefab-screen-tools/"><u>[New] 2024 Approved Detailed Analysis Tunefab Screen Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-dynamic-design-tips-after-effects-best-1-written-on-type/"><u>[New] 2024 Approved Dynamic Design Tips After Effects' Best 1 Written on Type</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-disabling-recommended-podcast-episodes-in-spotify-app/"><u>[New] Disabling Recommended Podcast Episodes in Spotify App</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-discover-top-10plus-platforms-for-remote-church-experience/"><u>[Updated] In 2024, Discover Top 10+ Platforms for Remote Church Experience</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-ultimate-process-to-update-your-videos-cover-images/"><u>[Updated] In 2024, The Ultimate Process to Update Your Videos' Cover Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-streamlined-accessibility-learning-iphoneipad-techniques-for-podcast-downloads-for-2024/"><u>[Updated] Streamlined Accessibility Learning iPhone/iPad Techniques for Podcast Downloads for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/chromecast-plus-google-tv-review-the-rising-competition-for-firetv-enthusiasts/"><u>Chromecast + Google TV Review: The Rising Competition for FireTV Enthusiasts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-some-outdated-your-drivers-with-windows-device-manager-on-windows-7-by-drivereasy-guide/"><u>How to identify some outdated your drivers with Windows Device Manager on Windows 7</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-oppo-reno-11f-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Oppo Reno 11F 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-mastering-screenplay-essential-dialogue-techniques/"><u>In 2024, Mastering Screenplay Essential Dialogue Techniques</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/navigating-the-2024-cloud-cost-landscape/"><u>Navigating the 2024 Cloud Cost Landscape</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/smooth-cinematography-ideal-stabilizer-tools-for-vloggers/"><u>Smooth Cinematography Ideal Stabilizer Tools for Vloggers</u></a></li>
 </ul></div>
 

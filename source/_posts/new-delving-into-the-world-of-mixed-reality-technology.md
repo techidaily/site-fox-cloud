@@ -1,7 +1,7 @@
 ---
 title: "[New] Delving Into the World of Mixed Reality Technology"
-date: 2024-10-11T04:08:17.883Z
-updated: 2024-10-15T07:29:06.418Z
+date: 2024-10-19T21:03:08.468Z
+updated: 2024-10-20T21:39:44.902Z
 tags: 
   - screen-recording
   - ai video
@@ -37,19 +37,6 @@ thumbnail: https://thmb.techidaily.com/28b1ebd463673cb8f4ec1dcff8b4e8726440d728e
 
  In mixed reality, the user is given the ability to explore the virtual environment and the real world seamlessly at the same time. Through the use space and coordinates, the virtual objects will be positioned on the real world and whenever you move towards the virtual objects, they become larger while moving away from them makes them smaller. Moving around the virtual objects will also give you different angles and perspectives. Additionally, mixed reality will allow users to manipulate the virtual objects and interact with them as if they were with them in the same place.
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How does Mixed Reality work
 
  With the development of the technology is shrouded in secrecy by the major players, all that is known on the operations of the technology is that it uses virtual reality and augmented reality as well as space and coordinates. Magic Leap is the company at the forefront in the development of mixed reality and they have remained tight lipped about the finer details of what they are doing or developing. The scanty details we know however, suggests that just like Hololens, mixed reality will use a projector for displaying images on semi transparent materials which will then be reflected to the eye with the help of beam-splitting technology.
@@ -59,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/28b1ebd463673cb8f4ec1dcff8b4e8726440d728e
  Due to the unique features and experiences offered by mixed reality, businesses, developers and the world in general is beginning to explore the various ways to utilize the technology for the best possible results. Currently, fields such as medicine, architecture and urban planning and education and training appear to be the greatest beneficiary of mixed reality technology.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mixed Reality for sharing real-world virtual workspaces
@@ -72,15 +59,22 @@ thumbnail: https://thmb.techidaily.com/28b1ebd463673cb8f4ec1dcff8b4e8726440d728e
  Sharing real world virtual spaces through mixed reality can be especially beneficial for sales team when making a pitch for a new offer. For instance, a pharmaceutical sales rep can carry along two mixed reality devices to an appointment with the doctor. The doctor and the sales rep can then both wear the devices and see a model of the new drug as explained by the sales rep. Through this, they can then visualize the chemical composition of the drug and also simulate how the drug will move in the body to fight diseases. Through such a shared experience, the sales rep will not only build deeper connections with the doctor, but also offer a more detailed explanation on the product being offered.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Mixed reality for remote experts – over the shoulder coaching
 
  Most enterprises usually find it difficult to address all the support requests from all the clients in need of expert advice. It is not only costly to fly in specialists to fix things in different locations, but also time consuming. Besides, it is never adequate to troubleshoot an issue over the phone and video conferencing in such situations also have its limitations. But all these can now be avoided through the application of mixed reality for offering over the shoulder coaching remotely. With mixed reality, access to experts can be done quickly and inexpensively. For example, doctors in the healthcare industry can offer guidance and decisions to students or other doctors without the need of being in the actual locations.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The future of mixed reality
 
@@ -93,10 +87,10 @@ thumbnail: https://thmb.techidaily.com/28b1ebd463673cb8f4ec1dcff8b4e8726440d728e
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -124,17 +118,21 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-from-ordinary-text-to-stunning-three-dimensional-designs-photo/"><u>[New] From Ordinary Text to Stunning Three-Dimensional Designs PHOTO</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-envisioning-artistry-a-gopro-hero5-black-journey-to-excellence/"><u>[New] In 2024, Envisioning Artistry A GoPro Hero5 Black Journey to Excellence</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-audio-file-transformation-srt-to-xmlssattml/"><u>[New] Mastering Audio File Transformation SRT to XML/SSA/TTML</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-effective-method-for-personalizing-fb-page-coverage/"><u>[Updated] 2024 Approved Effective Method for Personalizing FB Page Coverage</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-t5-unboxed-the-revolution-in-action-filming/"><u>[Updated] 2024 Approved T5 Unboxed - The Revolution in Action Filming</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-ignite-audience-interest-with-effective-strategies-in-video-outros/"><u>[Updated] Ignite Audience Interest with Effective Strategies in Video Outros</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-transform-your-photos-removing-backdrops-with-ease-for-2024/"><u>[Updated] Transform Your Photos Removing Backdrops with Ease for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/dissecting-the-eus-digital-strategy-the-potential-impact-on-chatgpt-technology/"><u>Dissecting the EU's Digital Strategy: The Potential Impact on ChatGPT Technology</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/innovative-methods-combatting-macs-system-freeze/"><u>Innovative Methods: Combatting Mac's System Freeze</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ring-mastery-the-craft-of-comical-mocks/"><u>Mirroring Mastery The Craft of Comical Mocks</u></a></li>
-<li><a href="https://win-top.techidaily.com/windows-vistawindows-103/"><u>Windows VistaからWindows 10にスムーズにデータ転送するための3コツ</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/xbox-live-outage-server-issues-or-personal-connection-woes/"><u>Xbox Live Outage: Server Issues or Personal Connection Woes?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-resolutionrefiner-x1-high-res-video-enhancer/"><u>[New] In 2024, ResolutionRefiner X1 - High-Res Video Enhancer</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-perfectly-pivoted-videos-the-ultimate-android-editing-guide/"><u>[New] Perfectly Pivoted Videos The Ultimate Android Editing Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-premier-annual-update-best-free-livestream-software-and-apps-review/"><u>[New] Premier Annual Update Best Free Livestream Software & Apps Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unwrapping-ustreams-offerings-and-competitors-for-2024/"><u>[New] Unwrapping Ustream's Offerings and Competitors for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ideal-platforms-for-procuring-youtube-ringtone-files/"><u>[Updated] Ideal Platforms for Procuring YouTube Ringtone Files</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-videography-tips-optimal-sizes-and-formats/"><u>[Updated] In 2024, Instagram Videography Tips Optimal Sizes & Formats</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-apex-of-narrative-content-youtubes-finest-in-23/"><u>[Updated] In 2024, The Apex of Narrative Content YouTube’s Finest in '23</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-scriptwriting-the-art-of-utilizing-slug-lines/"><u>[Updated] Scriptwriting The Art of Utilizing Slug Lines</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-syncing-separate-iphone-videos-for-one-story/"><u>[Updated] Syncing Separate IPhone Videos for One Story</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/gopros-new-era-a-detailed-max-360-vs-hero-11-analysis-for-2024/"><u>GoPro's New Era A Detailed Max 360 vs Hero 11 Analysis for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-apple-iphone-13-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From Apple iPhone 13? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/mastering-zoom-on-xbox-a-step-by-step-guide/"><u>Mastering Zoom on Xbox A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/revolutionize-note-taking-with-mematic-app-for-2024/"><u>Revolutionize Note-Taking with Mematic App for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-lava-agni-2-5g-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Lava Agni 2 5G without backup.</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>What is Fake GPS Location Pro and Is It Good On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-vivo-y56-5g-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Vivo Y56 5G Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

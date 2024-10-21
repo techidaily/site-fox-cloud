@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Adding Unique Typography  Fonts in AE for 2024\""
-date: 2024-10-10T02:29:44.218Z
-updated: 2024-10-15T06:09:21.768Z
+date: 2024-10-14T23:02:08.289Z
+updated: 2024-10-20T20:20:28.916Z
 tags: 
   - screen-recording
   - ai video
@@ -55,10 +55,10 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
@@ -68,13 +68,6 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * First, select the project video that you want to edit. Then navigate to "effects and presets" and search for the presets of the texts that you want to edit.
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
@@ -93,15 +86,22 @@ These features also include adding texts and changing the fonts of those texts o
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -132,10 +132,10 @@ These features also include adding texts and changing the fonts of those texts o
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -166,24 +166,22 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-exclusive-streaming-access-12-top-video-content-hours/"><u>[New] 2024 Approved Exclusive Streaming Access 12 Top Video Content Hours</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-artful-animation-of-adventures-exploring-the-top-8-narrative-universities-top-8/"><u>[New] Artful Animation of Adventures Exploring the Top 8 Narrative Universities (Top 8)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-hot-picks-best-free-screen-recorders-for-windows-users/"><u>[New] In 2024, Hot Picks Best Free Screen Recorders For Windows Users</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-simplified-approach-to-broadcasting-recorded-vids-on-social-media/"><u>[New] In 2024, Simplified Approach to Broadcasting Recorded Vids on Social Media</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-the-secrets-of-seamless-zoom-communication-hacks-for-productive-remote-engagement-for-2024/"><u>[New] The Secrets of Seamless ZOOM Communication Hacks for Productive Remote Engagement for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-assessing-luminance-for-hd-raises-questions/"><u>[Updated] 2024 Approved Assessing Luminance for HD Raises Questions</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-how-to-use-a-whiteboard-in-google-meet/"><u>[Updated] 2024 Approved How to Use a Whiteboard in Google Meet</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-thankful-innovations-premium-and-budget-outro-themes/"><u>[Updated] In 2024, Thankful Innovations Premium & Budget Outro Themes</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-jokes-and-puns-iphone-edition/"><u>[Updated] Jokes and Puns IPhone Edition</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-mastering-valheim-agriculture-seed-selection-insights/"><u>[Updated] Mastering Valheim Agriculture Seed Selection Insights</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-step-by-step-process-youtube-vids-converted-to-mp3/"><u>[Updated] Step-by-Step Process YouTube Vids, Converted to MP3</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-superheroes-clash-black-vs-silver-for-2024/"><u>[Updated] Superheroes Clash BLACK vs SILVER for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-pinnacle-of-media-excellence-top-phones-videos/"><u>[Updated] The Pinnacle of Media Excellence Top Phones Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/hidden-glance-guide-top-instagram-story-tools-for-2024/"><u>Hidden Glance Guide Top Instagram Story Tools for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-quick-and-clean-method-to-live-podcast/"><u>In 2024, Quick & Clean Method to Live Podcast</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/selecting-the-ideal-vr-device-seeking-simplicity-with-wireless-or-precision-with-tethers-in-2024/"><u>Selecting the Ideal VR Device Seeking Simplicity with Wireless, Or Precision With Tethers, In 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/snickel-and-snicker-5-best-meme-generating-apps/"><u>Snickel & Snicker 5 Best Meme Generating Apps</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unleashing-potential-with-the-powerful-polaroid-xs-100i/"><u>Unleashing Potential with the Powerful Polaroid XS 100I</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unmasking-the-latest-in-machine-learning-gpt-4-vs-gpt-35/"><u>Unmasking the Latest in Machine Learning: GPT-4 Vs. GPT-3.5</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-explore-the-finest-8-websites-3d-and-luxurious-text/"><u>[New] 2024 Approved Explore the Finest 8 Websites 3D & Luxurious Text</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-codec-rivalry-assessing-the-next-step-in-video-encoding-for-2024/"><u>[New] Codec Rivalry Assessing the Next Step in Video Encoding for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-paint-jocular-visuals-with-giphy-in-mind/"><u>[New] In 2024, Paint Jocular Visuals with Giphy in Mind</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-zero-budget-football-broadcasting-101-for-2024/"><u>[New] Zero Budget Football Broadcasting 101 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-behind-the-scenes-look-at-podcaster-income/"><u>[Updated] Behind-the-Scenes Look at Podcaster Income</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-crafting-a-new-digital-persona-comprehensible-steps-for-changing-tiktok-handle-for-2024/"><u>[Updated] Crafting a New Digital Persona Comprehensible Steps for Changing TikTok Handle for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-restoring-classic-photo-viewing-on-the-modern-windows-11/"><u>[Updated] In 2024, Restoring Classic Photo Viewing on the Modern Windows 11</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-melodious-memories-capturing-songs-in-your-snaps-for-2024/"><u>[Updated] Melodious Memories Capturing Songs in Your Snaps for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ultimate-digital-destinations-for-text-overlays-for-2024/"><u>[Updated] Ultimate Digital Destinations for Text Overlays for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-futures-echo-top-30-metaverse-sentiments-arvr/"><u>2024 Approved Future's Echo Top 30 Metaverse Sentiments [AR/VR]</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-secure-your-remote-sessions-with-these-tools/"><u>2024 Approved Secure Your Remote Sessions with These Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/canvas-hidden-power-ups-for-stunning-visuals/"><u>Canva's Hidden Power-Ups for Stunning Visuals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/conquer-the-canvas-of-nature-mastering-iphone-sky-photography-for-2024/"><u>Conquer the Canvas of Nature Mastering iPhone Sky Photography for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/five-essential-steps-to-overcome-windows-os-hypervisor-faults/"><u>Five Essential Steps to Overcome Windows OS Hypervisor Faults</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-apple-iphone-14-plus-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From Apple iPhone 14 Plus Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-stable-discord-communications-fixing-sound-glitches-in-the-2024-edition/"><u>Mastering Stable Discord Communications: Fixing Sound Glitches in the 2024 Edition</u></a></li>
+<li><a href="https://win-answers.techidaily.com/revitalized-bioshock-2-updated-for-optimal-performance-and-visuals/"><u>Revitalized Bioshock 2 - Updated for Optimal Performance and Visuals</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Essentials of Image Augmentation  Inserting Text Into Images for PC & Mac Users\""
-date: 2024-09-16T00:15:01.767Z
-updated: 2024-09-16T18:08:05.406Z
+date: 2024-10-14T21:43:48.860Z
+updated: 2024-10-20T18:06:11.865Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,13 @@ Step2Click the edit button there at the top.
 
 ![click edit button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Now click the More icon, which is at the top right portion of it (it usually looks like an ellipsis), and then in the dropdown menu, click on the Markup option.
 
 ![click more icon](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-2.jpg)
@@ -46,6 +53,13 @@ Step3Now click the More icon, which is at the top right portion of it (it usuall
 Step4Now click on the text button at the top left corner of the screen to add a text box to the image.
 
 ![click on the text button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5You can drag this text box and place it wherever you want it in your image. Also, to choose the font style, size, and color, you can click on the Text Style icon and save your changes.
 
@@ -69,26 +83,40 @@ Step4To make the text box of your choice, you have to click and drag it.
 
 ![click and drag text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5Now you can write whatever you want to on your photo.
 
 Step6You can change the font color, size, and style with the help of a panel at your right.
 
 ![panel](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step7To save your edited image, click on the Menu button at the top left corner of your screen.
 
 ![save edited image](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step8Click any Save or Save as button to save the edited image.
 
 ![click save button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5 Methods to add text on photos online
 
@@ -115,13 +143,6 @@ Step2Now click on the **Text Button**, which will appear on your sidebar at the 
 Step3Now you must select your text style by clicking on **heading**, **sub-heading**, and **body text**, depending on which one you want. You can also choose your text style from the designs already available.
 
 ![select text style](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-14.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4To edit your text's color, size, style, alignment, bold or italic effects, etc., click on the **Text Box**.
 
@@ -217,6 +238,19 @@ Cons
 * The result of the edited photo is not good enough as in Photoshop and other editors.
 * There are some bugs causing errors.
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. [Fotor](https://www.fotor.com/features/text.html)
 
 **Introduction:**
@@ -291,6 +325,13 @@ Cons
 If you still do not find any software to add text to your photos, you should also look at GIMP. It is also a good graphics editing program. Moreover, it is free and open source also. You can use it for both the editing and the manipulation of photos. Some people also still use WIMP for making their drawings, although it is not for such a purpose.
 
 ![gimp](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-25.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Pros
 
@@ -393,13 +434,6 @@ If you are still looking for other options to add text to your photos online, th
 
 ![befunky](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-20.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Pros
 
 * You can save the edited photos not only from your device but also from your Google Drive, Cloud, and Photos. Also, you can open the images you want to edit in it using these services.
@@ -439,13 +473,6 @@ Cons
 Fotor is another online photo editing tool that you can use for this purpose. It has a friendly interface and excellent tools that help its users efficiently do basic photo editing. That's why it has a large number of users also.
 
 ![fotor](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-22.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Pros
 
@@ -506,13 +533,6 @@ Cons
 * The lens profiles are not too enough, like in other photo editors.
 * Also, it is not too good in chromatic aberration and noise corrections.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. [GIMP](https://www.gimp.org/downloads/)
 
 **Introduction:**
@@ -553,6 +573,13 @@ Cons
 * It is not too good in exporting formats.
 * Its interface is simple but not too much friendly. Therefore, you have to read or watch some tutorials first regarding it to understand its interface completely.
 * The startup screen doesn't have any close, minimize or maximize buttons.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. [Phoxo](http://www.phoxo.com/en/download/)
 
@@ -602,5 +629,22 @@ The last words for today's topic here is that there are numerous solutions avail
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-designing-instagrams-ideal-square-video-with-imovie/"><u>[New] In 2024, Designing Instagram's Ideal Square Video with iMovie</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-adapt-to-facebooks-algorithm-shift-now-for-2024/"><u>[Updated] Adapt to Facebook's Algorithm Shift Now for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-video-selection-adding-to-your-youtube-playlists-for-2024/"><u>[Updated] Mastering Video Selection Adding to Your YouTube Playlists for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-reveling-in-4k-an-in-depth-look-at-yis-hero-series/"><u>[Updated] Reveling in 4K An In-Depth Look at Yi’s HERO Series</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-securely-extract-and-backup-your-instagram-content-for-2024/"><u>[Updated] Securely Extract and Backup Your Instagram Content for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-underwater-gopro-filter-setup/"><u>[Updated] Ultimate Underwater Gopro Filter Setup</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/expert-strategies-in-post-processing-colors/"><u>Expert Strategies in Post-Processing Colors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/for-the-digital-novice-a-beginners-guide-to-visual-clarity-and-pixel-perfect-images-for-2024/"><u>For the Digital Novice A Beginner's Guide to Visual Clarity and Pixel-Perfect Images for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-control-screen-size-with-swift-iphone-adjustments/"><u>In 2024, Control Screen Size with Swift iPhone Adjustments</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-exploring-the-lg-bp350-monitors-unique-features/"><u>In 2024, Exploring the LG BP350 Monitor's Unique Features</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/investigating-storage-amounts-vids-on-64128gb-hardware/"><u>Investigating Storage Amounts Vids on 64/128GB Hardware</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/nintendo-switch-capturing-your-playtime-for-2024/"><u>Nintendo Switch Capturing Your Playtime for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unveiling-toms-gear-analysis-a-deep-dive-into-personal-computing/"><u>Unveiling Tom's Gear Analysis: A Deep Dive Into Personal Computing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-dialogue-tools-to-engage-audio-audiences-for-2024/"><u>Updated Dialogue Tools to Engage Audio Audiences for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/upgrading-your-cinematic-story-with-video-edges-for-2024/"><u>Upgrading Your Cinematic Story with Video Edges for 2024</u></a></li>
+</ul></div>
 

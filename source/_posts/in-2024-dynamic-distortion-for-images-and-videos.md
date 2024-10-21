@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Dynamic Distortion for Images & Videos"
-date: 2024-09-10T21:58:18.639Z
-updated: 2024-09-17T02:26:19.440Z
+date: 2024-10-16T21:00:20.991Z
+updated: 2024-10-20T20:28:41.661Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,13 @@ Start Photoshop, and then click on the File menu. Select the New option and set 
 
 ![text distortion in photo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2\
 
 Click the Window menu to open the Layers panel and click Layers.
@@ -70,6 +77,19 @@ Click the Window menu to open the Layers panel and click Layers.
 ### Step 3\
 
 Click on the New Layer icon that resembles a bent-corner sticky note.
+
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 4\
 
@@ -217,24 +237,37 @@ Click on the New Layer icon that resembles a bent-corner sticky note.
 
 Click on the T icon located in the Tools panel. You can also click on the Window and select Tools if you don't see the Tools panel. After opening the Type toolbar, choose the text size, color, and font you'll use for the distorted text. Now, click the canvas, and then type the text you want to distort. The text appears in a non-distorted format when you type.
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 5\
 
 Check the list and right-click on the new text layer with a T icon symbol and the words you have typed. Select the Rasterize Layer option; this will turn the box with the T icon into a white and gray checkerboard.
 
 ![how to distort text in photo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 6\
 
 Click on the Edit menu, then hover your cursor over Transform. From the fly-out menu, choose Distort. A border encircled with white boxes will surround the text on the canvas. Click and pull a corner box away from the text, like toward a corner of the Adobe Photoshop work area.
 
 Be sure to pull it in different directions and check how the text will become funhouse-style elongated in different ways; this will allow you to judge which look you prefer for your text distortion.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 7\
 
@@ -338,6 +371,13 @@ Over the past few years, distortion effects have become popular. People also app
 
 Distortion of text is referred to as the alteration of the original characteristics or shape of a text. Most people use text distortion to add uniqueness to their photos or videos and make sure their projects stand out from the pack.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Distort Text in Photography Using Photoshop
 
 If you are looking for ways to combine art and words, Photoshop offers the right tools to help you add creative effects to text. You can apply text distortion to product logos, headers for a blog, or headers you would like to use in other marketing materials to make them stand out.
@@ -358,6 +398,19 @@ Start Photoshop, and then click on the File menu. Select the New option and set 
 
 Click the Window menu to open the Layers panel and click Layers.
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3\
 
 Click on the New Layer icon that resembles a bent-corner sticky note.
@@ -371,13 +424,6 @@ Click on the T icon located in the Tools panel. You can also click on the Window
 Check the list and right-click on the new text layer with a T icon symbol and the words you have typed. Select the Rasterize Layer option; this will turn the box with the T icon into a white and gray checkerboard.
 
 ![how to distort text in photo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 6\
 
@@ -413,13 +459,6 @@ Select your text and then go to Filter - Noise - Add Noise; this will add Noise 
 
 You can add a texture overlay for more texture and dimension to your text. To do this, click on the Text option in the Toolbox and select the dropdown that says Add Texture Overlay; this opens a new window, and you can click on your image to choose the texture.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Distort Text in Video?
 
 Canva is a graphic design platform that offers software for both Windows and Mac. You can use this program to edit photos, videos, and documents. It comes with loads of features that you can use. You can distort texts in video using Canva by following the steps below:
@@ -449,10 +488,10 @@ This online tool provides photo editing and graphic design tools, and you can us
 ![online text distorter - picmonkey](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.MockoFun
@@ -553,13 +592,6 @@ Take one of the middleboxes and pull and drug them on either the bottom or top t
 
 Tinker around with different changes mentioned above until you get the text distortion you want. Once you are satisfied with the results, hit Enter to set the change and get rid of the boxes and borders from the text.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 10\
 
 Select the File menu and click Save As. Photoshop will automatically have "PSD" displayed in the Format box, which allows you to save your file as a proprietary Photoshop PSD. Make sure you leave this extension, as it lets you re-access the design layers and perform more text distortions in the future. Now, click on Save.
@@ -623,6 +655,13 @@ Zalgo Text Generator is an online tool that allows you to create glitch text. Th
 EnGFTO.com is an online text distorter that allows you to choose the text size and color and choose one of the available fonts. It comes with hundreds of text templates. You can also upload fonts, change the text style, and apply gradients. What's more? Users can add an outline to their text, change the background, and select the color of their text edges.
 
 ![online text distorter - Zalgo](https://images.wondershare.com/filmora/article-images/2022/04/text-distortion-12.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Wavy Text Generator
 
@@ -656,5 +695,20 @@ This tool allows you to distort text by adding a wavy effect to it. To use this 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-digital-identification-showdown-iphone-x-and-galaxy-edition-for-2024/"><u>[New] Digital Identification Showdown IPhone X and Galaxy Edition for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-framework-for-fullscreen-proficiency-in-premiere/"><u>[New] The Ultimate Framework for Fullscreen Proficiency in Premiere</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-optimal-practices-for-blending-b-roll-into-main-clips/"><u>[Updated] 2024 Approved Optimal Practices for Blending B-Roll Into Main Clips</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-camtech-dive-looking-for-improved-alternatives-for-2024/"><u>[Updated] CamTech Dive Looking for Improved Alternatives for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-giggle-guide-quick-tips-for-meme-artistry-for-2024/"><u>[Updated] Giggle Guide Quick Tips for Meme Artistry for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unlock-the-power-of-product-placements-a-comprehensive-guide-for-youtubers/"><u>[Updated] In 2024, Unlock the Power of Product Placements A Comprehensive Guide for YouTubers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-soulful-selection-candid-songs-that-perfectly-match-your-yes/"><u>[Updated] Soulful Selection Candid Songs that Perfectly Match Your 'Yes'</u></a></li>
+<li><a href="https://article-tips.techidaily.com/choosing-the-finest-10-free-subtitles-editors-online-for-2024/"><u>Choosing the Finest 10 Free Subtitles Editors Online for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/expert-tips-for-seamless-integration-of-pip-in-microsoft-edge/"><u>Expert Tips for Seamless Integration of PIP in Microsoft Edge</u></a></li>
+<li><a href="https://techtrends.techidaily.com/merging-multiple-jpg-images-into-a-single-pdf-file-a-step-by-step-guide/"><u>Merging Multiple JPG Images Into a Single PDF File: A Step-by-Step Guide</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-chocolate-phrases-exploring-30plus-languages/"><u>Multilingual Chocolate Phrases: Exploring 30+ Languages</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/the-definitive-guide-to-fixing-discords-excessive-cpu-usage-updated/"><u>The Definitive Guide to Fixing Discord's Excessive CPU Usage (Updated )</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/webcam-safety-starts-here-the-10-best-shields-for-2024/"><u>Webcam Safety Starts Here - The 10 Best Shields for 2024</u></a></li>
+</ul></div>
 
