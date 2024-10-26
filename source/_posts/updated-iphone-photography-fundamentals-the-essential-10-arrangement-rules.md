@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IPhone Photography Fundamentals  The Essential 10 Arrangement Rules\""
-date: 2024-10-19T23:32:03.644Z
-updated: 2024-10-20T16:47:32.646Z
+date: 2024-10-22T20:16:51.648Z
+updated: 2024-10-26T19:34:59.700Z
 tags: 
   - screen-recording
   - ai video
@@ -45,25 +45,18 @@ thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef
 
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Symmetry
 
  For the perfect photo composition with an iPhone, one should understand what all make for the right composition. Photographers divide the frame they want to click into rough patterns and position the subject at the right place to get wonderful shots. Both man-made and natural symmetry and patterns represent eye-catching compositions. You can either take a shot following the symmetric patterns or break them to make the subject stand out by adding focal points and tension.
 
 ![symmetrical](https://images.wondershare.com/filmora/article-images/Symmetrical.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Framing
 
@@ -83,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef
 
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Leave Empty Space
 
  You may wonder if I leave too much empty space in my photo contradicts the concept of ‘filling the frame’. But, it brings out the best for your iPhone photography when you have a strong subject in your scene. A clutter free and less distractive environment leads the viewers’ focus towards the main subject. You can think of clicking a giant statue against a clear blue sky, where the sky would act as a perfect background for the statue and render a clean look to the empty space.
@@ -90,10 +90,16 @@ thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Direction of Subject
@@ -102,13 +108,6 @@ thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef
 
 ![direction](https://images.wondershare.com/filmora/article-images/direction.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Fill Your Frame
 
  Making your subject stand out against the entire frame in a photograph creates more impact. You can easily obtain this goal with your iPhone by covering the entire frame with your subject. According to this amazing photography composition technique, all you have to do is move your iPhone closer to the subject and nullify the appearance of the surroundings to take a close shot. Like this, you are able to capture the intricate detailing of a leaf with its vivid colors and texture, the detailing and motif on a wall art and much more.
@@ -116,10 +115,10 @@ thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef
 ![fill the screen](https://images.wondershare.com/filmora/article-images/fill-the-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Break the Rules
@@ -129,17 +128,17 @@ thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclsion
@@ -149,6 +148,13 @@ thumbnail: https://thmb.techidaily.com/d24f731fb7d4e16e9e3dad20fbd83add26d8b00ef
  Images come from the Internet
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -175,16 +181,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-elevate-your-video-calling-game-with-skype-and-obs/"><u>[New] 2024 Approved Elevate Your Video Calling Game with Skype & OBS</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-free-video-player-face-off-vlc-versus-mpc/"><u>[New] Free Video Player Face-Off VLC Versus MPC</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-master-class-on-cutting-unwanted-backdrops/"><u>[New] In 2024, Master Class on Cutting Unwanted Backdrops</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-ultimate-guide-mastering-quick-screen-recording-on-mac-via-keys/"><u>[New] Ultimate Guide Mastering Quick Screen Recording on Mac via Keys</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-craft-your-first-short-film-with-windows-8-movie-maker/"><u>[Updated] 2024 Approved Craft Your First Short Film with Windows 8 Movie Maker</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-generate-10-official-travel-ready-passport-images-no-money-down-for-2024/"><u>[Updated] Generate 10 Official Travel-Ready Passport Images, No Money Down for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-unleash-the-power-of-windows-11s-media-importer-tools/"><u>[Updated] In 2024, Unleash the Power of Windows 11'S Media Importer Tools</u></a></li>
-<li><a href="https://article-files.techidaily.com/conquering-the-crash-solutions-for-windows-10-photos-issues-for-2024/"><u>Conquering the Crash Solutions for Windows 10 Photos Issues for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-upload-guide-twitter-video-aspect-ratio-mandated/"><u>In 2024, Upload Guide Twitter Video Aspect Ratio Mandated</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/premier-selection-incredible-platform-compatible-free-streaming-apps-for-2024/"><u>Premier Selection Incredible, Platform-Compatible Free Streaming Apps for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/tips-for-removing-spotifys-auto-suggesting-podcasts/"><u>Tips for Removing Spotify's Auto-Suggesting Podcasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-luminouslabs-top-10-free-and-paid-filters-compare/"><u>[New] 2024 Approved LuminousLabs Top 10 Free & Paid Filters Compare</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastering-asmr-for-restful-slumber-for-2024/"><u>[New] Mastering ASMR for Restful Slumber for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pioneering-process-open-mac-seamlessly-with-watch-for-2024/"><u>[New] Pioneering Process Open Mac Seamlessly with Watch for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-utilizing-b-roll-in-video-production-effectively-for-2024/"><u>[New] Utilizing B-Roll in Video Production Effectively for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-guide-to-modify-comment-accessibility-on-youtube-for-2024/"><u>[Updated] Guide to Modify Comment Accessibility on YouTube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-architects-of-unique-virtual-environments/"><u>[Updated] In 2024, Architects of Unique Virtual Environments</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ignite-your-artistic-spirit-find-the-premier-android-drawing-tools/"><u>[Updated] In 2024, Ignite Your Artistic Spirit Find the Premier Android Drawing Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unveiling-secrets-to-pristine-bg-removal-techniques-in-figma-for-2024/"><u>[Updated] Unveiling Secrets to Pristine BG Removal Techniques in Figma for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/10-simplified-techniques-to-winrm-tool/"><u>10 Simplified Techniques to WinRM Tool</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-tecno-pova-6-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Tecno Pova 6 Pro 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-innovation-on-bing-by-microsoft-discover-the-exciting-changes-coming-your-way/"><u>AI Innovation on Bing by Microsoft: Discover the Exciting Changes Coming Your Way</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/discover-top-tier-full-stack-javascript-solutions-explore-3-elegant-nodejs-premium-themes-and-templates-from-creative-tim/"><u>Discover Top-Tier Full-Stack JavaScript Solutions: Explore 3 Elegant NodeJS Premium Themes & Templates From Creative Tim</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-samsung-galaxy-a14-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Samsung Galaxy A14 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-top-10-pc-vr-headsets-2023-update/"><u>In 2024, Top 10 PC VR Headsets -2023 Update</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/innovative-reading-at-your-fingertnails-discover-the-kobo-clara-hd-review/"><u>Innovative Reading at Your Fingertnails – Discover the Kobo Clara HD Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/lightroom-guide-blending-high-dynamic-range-magic/"><u>Lightroom Guide Blending High Dynamic Range Magic</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-winxdvd-tutorial-mastering-dvd-conversion-with-ease/"><u>Ultimate WinXDVD Tutorial: Mastering DVD Conversion with Ease</u></a></li>
 </ul></div>
 

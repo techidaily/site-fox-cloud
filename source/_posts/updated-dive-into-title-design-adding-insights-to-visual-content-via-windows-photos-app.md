@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Dive Into Title Design  Adding Insights to Visual Content via Windows Photos App\""
-date: 2024-09-11T00:52:01.994Z
-updated: 2024-09-12T00:52:01.994Z
+date: 2024-10-25T19:49:35.353Z
+updated: 2024-10-26T19:39:44.440Z
 tags: 
   - screen-recording
   - ai video
@@ -42,62 +42,21 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
@@ -110,65 +69,44 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
-
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -199,4 +137,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-ultimate-list-10-text-effects-to-elevate-your-clips/"><u>[New] 2024 Approved The Ultimate List 10 Text Effects to Elevate Your Clips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-discovering-prime-sources-and-techniques-for-cutting-tamil-ringtones/"><u>[New] Discovering Prime Sources & Techniques for Cutting Tamil Ringtones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-grading-and-correcting-with-ease-top-11-video-editing-tips/"><u>[New] In 2024, Grading and Correcting with Ease Top 11 Video Editing Tips</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-unlocking-your-content-with-vimeo-links-for-2024/"><u>[New] Unlocking Your Content with Vimeo Links for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-what-is-virtual-reality-video-in-2024/"><u>[New] What Is Virtual Reality Video, In 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-charting-a-course-for-influential-insights-within-your-niche/"><u>[Updated] 2024 Approved Charting a Course for Influential Insights Within Your Niche</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-comprehensive-examination-for-straightforward-hdr/"><u>[Updated] Comprehensive Examination for Straightforward HDR</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-expert-reviews-on-top-6-hdmi-21-display-models/"><u>[Updated] Expert Reviews on Top 6 HDMI 2.1 Display Models</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-cold-chronicles-the-2022-winter-olympics-in-china/"><u>[Updated] In 2024, Cold Chronicles The 2022 Winter Olympics in China</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ultimate-visuals-with-the-top-18-4k-cameras-reviewed/"><u>[Updated] In 2024, Ultimate Visuals with the Top 18 4K Cameras Reviewed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-inside-window-11s-power-saving-secrets/"><u>[Updated] Inside Window 11'S Power-Saving Secrets</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-iphone-tricks-adjusting-picture-size-efficiently/"><u>[Updated] IPhone Tricks Adjusting Picture Size Efficiently</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-the-top-8-free-and-paid-videomosaic-apps-on-android-platforms/"><u>2024 Approved Exploring the Top 8 Free & Paid Videomosaic Apps on Android Platforms</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-powerpoint-pro-tips-seamlessly-add-vimeo-videos-and-multimedia/"><u>2024 Approved PowerPoint Pro Tips Seamlessly Add Vimeo Videos and Multimedia</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-realme-narzo-60-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Realme Narzo 60 5G? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-powerdirector-vs-the-rest-top-alternative-video-editors-for-mobile/"><u>New PowerDirector vs The Rest Top Alternative Video Editors for Mobile</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo Reno 8T | Dr.fone</u></a></li>
+</ul></div>
 

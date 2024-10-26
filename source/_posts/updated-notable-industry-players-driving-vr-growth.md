@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Notable Industry Players Driving VR Growth"
-date: 2024-10-15T00:04:24.659Z
-updated: 2024-10-20T20:20:40.258Z
+date: 2024-10-24T19:00:44.549Z
+updated: 2024-10-26T17:06:39.527Z
 tags: 
   - screen-recording
   - ai video
@@ -49,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/399b71f22f6a0f097f9f941327a817b697b933fa5
  Aside from the sister company, Here Be Dragons, With.in also works with other companies such as Apple, The New York Times, NBC, Vice Media and the United Nations.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Art Work of With.in
@@ -68,10 +68,16 @@ thumbnail: https://thmb.techidaily.com/399b71f22f6a0f097f9f941327a817b697b933fa5
 * **The Click Effect**  The short film is about an underwater adventure that takes the viewer to the beauty of the ocean. A person will have the connection with not only the ocean but also the dolphin and whales. A free-spirited approach to the right ocean adventure is displayed in the short film.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## About Chris Milk
@@ -88,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/399b71f22f6a0f097f9f941327a817b697b933fa5
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -119,15 +125,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-elevate-your-craft-the-best-premiere-pro-templates-2023/"><u>[New] Elevate Your Craft The Best Premiere Pro Templates 2023</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-optimizing-visuals-editing-videos-with-storyremix-and-windows-11-photos/"><u>[New] In 2024, Optimizing Visuals Editing Videos with StoryRemix and Windows 11 Photos</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-maximize-your-streaming-experience-dual-screen-mode-on-netflix/"><u>[Updated] In 2024, Maximize Your Streaming Experience - Dual Screen Mode on Netflix</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-visionaryvideoeditor-thorough-breakdown-and-opinions/"><u>[Updated] In 2024, VisionaryVideoEditor Thorough Breakdown & Opinions</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-iphone-users-guide-to-picture-softening-four-ways/"><u>2024 Approved IPhone Users' Guide to Picture Softening (Four Ways)</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/comprehensive-tutorial-on-eliminating-malicious-software-of-chinese-origin-from-your-devices/"><u>Comprehensive Tutorial on Eliminating Malicious Software of Chinese Origin From Your Devices</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-xiaomi-redmi-note-13-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Xiaomi Redmi Note 13 5G Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-view-mov-files-on-samsung-galaxy-z-fold-5-by-aiseesoft-video-converter-play-mov-on-android/"><u>How to view MOV files on Samsung Galaxy Z Fold 5 ?</u></a></li>
-<li><a href="https://games-able.techidaily.com/revive-classic-psp-titles-iphones-included/"><u>Revive Classic PSP Titles, iPhones Included</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-video-file-management-in-adobe-premiere-import-edit-and-export-like-a-pro/"><u>Updated 2024 Approved Video File Management in Adobe Premiere Import, Edit, and Export Like a Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-asymmetric-soothing-sound-the-best-asmr-gear-without-a-heavy-price-tag/"><u>[New] 2024 Approved Asymmetric Soothing Sound The Best ASMR Gear Without a Heavy Price Tag</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-platform-debate-which-appliance-prevails-podcast-or-youtube-for-2024/"><u>[New] The Platform Debate Which Appliance Prevails – Podcast or YouTube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-eco-frameworks-unleashing-creativity-with-free-templates-for-filmmakers/"><u>[Updated] 2024 Approved Eco-Frameworks Unleashing Creativity with Free Templates for Filmmakers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-transform-your-recording-experience-moving-past-fbx-methods/"><u>[Updated] 2024 Approved Transform Your Recording Experience Moving Past FBX Methods</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/boost-online-sales-with-poster-advertising-discover-how-massmail-software-can-transform-your-marketing-strategy/"><u>Boost Online Sales with Poster Advertising: Discover How MassMail Software Can Transform Your Marketing Strategy</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-steam-game-dll-mismatch-issue/"><u>Fixing Steam Game: DLL Mismatch Issue</u></a></li>
+<li><a href="https://blog-min.techidaily.com/gratis-trasforma-file-avi-di-grandi-dimensioni-in-mp4-i-top-5-metodi-piu-efficienti/"><u>Gratis Trasforma File AVI Di Grandi Dimensioni in MP4 - I Top 5 Metodi Più Efficienti</u></a></li>
+<li><a href="https://driver-install.techidaily.com/secure-and-streamline-your-sound-via-dell-realtek-update/"><u>Secure & Streamline Your Sound via Dell Realtek Update</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-10-photo-libraries-for-free-visuals-worldwide-for-2024/"><u>Top 10 Photo Libraries for Free Visuals Worldwide for 2024</u></a></li>
 </ul></div>
 

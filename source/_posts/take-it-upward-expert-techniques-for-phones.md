@@ -1,7 +1,7 @@
 ---
 title: "\"Take It Upward  Expert Techniques for Phones\""
-date: 2024-09-06T00:23:56.468Z
-updated: 2024-09-07T00:23:56.468Z
+date: 2024-10-23T16:41:20.487Z
+updated: 2024-10-26T18:51:41.198Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,6 @@ thumbnail: https://thmb.techidaily.com/8b7337516e3ab4c7de40944c48ebe243474ab75d4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Ollie Mattison
 
  Mar 27, 2024• Proven solutions
@@ -40,23 +34,18 @@ thumbnail: https://thmb.techidaily.com/8b7337516e3ab4c7de40944c48ebe243474ab75d4
 
  However, you will need to use a few but simple techniques to efficiently capture the vertical panoramic view. In this article, we’ll explain you how you can carry out those extraordinary views with your Android or iOS device.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### For iPhone users
 
  The iPhone users can follow the steps given below to execute vertorama.
@@ -65,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/8b7337516e3ab4c7de40944c48ebe243474ab75d4
 * Make sure to hold the device horizontally and hit the camera button.
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image source: mac-fusion
 
@@ -81,35 +77,18 @@ thumbnail: https://thmb.techidaily.com/8b7337516e3ab4c7de40944c48ebe243474ab75d4
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
 * Repeat the same with other dots as well. In other words, move camera towards the gray dots one by one until they get disappear.
 * Tap on "Done" when completed.
 
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Some Beneficial Tips for shooting vertical panorama photo
 
 * Firstly, we would suggest you using a tripod when you need to take **vertical panorama on iPhone** or Android smoothly i.e. to avoid shakiness.
@@ -120,17 +99,12 @@ thumbnail: https://thmb.techidaily.com/8b7337516e3ab4c7de40944c48ebe243474ab75d4
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -154,4 +128,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-convert-songs-to-calls-essential-websites-for-youtubetones-extraction/"><u>[New] Convert Songs to Calls Essential Websites for YoutubeTones Extraction</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-6-youtube-outro-makers-lots-of-free-options/"><u>[New] Top 6 YouTube Outro Makers-Lots of FREE Options!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-customize-twitter-video-image/"><u>[Updated] 2024 Approved Customize Twitter Video Image</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-directors-discourse-insights-and-answers/"><u>[Updated] 2024 Approved Directors' Discourse Insights and Answers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-exploring-soft-cessation-of-audio-tracks-with-audacity/"><u>[Updated] In 2024, Exploring Soft Cessation of Audio Tracks with Audacity</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-text-that-talks-back-adding-life-to-vids-on-a-budget/"><u>[Updated] Text that Talks Back Adding Life to Vids on a Budget</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-next-frontier-in-technological-application-for-2024/"><u>[Updated] The Next Frontier in Technological Application for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/csgo-voice-chat-problems-discover-how-to-fix-your-in-game-mic/"><u>CS:GO Voice Chat Problems? Discover How to Fix Your In-Game Mic</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-watermark-free-stock-image-sources-for-2024/"><u>Exploring Watermark-Free Stock Image Sources for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-honor-70-lite-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Honor 70 Lite 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/free-ways-to-liven-up-static-video-texts-for-2024/"><u>FREE Ways to Liven Up Static Video Texts for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-deciphering-variances-between-standard-and-immersive-video-tech/"><u>In 2024, Deciphering Variances Between Standard & Immersive Video Tech</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instagrams-media-mastery-pro-level-tips-for-pcmac-downloading/"><u>Instagram's Media Mastery Pro-Level Tips for PC/Mac Downloading</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-free-video-splitter-software-top-rated-options-for-this-year/"><u>New In 2024, Free Video Splitter Software Top-Rated Options for This Year</u></a></li>
+</ul></div>
 

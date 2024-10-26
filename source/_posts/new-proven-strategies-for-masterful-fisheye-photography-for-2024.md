@@ -1,7 +1,7 @@
 ---
 title: "[New] Proven Strategies for Masterful Fisheye Photography for 2024"
-date: 2024-09-11T00:52:01.747Z
-updated: 2024-09-12T00:52:01.747Z
+date: 2024-10-19T20:14:50.601Z
+updated: 2024-10-26T16:39:48.780Z
 tags: 
   - screen-recording
   - ai video
@@ -26,49 +26,16 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
 
  Mar 27, 2024• Proven solutions
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Shooting 360 degrees panoramas with fisheye lens
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 1. The equipment and setup
 
@@ -76,25 +43,25 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
 
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Leveling and rotating
 
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 3. The actual shooting
 
@@ -108,20 +75,6 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -129,26 +82,6 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
  You might be also interested in:
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What's fisheye lenses
 
@@ -160,25 +93,18 @@ thumbnail: https://thmb.techidaily.com/82946b1471bda0a94f0756d1b1276fee19eddaa45
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Benjamin Arango
 
@@ -203,4 +129,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-7-best-sbt-to-srtr-conversion-software-for-desktop-use/"><u>[New] 7 Best SBT to SRTR Conversion Software for Desktop Use</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-live-streaming-and-screen-capture-a-comprehensive-obs-analysis-for-2024/"><u>[New] Live Streaming & Screen Capture A Comprehensive OBS Analysis for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-maximizing-zoom-value-through-top-three-strategies-for-2024/"><u>[New] Maximizing Zoom Value Through Top Three Strategies for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-professional-choices-the-very-best-8-tripods-for-4k/"><u>[New] Professional Choices The Very Best 8 Tripods for 4K</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-bring-your-beat-to-facebook-ios-and-android-edition-for-2024/"><u>[Updated] Bring Your Beat to Facebook - iOS & Android Edition for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-from-flat-to-fantastic-3d-text-creation-tips/"><u>[Updated] In 2024, From Flat to Fantastic 3D Text Creation Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-m1-chip-wins-smoothness-in-every-edit-every-time/"><u>[Updated] In 2024, M1 Chip Wins Smoothness in Every Edit, Every Time</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unlock-professional-video-quality-with-obs-studios-lut-functionalities-for-2024/"><u>[Updated] Unlock Professional Video Quality with OBS Studio's LUT Functionalities for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/essential-techniques-for-live-video-sharing-platforms-for-2024/"><u>Essential Techniques for Live Video Sharing Platforms for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/future-proofing-with-the-best-server-racks-and-enclosures-expert-reviews/"><u>Future-Proofing with the Best Server Racks & Enclosures - Expert Reviews</u></a></li>
+<li><a href="https://solve-help.techidaily.com/get-the-latest-official-version-of-winx-dvd-copy-pro-at-no-cost/"><u>Get the Latest Official Version of WinX DVD Copy Pro at No Cost!</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unlock-hd-potential-for-your-social-media-platform-fb/"><u>In 2024, Unlock HD Potential for Your Social Media Platform (FB)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-visualizing-sim-life-masterful-tactics-for-accurate-gameplay-recording-in-sims-4/"><u>In 2024, Visualizing Sim Life Masterful Tactics for Accurate Gameplay Recording in Sims 4</u></a></li>
+</ul></div>
 

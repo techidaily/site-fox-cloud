@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add Titles/Text to Video on Photos App in Windows 10"
-date: 2024-10-17T18:57:25.373Z
-updated: 2024-10-20T22:06:59.378Z
+date: 2024-10-21T18:38:02.269Z
+updated: 2024-10-26T18:08:01.181Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,16 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -74,13 +80,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -92,19 +91,19 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -112,6 +111,19 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,20 +150,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-pioneering-visual-storytelling-uploading-to-youtube/"><u>[New] 2024 Approved Pioneering Visual Storytelling Uploading to YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-tips-lipo-power-sources-for-aerial-vehicles/"><u>[New] In 2024, Top Tips LiPo Power Sources for Aerial Vehicles</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-enhancing-images-on-smartphones-for-creatives/"><u>[Updated] 2024 Approved Enhancing Images on Smartphones for Creatives</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-unlock-your-music-best-free-on-web-tiktok-to-mp3-convertors/"><u>[Updated] In 2024, Unlock Your Music Best Free, On-Web TikTok to MP3 Convertors</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-luts-simplified-your-guide-to-better-photos-for-2024/"><u>[Updated] LUTs Simplified Your Guide to Better Photos for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-vivacut-a-detailed-2024-review/"><u>[Updated] The Ultimate Guide to VivaCut A Detailed 2024 Review</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-top-iphones-video-editors-face-off-cameo-vs-filmorago/"><u>[Updated] Top iPhones' Video Editors Face-Off Cameo Vs. FilmoraGo</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/20-efficient-applications-for-auto-gpt/"><u>20 Efficient Applications for Auto-GPT</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-perfecting-presentations-through-adobe-captivates-tools/"><u>2024 Approved Perfecting Presentations Through Adobe Captivate's Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/comprehensive-ultimate-guide-to-instagram-stories/"><u>Comprehensive Ultimate Guide to Instagram Stories</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/digital-canvas-on-iphone-learn-the-art-of-cropping/"><u>Digital Canvas on iPhone Learn the Art of Cropping</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-hp-deskjet-3755-all-in-one-printer-driver-download-for-windows-11-8-7/"><u>Latest HP DeskJet 3755 All-in-One Printer Driver Download for Windows 11, 8, 7</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-ultimate-guide-to-crafting-successful-health-targets-using-chatgpt/"><u>The Ultimate Guide to Crafting Successful Health Targets Using ChatGPT</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-cpu-performance-leaders-of-2024-comprehensive-rating-guide/"><u>Top CPU Performance Leaders of 2024: Comprehensive Rating Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-a-hassle-free-lifestyle-9-uses-of-chatgpt/"><u>Unlocking a Hassle-Free Lifestyle: 9 Uses of ChatGPT</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-automated-opener-your-srt-files-windows-and-mac/"><u>[New] 2024 Approved Automated Opener Your SRT Files, Windows & Mac</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-eye-catching-vr-adventures-top-5-psvr-games-awaiting-release/"><u>[New] 2024 Approved Eye-Catching VR Adventures Top 5 PSVR Games Awaiting Release</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-bargains-in-the-market-6-leading-4k-projectors/"><u>[New] Best Bargains in the Market 6 Leading 4K Projectors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-from-fledgling-to-front-runner-flourishing-in-follower-count/"><u>[New] In 2024, From Fledgling to Front-Runner Flourishing in Follower Count</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facebook-video-layouts-vertical-or-horizontal-for-2024/"><u>[Updated] Facebook Video Layouts Vertical or Horizontal for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-spectral-showcase-curating-the-best-4k-displays-on-screen/"><u>[Updated] Spectral Showcase Curating the Best 4K Displays on Screen</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-webcam-integration-in-gaming-setup-mastery/"><u>[Updated] Webcam Integration in Gaming Setup Mastery</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-effective-storytelling-through-youtube-and-facebook/"><u>2024 Approved Effective Storytelling Through YouTube and Facebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/exploring-high-definition-with-dell-p2715q-reviewed/"><u>Exploring High-Definition with Dell P2715Q Reviewed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-increase-click-through-with-best-youtube-thumbnail-fonts/"><u>In 2024, Increase Click-Through with Best YouTube Thumbnail Fonts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-ringers-guide-shaping-iphone-sounds/"><u>In 2024, The Ultimate Ringer's Guide Shaping iPhone Sounds</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-y36i-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo Y36i Phone</u></a></li>
+<li><a href="https://win11.techidaily.com/minimize-pc-load-tips-for-managing-multimedia-tasks-on-windows/"><u>Minimize PC Load: Tips for Managing Multimedia Tasks on Windows</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/pajama-plots-performed-a-critical-study-of-bedtime-storytelling-vids/"><u>Pajama Plots Performed A Critical Study of Bedtime Storytelling Vids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ultimate-ringtone-bazaar-navigating-online-sound-archives-for-2024/"><u>Ultimate Ringtone Bazaar Navigating Online Sound Archives for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/unveiling-the-perfection-an-in-depth-analysis-of-google-pixel-3/"><u>Unveiling the Perfection: An In-Depth Analysis of Google Pixel 3</u></a></li>
 </ul></div>
 

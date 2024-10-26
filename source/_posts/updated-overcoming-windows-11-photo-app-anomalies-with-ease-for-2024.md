@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Overcoming Windows 11 Photo App Anomalies with Ease for 2024"
-date: 2024-10-16T18:17:55.854Z
-updated: 2024-10-20T19:44:33.053Z
+date: 2024-10-21T17:16:31.914Z
+updated: 2024-10-26T20:09:12.186Z
 tags: 
   - screen-recording
   - ai video
@@ -47,13 +47,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -65,8 +58,22 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -80,10 +87,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
@@ -97,6 +104,13 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -120,37 +134,11 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -179,24 +167,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-a-detailed-guide-to-crop-your-video-for-instagram/"><u>[New] 2024 Approved A Detailed Guide to Crop Your Video for Instagram</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-imagememe-magic-instant-jokes/"><u>[New] 2024 Approved ImageMeme Magic Instant Jokes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-no-8-virtual-pixel-mashup-software/"><u>[New] In 2024, No. 8 Virtual Pixel Mashup Software</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-unmasking-the-giants-of-live-broadcast-twitch-vs-youtube/"><u>[New] In 2024, Unmasking the Giants of Live Broadcast Twitch Vs YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-keeping-crystal-clear-avoiding-lens-haze-for-2024/"><u>[New] Keeping Crystal Clear Avoiding Lens Haze for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-no-spend-high-repeat-leading-apps-for-your-pinterest-vids-for-2024/"><u>[New] No Spend, High Repeat! Leading Apps for Your Pinterest Vids for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-a-simple-guide-changing-your-voice-in-online-battles-pubg/"><u>[Updated] 2024 Approved A Simple Guide Changing Your Voice in Online Battles (PUBG)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ultimate-guide-yi-hero-cam-and-its-dynamic-features/"><u>[Updated] 2024 Approved Ultimate Guide Yi Hero Cam & Its Dynamic Features</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-cutting-edge-360-degree-cameras-for-youtube-and-facebook/"><u>[Updated] Cutting-Edge 360-Degree Cameras for YouTube & Facebook</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-essential-free-windows-screen-recording-software-1-5-for-2024/"><u>[Updated] Essential Free Windows Screen Recording Software #1-5 for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-crafting-compelling-short-videos-for-youtube-a-top-10-list/"><u>[Updated] In 2024, Crafting Compelling Short Videos for YouTube - A Top 10 List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-mastering-photo-editing-the-eraser-guide-in-psx-for-2024/"><u>[Updated] Mastering Photo Editing The Eraser Guide in PSX for 2024</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-top-30-tiktok-usernames-for-higher-engagement-and-followers/"><u>2024 Approved Top 30 TikTok Usernames for Higher Engagement and Followers</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/aomeiwinadk/"><u>AOMEI復命者下載WinADK安裝指南</u></a></li>
-<li><a href="https://extra-information.techidaily.com/classifications-of-unmanned-aircraft/"><u>Classifications of Unmanned Aircraft</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/comparing-content-formats-podcasts-versus-youtube-for-2024/"><u>Comparing Content Formats Podcasts Versus YouTube for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/expand-horizons-freshest-wins11-apps-and-games/"><u>Expand Horizons Freshest Wins11 Apps & Games</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/funnygenius-create-and-share-memes-for-2024/"><u>FunnyGenius Create and Share Memes for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unleash-your-inner-beauty-with-leading-smartphone-apps/"><u>Unleash Your Inner Beauty with Leading Smartphone Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-creative-visual-effects-harnessing-the-power-of-free-luts/"><u>[New] Creative Visual Effects Harnessing the Power of FREE LUTS</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-learn-how-to-mute-instagram-recommendations/"><u>[New] In 2024, Learn How to Mute Instagram Recommendations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-ultimate-examination-of-samsung-photo-editor-features/"><u>[New] In 2024, The Ultimate Examination of Samsung Photo Editor Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-understanding-ffpm-in-firefox-today/"><u>[New] In 2024, Understanding FFPM in Firefox Today</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unveiling-the-secrets-to-buying-todays-best-360-cameras/"><u>[New] In 2024, Unveiling the Secrets to Buying Today's Best 360 Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-guide-to-crafting-striking-youtube-thumbnails-mac-edition/"><u>[New] Step by Step Guide to Crafting Striking YouTube Thumbnails - Mac Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-boosting-videos-the-best-5-tech-aids/"><u>[Updated] In 2024, Boosting Videos The Best 5 Tech Aids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unstuck-video-streams-from-photobooth-screens/"><u>[Updated] In 2024, Unstuck Video Streams From Photobooth Screens</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-jokes-just-a-click-away-iphone/"><u>2024 Approved Jokes Just a Click Away (iPhone)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pixel-power-streaming-strategies-in-the-software-vs-hardware-arena/"><u>2024 Approved Pixel Power Streaming Strategies in the Software vs Hardware Arena</u></a></li>
+<li><a href="https://techtrends.techidaily.com/demystifying-androids-brainpower-how-system-intelligence-enhances-user-experience/"><u>Demystifying Android's Brainpower: How System Intelligence Enhances User Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/eliminating-expenses-gain-access-to-final-cut-pro/"><u>Eliminating Expenses Gain Access to Final Cut Pro</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-verizon-apple-iphone-x-by-drfone-ios/"><u>How to Unlock Verizon Apple iPhone X</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-honor-x50-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Honor X50 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-live-radio-transmissions-recorded-with-ease-an-experts-guide/"><u>In 2024, Live Radio Transmissions Recorded with Ease An Expert's Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/tips-to-improve-profile-cover-videos-for-2024/"><u>Tips to Improve Profile Cover Videos for 2024</u></a></li>
 </ul></div>
 

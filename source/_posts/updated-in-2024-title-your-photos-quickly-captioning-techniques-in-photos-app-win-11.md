@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Title Your Photos Quickly  Captioning Techniques in Photos App Win 11\""
-date: 2024-10-13T16:07:00.457Z
-updated: 2024-10-20T20:14:54.615Z
+date: 2024-10-25T20:28:54.774Z
+updated: 2024-10-26T20:24:00.212Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -68,10 +75,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -80,31 +87,24 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -138,17 +138,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-key-strategies-for-harvesting-free-photo-frames/"><u>[New] 2024 Approved Key Strategies for Harvesting Free Photo Frames</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-premium-pick-of-budget-friendly-vectors-and-graphic-sites-for-2024/"><u>[New] Premium Pick of Budget-Friendly Vectors & Graphic Sites for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-archivists-arsenal-pivotal-80s-vhs-tricks-for-editors/"><u>[New] The Archivist’s Arsenal Pivotal 80S VHS Tricks for Editors</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-tiktok-linking-made-simple-and-irreversible/"><u>[Updated] 2024 Approved TikTok Linking Made Simple and Irreversible</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-the-complete-checklist-for-recording-fb-chats-and-meets/"><u>[Updated] The Complete Checklist for Recording FB Chats and Meets</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-from-broadcasts-to-bitstreams-online-recording-for-professionals/"><u>2024 Approved From Broadcasts to Bitstreams Online Recording for Professionals</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-lava-yuva-2-pro-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Lava Yuva 2 Pro Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-iphone-11-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On iPhone 11?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mastering-basic-tone-alterations-in-ps/"><u>Mastering Basic Tone Alterations in PS</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mastering-dvd-authorship-the-essential-breakdown-of-the-winxdvd-eula-by-digiarty-solutions/"><u>Mastering DVD Authorship: The Essential Breakdown of the WinXDVD EULA by Digiarty Solutions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/metaverse-chronicles-exploring-infinite-worlds-through-film/"><u>Metaverse Chronicles Exploring Infinite Worlds Through Film</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-best-uninterruptible-power-supply-for-pc-enthusiasts-an-in-depth-review-of-the-apc-model/"><u>The Best Uninterruptible Power Supply for PC Enthusiasts: An In-Depth Review of the APC Model</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mastering-media-importer-strategies-in-windows-10/"><u>[New] 2024 Approved Mastering Media Importer Strategies in Windows 10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-battlebuddies-channel-over-a-hundred-friends-in-games/"><u>[New] In 2024, BattleBuddies Channel Over a Hundred Friends in Games</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-videobrill-studio-affordable-video-editors-guide/"><u>[New] In 2024, Videobrill Studio Affordable Video Editors Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-optimal-strategy-for-integrating-linktree-in-tiktok-profiles/"><u>[Updated] 2024 Approved Optimal Strategy for Integrating Linktree in TikTok Profiles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-essential-handbook-for-iphone-vr-viewing/"><u>[Updated] The Essential Handbook for iPhone VR Viewing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-compilation-techniques-for-posting-youtube-videos-on-facebook-for-2024/"><u>[Updated] The Ultimate Compilation Techniques for Posting YouTube Videos on Facebook for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/advanced-tactics-for-seamless-subtitles-on-vimeo-videos-for-2024/"><u>Advanced Tactics for Seamless Subtitles on Vimeo Videos for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-12-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 12 Without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-xiaomi-redmi-13c-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Xiaomi Redmi 13C FRP?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-mastering-viewer-interest-6-essential-video-formats/"><u>In 2024, Mastering Viewer Interest 6 Essential Video Formats</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-your-iphones-best-selfie-techniques-for-2024/"><u>Mastering Your Iphone's Best Selfie Techniques for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/1719254323833-overcome-shift-key-stickiness-in-windows-os/"><u>Overcome Shift Key Stickiness in Windows OS.</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-videopad-video-editor-2023-a-detailed-review-and-recommendation/"><u>Updated Videopad Video Editor 2023 A Detailed Review and Recommendation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/writers-who-defined-genres-through-exceptional-works-for-2024/"><u>Writers Who Defined Genres Through Exceptional Works for 2024</u></a></li>
 </ul></div>
 

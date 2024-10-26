@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Director's Toolkit Win8 for 2024"
-date: 2024-10-16T20:57:56.641Z
-updated: 2024-10-20T20:44:38.704Z
+date: 2024-10-25T18:36:33.248Z
+updated: 2024-10-26T17:36:14.914Z
 tags: 
   - screen-recording
   - ai video
@@ -43,31 +43,30 @@ Filmora is compatible for Windows 7/8/8.1/10 64-bit PC and Mac OSX 10.11 or abov
 
 We have written so many articles about [how to edit videos](https://tools.techidaily.com/wondershare/filmora/download/) with Filmora on Windows, to keep the content clean, you can check our guide about How to Edit videos. But if you have any questions about editing videos in Filmora, leave a comment below and I’ll reply the comment soon.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to use DVD slideshow Builder on Windows 8
 
 The content below will tell you how to make a video movie using [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/).
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png) ](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 1.Install video movie software and import files
 
 Download and install [DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), in "Organize" tab, drag and drop your digital photos to the storyboard (you can also add videos from computer or camera as you like).
 
 ![video movie maker](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Then add background music in "Personalize" tab. You can click "Music" button to add or just drag the music to the background track. You can add sounds or your own record by clicking "Voice Over".
 
@@ -80,10 +79,10 @@ You can also add some adorable elements to make your movie video more funny and 
 ![DVD Slideshow Personalize](https://images.wondershare.com/filmora/article-images/dvd-slideshow-personalize.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 3.Save your own video movie or share online
@@ -101,18 +100,25 @@ Ok, that's done. You see, with this **video movie maker for windows 8**, making 
 
 ![video movie maker for windows 8](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png) ](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Interested in Filmora video editor? Check the YouTube tutorial about Filmora from tutvide and download it to try.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -141,22 +147,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-twilight-tales-top-hdr-sky-captures-from-leading-portals/"><u>[New] 2024 Approved Twilight Tales - Top HDR Sky Captures From Leading Portals</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-unleash-your-potential-detailed-guide-for-ps4-recordings-with-obs/"><u>[New] 2024 Approved Unleash Your Potential Detailed Guide for PS4 Recordings with OBS</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-christian-ringtone-guide-selection-tips-for-2024/"><u>[New] Christian Ringtone Guide – Selection Tips for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-fabricate-a-one-of-a-kind-internet-joke/"><u>[Updated] 2024 Approved Fabricate a One-of-a-Kind Internet Joke</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-premier-vr-screens-producers/"><u>[Updated] Premier VR Screens Producers</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-unraveling-the-best-solo-play-strategies-for-apex-legends/"><u>[Updated] Unraveling the Best Solo Play Strategies for Apex Legends</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/delving-into-ffmpeg-for-pure-unchanged-auditory-extraction/"><u>Delving Into FFmpeg for Pure, Unchanged Auditory Extraction</u></a></li>
-<li><a href="https://win-dash.techidaily.com/excel-essentials-unlocking-the-power-of-the-outlier-tool-for-effective-data-analysis/"><u>Excel Essentials: Unlocking the Power of the Outlier Tool for Effective Data Analysis</u></a></li>
-<li><a href="https://program-issues.techidaily.com/fixing-oculus-how-to-update-or-replace-faulty-graphics-drivers/"><u>Fixing Oculus: How to Update or Replace Faulty Graphics Drivers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-unveiling-the-magic-in-haul-video-creation/"><u>In 2024, Unveiling the Magic in Haul Video Creation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-utilizing-snapchats-prominent-personalities-highlight/"><u>In 2024, Utilizing Snapchat's Prominent Personalities Highlight</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Realme 11 5G? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-sony-xperia-5-v-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Sony Xperia 5 V</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-how-to-get-your-diagnostic-policy-service-running-again/"><u>Resolved: How to Get Your Diagnostic Policy Service Running Again</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/resolving-missing-hard-drive-seagate-and-windows-11/"><u>Resolving Missing Hard Drive: Seagate & Windows 11</u></a></li>
-<li><a href="https://win-answers.techidaily.com/tackle-your-naraka-gameplay-disruptions-with-effective-solutions/"><u>Tackle Your Naraka Gameplay Disruptions with Effective Solutions!</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-archivists-guide-reviving-yesteryears-vhs-artistry-in-todays-editing-space/"><u>The Archivist's Guide Reviving Yesteryear’s VHS Artistry in Today's Editing Space</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-iconic-stock-pictures-from-ordinary-to-internet-fame/"><u>[New] 2024 Approved Iconic Stock Pictures From Ordinary to Internet Fame</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-instantly-connect-youtube-and-facebook-for-viewers/"><u>[New] In 2024, Instantly Connect YouTube and Facebook for Viewers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-chill-championships-highlighting-cold-climates-sports/"><u>[Updated] 2024 Approved Chill Championships Highlighting Cold Climates Sports</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-quick-and-easy-comedy-unraveling-ifunnys-meme-magic/"><u>[Updated] 2024 Approved Quick & Easy Comedy Unraveling iFunny's Meme Magic</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-innovative-recording-methods-windows-10-guide/"><u>2024 Approved Innovative Recording Methods Windows 10 Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-lava-blaze-2-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Lava Blaze 2 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-honor-90-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Honor 90 Phone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/speak-like-locals-learn-romanian-fast/"><u>Speak Like Locals, Learn Romanian Fast</u></a></li>
+<li><a href="https://win11.techidaily.com/streamline-your-workflow-adjusting-shortcut-placement-on-win11/"><u>Streamline Your Workflow: Adjusting Shortcut Placement on Win11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/subtitles-in-a-click-our-free-top-10-converter-picks/"><u>Subtitles in a Click - Our Free, Top 10 Converter Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-safety-in-social-media-environments/"><u>User Safety in Social Media Environments</u></a></li>
 </ul></div>
 

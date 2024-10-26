@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Simplify Multitasking on iPhone  Activate/Deactivate YouTube's PIP Feature\""
-date: 2024-09-11T00:52:00.389Z
-updated: 2024-09-12T00:52:00.389Z
+date: 2024-10-19T19:00:17.382Z
+updated: 2024-10-26T18:05:25.114Z
 tags: 
   - screen-recording
   - ai video
@@ -34,38 +34,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
 2. Open the **YouTube PIP** Shortcut and tap **Get Shortcut** on the App. You will be redirected to the shortcut application on your phone. If you don't have the shortcut application, you can download it from the App Store.
 
 ![shortcut application](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-2.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 1. Tap **Allow Untrusted Shortcuts** in the Shortcut Application on your device
 2. Now go to the actual YouTube App and start to play a video
@@ -75,26 +47,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 6. Tap on the burner that pops out. It will direct you to the actual shortcut for YouTube. And you will need to install an additional Application (Scriptable App).
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
@@ -106,20 +58,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
 
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
 
@@ -134,6 +72,13 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
 Picture in Picture is now a native quality utility feature on many Apps on different platforms. PIP has stayed for some time since it was developed and introduced for third-party utilization. However, YouTube is still left out of this. To enable PIP on Mac, you will need to go a step ahead to do it. Enjoying PIP on an iPad is also not a straightforward thing. All the same, Mac and iPad require very simple instructions to allow you to use Picture in Picture with them.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### PIP on iPad
 
@@ -155,6 +100,20 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### PIP on Mac
 
 On your Mac, there are two ways to get into Picture in Picture mode. You can use Control Command and Mouse together, or simply the mouse itself/touchpad. And here is how to do it with a Mouse only.
@@ -172,39 +131,12 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Conclusion
 
@@ -238,4 +170,21 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-capture-lifes-movement-integrating-motion-blur-into-face-photography-with-picsart/"><u>[New] 2024 Approved Capture Life's Movement Integrating Motion Blur Into Face Photography with Picsart</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-understanding-the-technicalities-of-fb-360-streaming/"><u>[New] 2024 Approved Understanding the Technicalities of FB 360 Streaming</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-watermark-wisdom-the-10-best-apps-reviewed/"><u>[New] 2024 Approved Watermark Wisdom The 10 Best Apps Reviewed</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-unlocking-full-potential-in-depth-review-of-lgs-monitor-tech/"><u>[New] In 2024, Unlocking Full Potential In-Depth Review of LG's Monitor Tech</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-the-best-7-android-adblock-tools/"><u>[New] The Ultimate Guide to the Best 7 Android AdBlock Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-12-sites-for-premium-free-photography-images/"><u>[New] Top 12 Sites for Premium-Free Photography Images</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-uncluttered-desktop-recorder-w10/"><u>[Updated] 2024 Approved Uncluttered Desktop Recorder W10</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-windows-11-how-to-switch-on-its-built-in-hdr-capability/"><u>[Updated] In 2024, Windows 11 How to Switch On Its Built-In HDR Capability</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-step-by-step-guide-to-phantoms-slow-mo-magic/"><u>[Updated] Step by Step Guide to Phantom's Slow Mo Magic</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-validity-of-vibration-reduction-in-adobes-world/"><u>[Updated] The Validity of Vibration Reduction in Adobe's World</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-capturing-the-moment-the-ultimate-guide-to-screen-recording-with-obs/"><u>2024 Approved Capturing the Moment The Ultimate Guide to Screen Recording with OBS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevate-your-videography-mastering-the-dimensions-for-2024/"><u>Elevate Your Videography Mastering the Dimensions for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/inkrementelle-synchronisation-von-daten-unter-windows-10-8-oder-7-erstellen/"><u>Inkrementelle Synchronisation Von Daten Unter Windows 10, 8 Oder 7 Erstellen</u></a></li>
+</ul></div>
 

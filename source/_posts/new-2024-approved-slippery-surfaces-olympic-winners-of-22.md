@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Slippery Surfaces  Olympic Winners of '22\""
-date: 2024-09-06T00:23:41.623Z
-updated: 2024-09-07T00:23:41.623Z
+date: 2024-10-20T16:12:21.905Z
+updated: 2024-10-26T19:56:23.814Z
 tags: 
   - screen-recording
   - ai video
@@ -22,18 +22,6 @@ Putting aside the controversy of getting disqualified in 1000 meter short track 
 
 Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -44,22 +32,10 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
@@ -77,17 +53,12 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
@@ -97,17 +68,19 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -121,6 +94,13 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -140,12 +120,6 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -155,6 +129,19 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -177,4 +164,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harnessing-viral-power-your-pathway-to-youtube-fame/"><u>[New] 2024 Approved Harnessing Viral Power Your Pathway to YouTube Fame</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-samsung-gear-360-vs-lg-360-cam-which-360-degree-camera-is-better/"><u>[New] 2024 Approved Samsung Gear 360 vs LG 360 Cam Which 360 Degree Camera Is Better</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-a-symphony-of-shades-practical-color-utilization-for-2024/"><u>[New] A Symphony of Shades Practical Color Utilization for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-tune-travelers-guide-transferring-playlists-with-precision/"><u>[New] Tune Traveler's Guide Transferring Playlists with Precision</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-camera-confusion-no-video-display-issue/"><u>[Updated] 2024 Approved Camera Confusion No Video Display Issue</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-post-with-a-podcast-highlight-moment/"><u>[Updated] In 2024, Post with a Podcast Highlight Moment</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-best-of-both-worlds-2023s-device-agnostic-editors/"><u>[Updated] In 2024, The Best of Both Worlds 2023’S Device-Agnostic Editors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-spreading-smiles-building-a-solid-foundation-in-gif-humor/"><u>[Updated] Spreading Smiles Building a Solid Foundation in GIF Humor</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tips-for-sending-tweets-video-content-via-whatsapp/"><u>[Updated] Tips for Sending Tweets' Video Content via WhatsApp</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-newest-acer-trackpad-drivers-optimized-for-windows-10/"><u>Download the Newest Acer TrackPad Drivers Optimized for Windows 10!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/enhance-your-media-masterpiece-with-canvas-soundscape-edition-for-2024/"><u>Enhance Your Media Masterpiece with Canva's Soundscape Edition for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/fixing-missing-ocidll-errors-a-comprehensive-approach/"><u>Fixing Missing Oci.dll Errors: A Comprehensive Approach</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-boosted-imagery-in-canva-top-10-tricks-revealed/"><u>In 2024, Boosted Imagery in Canva - Top 10 Tricks Revealed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-capture-the-moment-professional-techniques-in-hdr-portraiture/"><u>In 2024, Capture the Moment Professional Techniques in HDR Portraiture</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/keyframe-kinetics-collections/"><u>Keyframe Kinetics Collections</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-magic-of-power-cycling-resolving-common-phone-troubles-easily/"><u>The Magic of Power Cycling: Resolving Common Phone Troubles Easily</u></a></li>
+</ul></div>
 

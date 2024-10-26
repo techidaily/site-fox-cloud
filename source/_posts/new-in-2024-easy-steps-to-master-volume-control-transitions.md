@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Easy Steps to Master Volume Control Transitions"
-date: 2024-10-14T22:08:41.930Z
-updated: 2024-10-20T20:37:37.825Z
+date: 2024-10-22T16:49:27.955Z
+updated: 2024-10-26T17:08:16.858Z
 tags: 
   - screen-recording
   - ai video
@@ -77,13 +77,6 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
@@ -99,10 +92,16 @@ If you want to fade in and fade out two clips at the same time, then controlling
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
@@ -119,19 +118,6 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -139,24 +125,37 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -170,6 +169,19 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -203,19 +215,22 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-essential-video-communication-tools-list/"><u>[New] 2024 Approved Essential Video Communication Tools List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-3-simple-free-methods-to-infuse-music-into-mobile-video-creations-on-iphones-for-2024/"><u>[New] 3 Simple, Free Methods to Infuse Music Into Mobile Video Creations on iPhones for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-film-making-mastery-guidebook/"><u>[New] Film Making Mastery Guidebook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-next-gen-skyborne-a-deep-dive-into-h501s-x4/"><u>[New] In 2024, Next-Gen Skyborne A Deep Dive Into H501S X4</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-mastering-meme-magic-for-laughter/"><u>[New] Mastering Meme Magic for Laughter</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-get-more-video-views-on-youtube/"><u>[Updated] 2024 Approved How To Get More Video Views on YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-simplify-note-capture-with-mematic-app/"><u>[Updated] 2024 Approved Simplify Note Capture with Mematic App</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-turbocharging-your-journey-10-must-have-srt-converters/"><u>[Updated] 2024 Approved Turbocharging Your Journey 10 Must-Have SRT Converters</u></a></li>
-<li><a href="https://techidaily.com/different-methods-for-resetting-tecno-spark-10-4g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Tecno Spark 10 4G Phones with Screen Locked and Not | Dr.fone</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/effective-techniques-for-reducing-video-file-sizes-in-bulk/"><u>Effective Techniques for Reducing Video File Sizes in Bulk</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-annual-highlights-ultimate-free-lut-download-guide/"><u>In 2024, Annual Highlights Ultimate Free LUT Download Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-best-bargains-on-stunning-5k-displays-8-selection/"><u>In 2024, Best Bargains on Stunning 5K Displays - #8 Selection</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-streaming-wars-recap-fb-live-yt-live-and-twitter-spaces/"><u>In 2024, Streaming Wars Recap FB LIVE, YT Live & Twitter Spaces</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/revolutionizing-site-visibility-how-artificer-intelligence-is-shaping-search-engine-results/"><u>Revolutionizing Site Visibility: How Artificer Intelligence Is Shaping Search Engine Results</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-canons-lut-collection-maximize-image-impact-free-and-paid-choices/"><u>[New] Canon’s LUT Collection Maximize Image Impact - FREE & Paid Choices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-excellence-in-dialogue-maker-land/"><u>[New] In 2024, Excellence in Dialogue Maker Land</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-peak-performance-sd-card-for-sony-a7s-series-for-2024/"><u>[New] Peak Performance SD Card for Sony A7S Series for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ifunny-meme-journey-downloading-made-easy/"><u>[New] The iFunny Meme Journey Downloading Made Easy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-maximizing-efficiency-discover-the-leading-speech-to-text-apps-for-macos/"><u>[Updated] 2024 Approved Maximizing Efficiency Discover the Leading Speech-to-Text Apps for MacOS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-writers-toolkit-dialogue-and-narration-techniques-for-success/"><u>[Updated] In 2024, The Writer's Toolkit Dialogue and Narration Techniques for Success</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-simplified-playlist-crafting-for-youtube-fans-on-desktop-and-mobile-devices/"><u>[Updated] Simplified Playlist Crafting for YouTube Fans on Desktop & Mobile Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sustaining-a-day-job-while-building-your-online-presence/"><u>[Updated] Sustaining a Day Job While Building Your Online Presence</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-complete-overview-the-ultimate-video-editors-review-for-vivocut/"><u>2024 Approved Complete Overview The Ultimate Video Editor's Review for VivoCut</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/best-15-gopro-cutting-and-editing-software-for-2024/"><u>Best 15 GoPro Cutting and Editing Software for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/gimbal-mastery-7-drone-pros-recommended/"><u>Gimbal Mastery 7 Drone Pros Recommended</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-realme-v30-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Realme V30 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/hp-monitor-troubles-heres-how-to-get-them-up-and-running-again/"><u>HP Monitor Troubles? Here's How to Get Them Up and Running Again</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-vivo-y36i-easily-by-drfone-android/"><u>In 2024, How To Unlock a Vivo Y36i Easily?</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/revisiting-demons-souls-enhanced-visual-experience-and-timeless-challenge/"><u>Revisiting Demon's Souls: Enhanced Visual Experience and Timeless Challenge</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-issues-with-nonfunctional-mics-in-your-kotion-g2000-setup/"><u>Solving Issues with Nonfunctional Mics in Your Kotion G2000 Setup</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-huawei-nova-y71-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Huawei Nova Y71 Phone</u></a></li>
 </ul></div>
 

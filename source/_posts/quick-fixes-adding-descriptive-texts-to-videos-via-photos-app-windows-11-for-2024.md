@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Fixes  Adding Descriptive Texts to Videos via Photos App (Windows 11) for 2024\""
-date: 2024-10-15T20:20:09.370Z
-updated: 2024-10-20T16:09:44.014Z
+date: 2024-10-22T16:58:35.986Z
+updated: 2024-10-26T20:07:01.884Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,16 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -75,10 +81,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -87,13 +93,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
@@ -101,10 +100,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -112,6 +111,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,18 +144,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unlock-smart-note-management-via-mematic/"><u>[New] 2024 Approved Unlock Smart Note Management via Mematic</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-diy-guide-to-custom-instagram-tones-for-2024/"><u>[New] DIY Guide to Custom Instagram Tones for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-perfect-every-frame-windows-11-and-storyremix-combo-guide-to-video-editing/"><u>[New] Perfect Every Frame Windows 11 & StoryRemix Combo Guide to Video Editing</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-critics-choice-best-5-web-recording-applications/"><u>[Updated] 2024 Approved Critics' Choice Best 5 Web Recording Applications</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-yuneecs-breeze-a-quest-for-perfect-vision/"><u>[Updated] 2024 Approved Yuneec's Breeze - A Quest for Perfect Vision</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-to-success-top-hashtags-for-6-figure-views-on-youtube/"><u>[Updated] In 2024, Elevate to Success Top Hashtags for 6-Figure Views on YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-infusing-audio-from-yt-into-video-artistry-for-2024/"><u>[Updated] Infusing Audio From YT Into Video Artistry for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-realme-11-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Realme 11 5G Unlock Without Password</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-realme-note-50-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Realme Note 50 Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-samsung-galaxy-f54-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Samsung Galaxy F54 5G Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/learn-how-to-blur-a-part-of-a-picture-on-pcmobile/"><u>Learn How to Blur a Part of a Picture on PC/Mobile</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/zero-budget-football-broadcasting-101-for-2024/"><u>Zero Budget Football Broadcasting 101 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-subtle-reduction-of-volume-in-fl-studio/"><u>[New] Subtle Reduction of Volume in FL Studio</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-your-top-choice-best-offline-mobile-games-for-endless-entertainment/"><u>[New] Your Top Choice Best Offline Mobile Games for Endless Entertainment</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-assemble-creative-gifs-for-online-sharing/"><u>[Updated] Assemble Creative GIFs for Online Sharing</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-become-a-successful-smm-in-10-steps/"><u>[Updated] Become a Successful SMM in 10 Steps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-how-to-create-a-unique-cellphone-alert-from-favorite-tiktok-songs/"><u>[Updated] In 2024, How to Create a Unique Cellphone Alert From Favorite TikTok Songs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-navigating-noise-free-auditory-shifts/"><u>[Updated] In 2024, Navigating Noise-Free Auditory Shifts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-gamers-choice-best-4k-monitors/"><u>2024 Approved Top Gamer's Choice Best 4K Monitors</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-transform-your-facebook-presence-with-these-11-video-marketing-tips/"><u>2024 Approved Transform Your Facebook Presence with These 11 Video Marketing Tips</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-13-mini-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 13 mini to Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unveiling-the-best-5-tools-for-youtube-video-url-shortening/"><u>In 2024, Unveiling the Best 5 Tools for YouTube Video URL Shortening</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/radiance-visionaries-report-on-studio-25-2023-for-2024/"><u>Radiance Visionaries Report on Studio 25, 2023 for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/earners-guide-to-best-rated-history-yt-channels-1-10-for-2024/"><u>The Learner's Guide to Best-Rated History YT Channels #1-10 for 2024</u></a></li>
 </ul></div>
 
