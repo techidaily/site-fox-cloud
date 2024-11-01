@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Digital Chromatic Conventions in Media Production"
-date: 2024-10-22T16:17:11.131Z
-updated: 2024-10-26T20:27:19.856Z
+date: 2024-10-30T01:46:54.789Z
+updated: 2024-11-01T03:34:28.541Z
 tags: 
   - screen-recording
   - ai video
@@ -75,22 +75,15 @@ Advanced Color Tools icon – click the Advanced Color Tools icon in the toolbar
 
 ![advanced color tools filmora](https://images.wondershare.com/filmora/article-images/2022/08/advanced-color-tools-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Color Panel Window - to perform color correction in Wondershare Filmora, switch to the Color tab. You can modify the white balance, saturation, tint, contrast, temperature, and brightness and apply 3D LUT immediately and quickly in this editing panel. You see the output in the Preview window.
 
 ![edit color grading video fx](https://images.wondershare.com/filmora/article-images/2022/08/edit-color-grading-video-fx.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Contrast**: is the variance in luminance or color that makes an object identifiable. By modifying this setting, control the dissimilarity in color and brightness in contrary parts of the video image.
@@ -111,6 +104,13 @@ Here, there are two options to select: The Color correction. It offers different
 
 ![open color correction filmora](https://images.wondershare.com/filmora/article-images/2022/08/open-color-correction-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2Select the specific video portion
 
 #####
@@ -122,6 +122,13 @@ First, you need to select the specific video portion you want to change the colo
 * And I selected the end portion of the video. After that, choose the part of the video.
 
 ![selected end portion video filmora](https://images.wondershare.com/filmora/article-images/2022/08/selected-end-portion-video-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step3Apply the color correction preset that you want then click ok
 
@@ -137,13 +144,6 @@ Once you've finished correcting the video color, press Play and go over the whol
 
 ![preview and save video filmora](https://images.wondershare.com/filmora/article-images/2022/08/preview-and-save-video-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Using the Color Panel Window**
 
 ##### Step1To perform color correction in Filmora, switch to the Color tab
@@ -152,18 +152,18 @@ You can modify the temperature, tint, white balance, contrast, saturation, and b
 
 ![color panel windows filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-panel-windows-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step2Color grading with Wondershare Filmora
 
 Click the button Advanced at the lower corner, then the color grading window will pop up, and you can explore your settings and options.
 
 ![color grading with filmora](https://images.wondershare.com/filmora/article-images/2022/08/color-grading-with-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Color Histogram**
 
@@ -233,24 +233,24 @@ Overall, Color grading is the process of video editing to have an excellent look
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-effortless-mp4-conversion-from-facebook-hd-content-all-for-free/"><u>[New] In 2024, Effortless MP4 Conversion From Facebook HD Content – All For Free</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-novice-to-pro-youtube-gamers-broadcasting-journey/"><u>[Updated] 2024 Approved From Novice to Pro YouTube Gamers' Broadcasting Journey</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-access-yt-comments-desktopiosandroid-edition-explained-for-2024/"><u>[Updated] Access YT Comments Desktop/iOS/Android Edition Explained for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-elevate-your-reels-to-new-heights-with-top-6-innovative-apps/"><u>[Updated] In 2024, Elevate Your Reels to New Heights with Top 6 Innovative Apps</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-the-ultimate-guide-to-becoming-a-tiktok-live-companion/"><u>[Updated] The Ultimate Guide to Becoming a TikTok Live Companion</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-acid-pro-alternatives-a-comprehensive-guide/"><u>2024 Approved ACID Pro Alternatives A Comprehensive Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-captivating-content-incorporate-these-20-magic-words/"><u>2024 Approved Captivating Content Incorporate These 20 Magic Words</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-editing-excess-strategies-to-clean-up-oversized-tiktok-drafts/"><u>2024 Approved Editing Excess Strategies to Clean Up Oversized TikTok Drafts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-eliminating-oculus-sickness-key-tactics/"><u>2024 Approved Eliminating Oculus Sickness Key Tactics</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-initiate-xp-project-masterpiece-creation-package/"><u>2024 Approved Initiate XP Project Masterpiece Creation Package</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-overloaded-tiktok-saves-a-guide-to-editing-and-streamlining/"><u>2024 Approved Mastering Overloaded TikTok Saves A Guide to Editing and Streamlining</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-non-athlete-front-rows-the-ultimate-alternative-list/"><u>2024 Approved Non-Athlete Front Rows The Ultimate Alternative List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-picsart-app-deep-dive-full-review-analysis-and-instructions-for-the-new-year/"><u>2024 Approved PicsArt App Deep Dive Full Review, Analysis & Instructions for the New Year</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-preparing-your-pc-and-room-for-the-ultimate-vr/"><u>2024 Approved Preparing Your PC and Room for the Ultimate VR</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-pushing-boundaries-merging-hdr-photos-with-lightroom/"><u>2024 Approved Pushing Boundaries Merging HDR Photos with Lightroom</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-infinix-hot-30i-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Infinix Hot 30i Contacts An Easy Method Explained.</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/real-time-broadcasting-tools-discover-the-best-live-streaming-with-manycams-virtual-camera/"><u>Real-Time Broadcasting Tools: Discover the Best Live Streaming with ManyCam's Virtual Camera</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unconventnial-joy-in-reviewing-the-ddpai-mini3-dash-cam-model/"><u>Unconventnial Joy in Reviewing the Ddpai Mini3 Dash Cam Model</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-x9b-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor X9b Device</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-cinema-kings-and-queens-iphones-leading-8-freepluspaid-watching-options/"><u>[New] 2024 Approved Cinema Kings & Queens IPhone's Leading 8 FREE+Paid Watching Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-configuring-picture-in-picture-for-apple-browsers-for-2024/"><u>[New] Configuring Picture-in-Picture for Apple Browsers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-decoding-the-best-free-video-experience-vlc-clashes-with-mpc/"><u>[New] Decoding the Best Free Video Experience VLC Clashes with MPC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-elevating-your-existence-on-the-web-expanding-your-youtube-following/"><u>[New] Elevating Your Existence on the Web Expanding Your Youtube Following</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-no-frills-guide-to-basic-hdr-techniques/"><u>[New] The No-Frills Guide to Basic HDR Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-cadence-captors-embrace-free-online-tempo-apps/"><u>[Updated] Cadence Captors – Embrace Free Online Tempo Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-lighten-spirits-with-adobes-meme-magic-for-2024/"><u>[Updated] Lighten Spirits with Adobe's Meme Magic for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-low-light-iphone-luminary-techniques-for-2024/"><u>[Updated] Low-Light iPhone Luminary Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pc-editors-a-compilation-without-inshot-for-2024/"><u>[Updated] PC Editors A Compilation Without Inshot for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-ultimate-blueprint-for-successful-freefire-videos-on-youtube/"><u>2024 Approved The Ultimate Blueprint for Successful FreeFire Videos on YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-ultimate-mac-studio-for-optimal-audiovisual-capture/"><u>2024 Approved Ultimate Mac Studio for Optimal Audiovisual Capture</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-down-unveiling-the-instant-italian-prohibition/"><u>ChatGPT Down: Unveiling the Instant Italian Prohibition</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-realme-c53-by-drfone-android/"><u>How to Show Wi-Fi Password on Realme C53</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-the-acurite-pro-01036m-user-friendly-setup-and-sturdy-construction/"><u>In-Depth Review of the AcuRite Pro 01036M: User-Friendly Setup and Sturdy Construction</u></a></li>
+<li><a href="https://win-answers.techidaily.com/optimize-gameplay-smoothness-overcoming-fps-reductions-in-pc-games/"><u>Optimize Gameplay Smoothness - Overcoming FPS Reductions in PC Games</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/recut-studio-for-2024/"><u>PictureCut Studio for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/unveiling-of-protonvpns-new-stealth-mode-now-available-for-windows-users/"><u>Unveiling of ProtonVPN's New Stealth Mode: Now Available for Windows Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/windows-movie-maker-the-ultimate-guide-to-youtube-video-production-for-2024/"><u>Windows Movie Maker The Ultimate Guide to YouTube Video Production for 2024</u></a></li>
 </ul></div>
 

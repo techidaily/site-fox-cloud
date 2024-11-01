@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Bring Back Your Preferred Photo Viewer in Win 11"
-date: 2024-10-24T20:37:05.669Z
-updated: 2024-10-26T19:37:36.807Z
+date: 2024-10-25T06:36:53.015Z
+updated: 2024-11-01T08:24:45.585Z
 tags: 
   - screen-recording
   - ai video
@@ -63,10 +63,10 @@ Here is why they want to restore Windows Photo Viewer –
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
@@ -77,16 +77,16 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
 
@@ -107,17 +107,16 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -125,6 +124,13 @@ Here is the detailed guide –
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -153,20 +159,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-ultimate-collection-no-cost-ae-template-gold-for-2024/"><u>[New] Ultimate Collection No-Cost AE Template Gold for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-2020s-windows-updates-a-quick-overview/"><u>[Updated] 2024 Approved 2020'S Windows Updates A Quick Overview</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-daily-video-size-summation-total-gb-cost-for-2024/"><u>[Updated] Daily Video Size Summation Total GB Cost for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-highlighting-the-top-video-creation-apps-iphone-android-for-2024/"><u>[Updated] Highlighting the Top Video Creation Apps (iPhone, Android) for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-5-high-quality-low-speed-video-gear/"><u>2024 Approved Top 5 High-Quality Low-Speed Video Gear</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-ultimate-list-premier-networks-for-live-viewing/"><u>2024 Approved Ultimate List Premier Networks for Live Viewing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-vmix-mover-for-apple-and-pcs/"><u>2024 Approved VMix Mover for Apple and PCs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-your-guide-to-the-top-10-free-jpeg-to-gif-conversion-sites/"><u>2024 Approved Your Guide to the Top 10 Free JPEG-to-GIF Conversion Sites</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-google-pixel-fold-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Google Pixel Fold FRP</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-vivo-y78-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Vivo Y78 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/amplify-your-voice-on-twitter-top-video-uploading-solutions/"><u>Amplify Your Voice on Twitter Top Video Uploading Solutions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/asus-mg28uq-4k-revolution-experience-unparalleled-clarity-review-for-2024/"><u>ASUS MG28UQ 4K Revolution - Experience Unparalleled Clarity Review for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/best-software-a-gamers-livestream-compendium/"><u>Best Software A Gamers' Livestream Compendium</u></a></li>
-<li><a href="https://win-unique.techidaily.com/how-to-extract-and-print-specific-pages-in-your-flip-book-using-flipbuilder-techniques/"><u>How to Extract and Print Specific Pages in Your Flip Book Using FlipBuilder Techniques</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-streamline-your-screens-youtube-video-resizing-tricks/"><u>In 2024, Streamline Your Screens YouTube Video Resizing Tricks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-free-and-paid-canvas-creations-apps-for-pc-users-for-2024/"><u>[New] Best Free & Paid Canvas Creations Apps for PC Users for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-inside-the-innovative-world-of-intova-x-for-2024/"><u>[New] Inside the Innovative World of Intova X for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-outstanding-mac-screen-recording-options-beyond-bandicamp-for-2024/"><u>[New] Outstanding Mac Screen Recording Options Beyond Bandicamp for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-superior-mp4-channel-updater/"><u>[New] Superior MP4 Channel Updater</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-premiere-pros-full-scene-showcase-guide/"><u>[Updated] 2024 Approved Premiere Pro's Full Scene Showcase Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-pixel-power-the-best-for-web-video-gems/"><u>[Updated] In 2024, Pixel Power The Best for Web Video Gems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/chime-chronicles-mastering-the-art-of-tamil-ringtones-for-2024/"><u>Chime Chronicles Mastering the Art of Tamil Ringtones for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/flawless-syncing-adding-soundtracks-to-inshot-for-2024/"><u>Flawless Syncing Adding Soundtracks to Inshot for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-k400-plus-mouse-drivers-free-download/"><u>Get Your K400 Plus Mouse Drivers - Free Download</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-oppo-find-x6-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP on Oppo Find X6 Pro?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-zero-dollar-zenith-where-budget-meets-beautiful-tiktok-bgs/"><u>In 2024, Zero-Dollar Zenith Where Budget Meets Beautiful TikTok BGs</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-zippy-zeal-in-zoom-outs-adding-text-movement-on-stories/"><u>In 2024, Zippy Zeal in Zoom-Outs Adding Text Movement on Stories</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/shop-the-final-sale-on-oculus-quest-2-grab-yours-at-just-199/"><u>Shop the Final Sale on Oculus Quest 2 - Grab Yours at Just $199!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unrivaled-sonic-union-for-speakers/"><u>Unrivaled Sonic Union for Speakers</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1728496921515-windows-11-ssd/"><u>Windows 11 SSDへの移植手順 - 再インストール不要</u></a></li>
 </ul></div>
 

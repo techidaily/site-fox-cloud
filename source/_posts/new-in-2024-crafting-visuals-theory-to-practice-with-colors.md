@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Visuals  Theory to Practice with Colors\""
-date: 2024-10-21T18:15:07.092Z
-updated: 2024-10-26T19:02:41.677Z
+date: 2024-10-28T00:40:33.575Z
+updated: 2024-11-01T02:35:10.688Z
 tags: 
   - screen-recording
   - ai video
@@ -33,33 +33,33 @@ Color theory consists of many elements that could fill a library on its own but 
 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Color Wheel
 
 Using red, green and blue as primary colors we can mix the colors to one another to get our secondary colors giving us yellow, magenta and cyan. We can mix these to one another to create our tertiary colors which are raspberry, orange, sprig green, turquoise, ocean and violet giving us something which looks like this
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
@@ -69,18 +69,18 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
@@ -88,14 +88,14 @@ As you can see from this example the base color for the scene is a dark blue/pur
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -131,21 +131,19 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-hidden-gems-top-tips-for-savvy-users/"><u>[New] 2024 Approved Instagram Hidden Gems Top Tips for Savvy Users</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-harnessing-the-power-of-quality-photography-without-a-price-tag/"><u>[New] Harnessing the Power of Quality Photography Without a Price Tag</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-creating-masterpiece-canon-chrono-films/"><u>[New] In 2024, Creating Masterpiece Canon Chrono Films</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-leveraging-interactivity-elevate-your-online-stream-presence/"><u>[New] Leveraging Interactivity Elevate Your Online Stream Presence</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-master-multitask-media-with-ease-expertly-using-netflixs-picture-in-picture-feature/"><u>[Updated] 2024 Approved Master Multitask Media with Ease Expertly Using Netflix’s Picture-In-Picture Feature</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-humor-hub-picture-composer/"><u>[Updated] Humor Hub Picture Composer</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-how-does-apples-m1-compare-to-traditional-editing-workstations/"><u>[Updated] In 2024, How Does Apple’s M1 Compare to Traditional Editing Workstations?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-laughterlink-join-now-and-start-your-journey/"><u>2024 Approved LaughterLink Join Now & Start Your Journey</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-pick-hilarious-tone-downloads-online/"><u>2024 Approved Top Pick Hilarious Tone Downloads Online</u></a></li>
-<li><a href="https://video-capture.techidaily.com/az-record-pro-detailed-app-analyses-and-backup-choices-for-2024/"><u>AZ Record Pro Detailed App Analyses & Backup Choices for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/free-avi-video-editor-reviews-our-top-picks/"><u>Free AVI Video Editor Reviews Our Top Picks</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-asus-rog-phone-8-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Asus ROG Phone 8 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionary-10k-ai-and-3d-printing-enhance-your-cpu-cooling-efficiency-with-a-nitrogen-based-liquid-container/"><u>Revolutionary $10K AI & 3D Printing: Enhance Your CPU Cooling Efficiency with a Nitrogen-Based Liquid Container</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/tackling-the-issue-of-svchostexe-overuse-insights-into-netsvcs-functionality-and-methods-for-reducing-bandwidth-waste/"><u>Tackling the Issue of svchost.exe Overuse: Insights Into Netsvcs Functionality & Methods for Reducing Bandwidth Waste</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/top-editors-for-action-cam-footage-for-2024/"><u>Top Editors for Action Cam Footage for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unveiling-the-best-voice-alteration-programs-for-vtubers-for-2024/"><u>Unveiling the Best Voice Alteration Programs for VTubers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-overlay-solutions-for-your-videos-for-2024/"><u>[New] Best Overlay Solutions for Your Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-exploring-video-platform-differences-twitch-vs-youtube/"><u>[New] Exploring Video Platform Differences Twitch Vs YouTube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-virtual-expansion-top-7-gear-choices-for-metavisionaries/"><u>[New] In 2024, Virtual Expansion Top 7 Gear Choices for Metavisionaries</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-latest-leap-in-tech-samsungs-ultrablade-k850-update/"><u>[New] Latest Leap in Tech - Samsung's UltraBlade K850 Update</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-enhancing-user-engagement-through-fb-slideshows/"><u>[Updated] 2024 Approved Enhancing User Engagement Through FB Slideshows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-inside-out-the-100-complete-theta-s-study/"><u>[Updated] 2024 Approved Inside Out The 100% Complete Theta S Study</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-30-innovative-ideas-to-supercharge-your-fb-promotions-for-2024/"><u>[Updated] 30 Innovative Ideas to Supercharge Your FB Promotions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-treasure-trove-guide-to-public-domain-images-for-2024/"><u>[Updated] A Treasure Trove Guide to Public Domain Images for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-a-beginners-guide-to-mastering-windows-11-movie-maker-effortlessly/"><u>[Updated] In 2024, A Beginner’s Guide to Mastering Windows 11 Movie Maker Effortlessly</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/movavi-flvmp4/"><u>「Movavi - FLVからMP4への完全無料でシームレスなオンライン変換サービス」</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-best-video-trailer-design-software-for-mac-and-pc-2023-update/"><u>New In 2024, The Best Video Trailer Design Software for Mac and PC (2023 Update)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-role-of-extras-in-creating-dynamic-storytelling/"><u>The Role of Extras in Creating Dynamic Storytelling</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-laptop-battery-why-your-device-wont-charge-in-windows-operating-systems/"><u>Troubleshooting Laptop Battery: Why Your Device Won't Charge in Windows Operating Systems</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Xiaomi Redmi K70? | Dr.fone</u></a></li>
 </ul></div>
 

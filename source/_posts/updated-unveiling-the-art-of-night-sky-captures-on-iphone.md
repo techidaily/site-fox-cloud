@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unveiling the Art of Night Sky Captures on iPhone"
-date: 2024-10-23T18:37:22.523Z
-updated: 2024-10-26T20:18:44.274Z
+date: 2024-10-31T15:00:27.658Z
+updated: 2024-11-01T09:24:36.140Z
 tags: 
   - screen-recording
   - ai video
@@ -43,16 +43,10 @@ thumbnail: https://thmb.techidaily.com/3dd5b17c533ab88ed9cc0f3b00c7a2aa3b7c864b4
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Users on iOS 11
@@ -61,6 +55,19 @@ thumbnail: https://thmb.techidaily.com/3dd5b17c533ab88ed9cc0f3b00c7a2aa3b7c864b4
 
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image resource: imore
 
  Next, take a live photo. This is a moving image, a bit like recording with your video camera, but much shorter. Try to keep the iPhone steady as you take your shot, and choose to shoot something that is continually moving, but with a relatively stable background. Something like cars going down a street is a great place to start.
@@ -68,22 +75,15 @@ thumbnail: https://thmb.techidaily.com/3dd5b17c533ab88ed9cc0f3b00c7a2aa3b7c864b4
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image resource: iPhoneMod
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Not a user of iOS 11?
 
@@ -103,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/3dd5b17c533ab88ed9cc0f3b00c7a2aa3b7c864b4
 * **Photograph moving objects:** Your Live Photo will translate better into a long exposure shot if you have something obviously moving in the image. Having a moving object against stationery surrounds works really well.
 
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What should you capture with your long exposure iPhone shots?
 
@@ -136,6 +129,13 @@ thumbnail: https://thmb.techidaily.com/3dd5b17c533ab88ed9cc0f3b00c7a2aa3b7c864b4
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
 
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image resource: Nikonites
 
@@ -174,20 +174,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-premium-nintendo-switch-combat-series-list-max-156/"><u>[New] 2024 Approved Premium Nintendo Switch Combat Series List (Max 156)</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-streaming-console-adventures-pc-setup-and-methods/"><u>[New] In 2024, Streaming Console Adventures PC Setup and Methods</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-tiny-tranquil-houses-japanese-style/"><u>[New] In 2024, Tiny Tranquil Houses Japanese Style</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-androidiphones-ultimate-arvr-game-list/"><u>2024 Approved Android/iPhone's Ultimate AR/VR Game List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-artistry-in-your-pocket-the-bestiary-of-top-8-iphone-drawing-apps/"><u>2024 Approved Artistry in Your Pocket The Bestiary of Top 8 iPhone Drawing Apps</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-mastering-ifunny-meme-downloads-and-fun/"><u>2024 Approved Mastering iFunny Meme Downloads & Fun</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-image-hoarders-destination-list/"><u>2024 Approved Prime Image Hoarders' Destination List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-vhs-illusions-to-enhance-film-projects/"><u>2024 Approved Prime VHS Illusions to Enhance Film Projects</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-social-splendor-leading-story-filter-hits/"><u>2024 Approved Social Splendor Leading Story Filter Hits</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-watchers-whispers-essential-websites-for-got-sound-files/"><u>2024 Approved The Watchers' Whispers Essential Websites for GoT Sound Files</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-turn-off-audio-boosting-features-on-windows-10/"><u>How to Turn Off Audio Boosting Features on Windows 10</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On HTC U23 Pro? | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-unlock-your-movies-at-no-cost-on-various-oses/"><u>In 2024, Unlock Your Movies at No Cost on Various OSes</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/simple-steps-effective-methods-for-saving-your-office-365-emails/"><u>Simple Steps: Effective Methods for Saving Your Office 365 Emails</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/strategizing-success-imperator-romes-tale-of-empires-won-or-lost/"><u>Strategizing Success: Imperator: Rome’s Tale of Empires Won or Lost</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-no-money-down-for-vfx-wizards-exclusive-video-tutorials-on-free-green-screen-techniques-from-top-channels/"><u>[New] 2024 Approved No Money Down for VFX Wizards Exclusive Video Tutorials on Free Green Screen Techniques From Top Channels</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-overview-and-assessment-parrots-advanced-edition/"><u>[New] 2024 Approved Overview and Assessment - Parrot's Advanced Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unveiling-hidden-secrets-for-advanced-win10-users/"><u>[New] 2024 Approved Unveiling Hidden Secrets for Advanced Win10 Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-bring-life-and-movement-to-stills-with-illustrator-techniques/"><u>[New] In 2024, Bring Life & Movement to Stills with Illustrator Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elevate-your-chat-game-whatsapps-best-kept-secrets/"><u>[New] In 2024, Elevate Your Chat Game WhatsApp's Best-Kept Secrets</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-superior-frame-rate-in-languid-videos/"><u>[New] In 2024, Superior Frame Rate in Languid Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-revolutionize-with-a-stroke-premier-tablet-draw-tools/"><u>[New] Revolutionize with a Stroke Premier Tablet Draw Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-become-a-social-media-sensation-top-9-tips-for-instagram-stardom/"><u>[Updated] In 2024, Become a Social Media Sensation Top 9 Tips for Instagram Stardom</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-reversing-os-update-on-macs-back-to-el-capitan-for-2024/"><u>[Updated] Reversing OS Update on Macs Back to El Capitan for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ce-visibility-top-9-thumbnail-design-tools-for-creators-for-2024/"><u>Enhance Visibility Top 9 Thumbnail Design Tools for Creators for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-resolve-skyline-city-building-freezes-in-simcity-buildit-on-windows/"><u>How to Resolve Skyline City Building Freezes in SimCity BuildIt on Windows</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-merging-youtube-soundtracks-to-cinematic-scenes/"><u>In 2024, Merging YouTube Soundtracks to Cinematic Scenes</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-huawei-nova-y71-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/uncover-the-future-leading-innovations-in-vr-handwear-for-2024/"><u>Uncover the Future Leading Innovations in VR Handwear for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-camtasia-tutorial-change-video-speed-and-pitch-for-2024/"><u>Updated Camtasia Tutorial Change Video Speed and Pitch for 2024</u></a></li>
 </ul></div>
 

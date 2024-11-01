@@ -1,7 +1,7 @@
 ---
 title: "Freezing Fun at the Beijing Olympics 2022"
-date: 2024-10-20T20:00:36.368Z
-updated: 2024-10-26T20:10:58.583Z
+date: 2024-10-28T12:11:54.124Z
+updated: 2024-11-01T08:47:05.390Z
 tags: 
   - screen-recording
   - ai video
@@ -29,19 +29,6 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
 
 American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowboard cross at Beijing Winter Olympics. She broke the deadlock for the United States at Winter Olympics by giving her country the first gold. In fact, Lindsey Jacobellis had to wait 16 years to wind her maiden gold at the Olympics.
@@ -56,13 +43,20 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-breaks-world-record.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
@@ -73,26 +67,40 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Van der Poel Breaks the World Record
 
 Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year-old Swede started strongly and crossed the finish line in 12 minutes 30.74 seconds to set the world record. His victory also made Sweden taste an Olympic medal after 1988\. The victory also made him the tenth man to win both the 10,000 races and 5,000 races in the same event. It is also the largest Olympic victory as he triumphed the record set by Johan Olav Kloss in 1994 by 18.70 seconds.
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
 
@@ -110,13 +118,6 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
@@ -124,13 +125,6 @@ With the triumph, she joins Shaun White to be the only snowboarders to successfu
 We are all aware of the tensions between Ukraine and Russia are at their peak and there are many experts who believe the countries are on the verge of declaring war. Even though The Winter Olympics should have ideally been an apolitical event, Ukrainian skeleton athlete Vladyslav Heraskevych flashed a sign that read “No War in Ukraine” to spark a political controversy.
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
@@ -141,26 +135,26 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
 
 Doping scandals have become a part of the Olympics and this year is no different. According to International Testing Agency, Russian skater Kamila Valieva failed the doping test. On further examination, she tested positive for a performance-enhancing banned substance. She was told that she could not train, compete and participate during the Olympic Winter Games.
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
@@ -183,19 +177,21 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-rhythm-and-resolution-edit-and-merge-songs-into-windows-11-vids/"><u>[New] Rhythm & Resolution Edit and Merge Songs Into Windows 11 Vids</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-from-novice-to-pro-mastering-the-art-of-editing-via-polarr-for-2024/"><u>[Updated] From Novice to Pro Mastering the Art of Editing via Polarr for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-ultimate-workstations-your-tech-dreams-realized/"><u>2024 Approved Ultimate Workstations - Your Tech Dreams Realized</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/5-key-strategies-to-correct-iphone-hdri-premiere-pro-edition-for-2024/"><u>5 Key Strategies to Correct iPhone HDRI Premiere Pro Edition for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/a-critical-look-at-sns-hdrs-potential-and-alternatives/"><u>A Critical Look at SNS HDR's Potential & Alternatives</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/advancing-beyond-vp9-a-look-at-av1/"><u>Advancing Beyond VP9 A Look at AV1</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/astrological-flair-in-digital-self-portrayals-on-whatsapp/"><u>Astrological Flair in Digital Self-Portrayals on WhatsApp</u></a></li>
-<li><a href="https://win-blog.techidaily.com/beat-the-new-world-connection-error-with-these-proven-strategies/"><u>Beat the 'New World Connection Error' With These Proven Strategies</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/beheben-sie-bsod-probleme-mit-dem-windows-server-2022-funf-effektive-methoden-im-jahr-2024/"><u>Beheben Sie BSOD-Probleme Mit Dem Windows Server 2022: Fünf Effektive Methoden Im Jahr 2024</u></a></li>
-<li><a href="https://fox-within.techidaily.com/discover-the-ultimate-free-downloads-a-list-of-top-10-software-sources-online/"><u>Discover the Ultimate Free Downloads: A List of Top 10 Software Sources Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/enter-the-virtual-domain-facebooks-pathway-to-metaverse/"><u>Enter the Virtual Domain: Facebook's Pathway to Metaverse</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-next-generation-of-vr-innovations-reviewed/"><u>In 2024, The Next Generation of VR Innovations Reviewed</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/step-by-step-tutorial-implementing-a-usb-flash-drive-antivirus-solution/"><u>Step-by-Step Tutorial: Implementing a USB Flash Drive Antivirus Solution</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-blueprint-for-channel-empowerment-via-studio-mastery-for-2024/"><u>The Blueprint for Channel Empowerment via Studio Mastery for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-of-the-best-select-photovideo-makers-with-musical-accents/"><u>[New] Best of the Best Select Photo/Video Makers with Musical Accents</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-elite-applications-facilitating-video-discussions/"><u>[New] Elite Applications Facilitating Video Discussions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-vanguard-visions-ultimate-laptop-choices-for-uhd-content-creators-for-2024/"><u>[New] Vanguard Visions Ultimate Laptop Choices for UHD Content Creators for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-enhancing-video-content-through-effective-use-of-cardsannotations/"><u>[Updated] 2024 Approved Enhancing Video Content Through Effective Use of Cards/Annotations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-smart-screenshot-assembly-leading-androidiphone-montage-aids/"><u>[Updated] 2024 Approved Smart Screenshot Assembly Leading Android/iPhone Montage Aids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-htcs-masterstroke-in-immersive-technology-a-deep-dive-into-vive-for-2024/"><u>[Updated] HTC's Masterstroke in Immersive Technology - A Deep Dive Into Vive for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-prime-video-game-editors-simplified-top-picks-for-newbies/"><u>[Updated] In 2024, Prime Video Game Editors Simplified Top Picks for Newbies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-simplify-aquatic-footage-7-key-shooting-strategies/"><u>[Updated] In 2024, Simplify Aquatic Footage 7 Key Shooting Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-make-every-frame-count-a-list-of-the-hottest-50-video-reducing-apps-for-your-phone-for-2024/"><u>[Updated] Make Every Frame Count A List of the Hottest 50 Video-Reducing Apps for Your Phone for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-ultimate-chrome-selection-5-pioneers-in-fb-video-download-for-2024/"><u>[Updated] The Ultimate Chrome Selection 5 Pioneers in FB Video Download for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-mastering-video-content-for-youtube-success/"><u>2024 Approved Mastering Video Content for YouTube Success</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-recommended-asmrists-for-nighttime-calmness/"><u>2024 Approved Top Recommended ASMRists for Nighttime Calmness</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discovering-the-shadowy-depths-in-our-comprehensive-bloodborne-review/"><u>Discovering the Shadowy Depths in Our Comprehensive Bloodborne Review</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-initiating-a-join-in-google-meet-through-computermobile/"><u>In 2024, Initiating a Join in Google Meet Through Computer/Mobile</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-step-by-step-to-mastering-adobes-cloud-storage-capabilities-and-options/"><u>In 2024, Step-by-Step to Mastering Adobe's Cloud Storage Capabilities & Options</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/turbocharging-your-journey-10-must-have-srt-converters-for-2024/"><u>Turbocharging Your Journey 10 Must-Have SRT Converters for 2024</u></a></li>
 </ul></div>
 

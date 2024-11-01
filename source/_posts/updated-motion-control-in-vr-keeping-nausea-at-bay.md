@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Motion Control in VR  Keeping Nausea at Bay\""
-date: 2024-10-20T16:07:17.793Z
-updated: 2024-10-26T18:18:47.092Z
+date: 2024-10-31T00:47:57.922Z
+updated: 2024-10-31T22:30:59.793Z
 tags: 
   - screen-recording
   - ai video
@@ -36,10 +36,10 @@ thumbnail: https://thmb.techidaily.com/aaeee5a2f3c8b68771aea3a6cb049a51985742ce0
  HTC Vive is aiming at giving its customers the virtual reality experience so real and sick-free that they can fully have fun with the technology and make their money and time spent well. In spite of improvements to game technology in recent years, HTC is focusing heavily these days on making sure users feel correctly oriented. HTC is also at work on boosting the frame rate to match with the body movements and to clear up that nausea-inducing mismatch. The game developers are coming up with a variety of solutions to solve the problem, or at least minimize it. A new technology introduced by the Mayo Clinic is a good hope for HTC Vive to bring its headsets to a whole new level. The hospital has developed algorithms that, when paired with galvanic vestibular stimulation (GVS), can trick the brain into syncing what you're seeing in VR with physical stimulation within a tenth of a second.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8 Tips to reduce motion sickness
@@ -60,10 +60,10 @@ thumbnail: https://thmb.techidaily.com/aaeee5a2f3c8b68771aea3a6cb049a51985742ce0
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -91,14 +91,16 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/2024-approved-meme-ing-in-virtual-space-top-funny-vr-imagery-and-how-to-make-it/"><u>2024 Approved Meme-Ing in Virtual Space Top Funny VR Imagery and How to Make It</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-pick-composition-tools-for-iphone-best-free-apps-reviewed/"><u>2024 Approved Top Pick Composition Tools for iPhone Best Free Apps Reviewed</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-transforming-images-with-ease-learn-snapseed-today/"><u>2024 Approved Transforming Images with Ease Learn Snapseed Today</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-unlocking-the-palette-of-possibilities-with-downloadable-spark-ar-luts/"><u>2024 Approved Unlocking the Palette of Possibilities with Downloadable Spark AR LUTs</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-virtual-frontier-top-pc-vr-headset-innovations-of-the-year/"><u>2024 Approved Virtual Frontier Top PC VR Headset Innovations of the Year</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/advanced-guide-to-using-luts-for-professional-image-editors/"><u>Advanced Guide to Using LUTs for Professional Image Editors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-perfect-youtube-music-playlists-via-web-and-mobile-platforms/"><u>Crafting Perfect YouTube Music Playlists via Web & Mobile Platforms</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/efficient-methods-for-recording-minecraft-sessions/"><u>Efficient Methods for Recording Minecraft Sessions</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-apple-iphone-11-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your Apple iPhone 11 Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-youtube-subscriber-awards-the-play-button-awards-for-creators/"><u>[New] In 2024, YouTube Subscriber Awards The Play Button Awards for Creators</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-impact-and-value-of-instagrams-self-verifying-feature/"><u>[New] The Impact and Value of Instagram's Self-Verifying Feature</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-spiritual-soundtracks-finding-and-tuning-for-ringtones/"><u>[Updated] 2024 Approved Spiritual Soundtracks Finding & Tuning for Ringtones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-audio-layers-for-professional-videography-premiere-pro-edition/"><u>[Updated] Audio Layers for Professional Videography Premiere Pro Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-newbies-manual-to-vector-art-grasping-different-kinds-and-software-for-2024/"><u>[Updated] Newbie’s Manual to Vector Art Grasping Different Kinds & Software for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-seamless-srt-and-mp4-fusion-the-ultimate-guide/"><u>[Updated] Seamless SRT & MP4 Fusion – The Ultimate Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-your-workflow-with-plugables-usb-c-to-hdmi-docking-station-a-must-have-for-windows-enthusiasts/"><u>Boost Your Workflow with Plugable's USB-C to HDMI Docking Station - A Must-Have for Windows Enthusiasts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/can-you-create-and-run-several-youtube-channels-at-once/"><u>Can You Create and Run Several YouTube Channels at Once?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/capturing-impactful-voice-top-tips-for-podcasting-interviews-on-idevices-for-2024/"><u>Capturing Impactful Voice Top Tips for Podcasting Interviews on iDevices for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-realme-11-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Realme 11 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-fixes-to-bypass-rainbow-six-sieges-error-code-3-0001000b/"><u>Step-by-Step Fixes to Bypass Rainbow Six Siege's Error Code 3-^0001000B</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Winter Wonderland in Beijing, Olympic Year 2022"
-date: 2024-10-24T19:47:55.288Z
-updated: 2024-10-26T18:54:17.944Z
+date: 2024-10-25T20:46:11.289Z
+updated: 2024-11-01T09:32:16.747Z
 tags: 
   - screen-recording
   - ai video
@@ -29,26 +29,26 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
 
 American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowboard cross at Beijing Winter Olympics. She broke the deadlock for the United States at Winter Olympics by giving her country the first gold. In fact, Lindsey Jacobellis had to wait 16 years to wind her maiden gold at the Olympics.
 
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Nathan Chen Breaks World Record
@@ -57,14 +57,14 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-breaks-world-record.jpg)
 
-Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
@@ -73,19 +73,19 @@ Injuries are part of sports events but some injuries are gruesome and are result
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
@@ -93,13 +93,6 @@ She lost her balance before she could cross the finishing line and she slid acro
 Born in America, Eileen Gu represented China at Winter Olympics and managed to win the gold medal in the inaugural freeski big air event. Therefore, she will go down in the history as the first woman to win the gold medal for freeski big air event. She stunned everyone by completing two off-axis rotations in the air.
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
@@ -117,6 +110,13 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
@@ -126,10 +126,10 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
@@ -177,22 +177,20 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-all-about-youtube-micro-videos-for-2024/"><u>[New] All About YouTube Micro Videos for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-boosting-collaboration-essential-zoom-video-alterations/"><u>[New] Boosting Collaboration Essential Zoom Video Alterations</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-become-a-headline-hero-proven-strategies-in-focus/"><u>[New] In 2024, Become a Headline Hero Proven Strategies in Focus</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-setup-and-strategies-for-youtube-gamers-live-sessions/"><u>[New] In 2024, Setup and Strategies for YouTube Gamers' Live Sessions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-browsing-boredom-away-15-chuckle-inducing-youtubers/"><u>[Updated] Browsing Boredom Away 15 Chuckle-Inducing YouTubers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-8-best-multiple-video-call-and-chat-tools-for-conference-and-friends/"><u>2024 Approved 8 Best Multiple Video Call & Chat Tools for Conference and Friends</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-beyond-ustream-a-comparative-analysis-of-streams/"><u>2024 Approved Beyond Ustream A Comparative Analysis of Streams</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-curving-images-without-complication-a-guide/"><u>2024 Approved Curving Images without Complication A Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-cyber-cracked-joke-creator/"><u>2024 Approved Cyber Cracked Joke Creator</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-into-the-abyss-and-beyond-shadowbearer-vs-daybeam/"><u>2024 Approved Into the Abyss and Beyond Shadowbearer Vs Daybeam</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigating-dual-display-the-netflix-floating-window-guide/"><u>2024 Approved Navigating Dual Display The Netflix Floating Window Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-popular-imagery-origins-decoded/"><u>2024 Approved Popular Imagery Origins Decoded</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-explorations-in-top-livestream-websites/"><u>2024 Approved Prime Explorations in Top Livestream Websites</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-seamlessly-weaving-melodies-using-audacitys-features/"><u>2024 Approved Seamlessly Weaving Melodies Using Audacity's Features</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-xr-with-imei-code-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone XR with IMEI Code?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-to-updating-and-downloading-the-newest-epson-ds-510-printer-software-for-windows-users/"><u>Step by Step Guide to Updating and Downloading the Newest Epson DS-510 Printer Software for Windows Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/aptivate-masses-social-media-strategies-for-youtube-for-2024/"><u>[New] Captivate Masses Social Media Strategies for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-tailoring-your-youtube-video-introduction-perfectly/"><u>[New] In 2024, Tailoring Your YouTube Video Introduction Perfectly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-integrating-linktree-in-your-tiktok-bio-for-maximum-impact-for-2024/"><u>[New] Integrating Linktree in Your TikTok Bio for Maximum Impact for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-secure-storage-system-5-ways-to-upload-files/"><u>[New] Secure Storage System 5 Ways to Upload Files</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-discover-the-best-5-sd-cards-for-gopro-hero-8-and-7/"><u>[Updated] 2024 Approved Discover the Best 5 SD Cards for GoPro Hero 8 and 7</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-photo-vid-mosaic-designer-slideshows-for-sierra/"><u>[Updated] 2024 Approved Photo-Vid Mosaic Designer Slideshows for Sierra</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-grasping-virtual-realitys-revolutionary-gear/"><u>[Updated] Grasping Virtual Reality's Revolutionary Gear</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-silence-by-design-techniques-for-gradually-dimming-soundtracks-in-premiere-pro/"><u>[Updated] In 2024, Silence by Design Techniques for Gradually Dimming Soundtracks in Premiere Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-prime-methods-transforming-pin-videos-to-mp3-format/"><u>[Updated] Prime Methods Transforming Pin Videos To MP3 Format</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-streaming-into-the-future-a-review/"><u>2024 Approved Streaming Into the Future A Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/adaptation-and-advancement-essential-techniques-to-excel-with-ai-transformation-in-the-workplace/"><u>Adaptation & Advancement: Essential Techniques to Excel with AI Transformation in the Workplace</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/exploring-the-virtual-frontier-googles-cardboard-meets-samsung-gear-for-2024/"><u>Exploring the Virtual Frontier Google's Cardboard Meets Samsung Gear for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-streamlining-access-to-subscriber-information/"><u>In 2024, Streamlining Access to Subscriber Information</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-impact-of-vector-databases-on-advancing-ai-technology/"><u>The Impact of Vector Databases on Advancing AI Technology</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-verdict-on-xbox-one-x-leading-force-in-todays-gaming-consoles/"><u>Ultimate Verdict on Xbox One X: Leading Force in Today's Gaming Consoles</u></a></li>
 </ul></div>
 

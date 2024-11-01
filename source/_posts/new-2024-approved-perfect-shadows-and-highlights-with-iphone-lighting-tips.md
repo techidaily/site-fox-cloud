@@ -1,0 +1,186 @@
+---
+title: "\"[New] 2024 Approved  Perfect Shadows & Highlights with IPhone Lighting Tips\""
+date: 2024-10-25T14:12:09.275Z
+updated: 2024-11-01T01:57:50.086Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] 2024 Approved: Perfect Shadows & Highlights with IPhone Lighting Tips\""
+excerpt: "\"This Article Describes [New] 2024 Approved: Perfect Shadows & Highlights with IPhone Lighting Tips\""
+keywords: "IPhone Shadow Control,IPhone Hightlight Techniques,Perfect iPhone Illumination,IPhone Lighting Advice,Balanced iPhone Highlights,IPhone Soft Shadows Tips,IPhone Proper Shading Methods"
+thumbnail: https://thmb.techidaily.com/dce6bc9a112b3f049356452f785b8eb72027385ba75d849bd9c5cf60929a80d0.png
+---
+
+## Perfect Shadows & Highlights with IPhone Lighting Tips
+
+# iPhone Photography Lighting Tips
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+Photography derives its name from two ancient Greek words, photos, which means light and graphé which means drawing, so in its original sense to snap a photo of something is actually the act of drawing with light. How we use the light on our pictures is what makes these images unique and different from others, which is the reason why it is important to know which types of natural and artificial lights can help you improve the quality of your iPhone photos.
+
+Being a photographer means that you must be able to use light to your own advantage and play with it to get better results, so in this article we are going to take you through a lot of different types of light and we are going to provide you with useful tips on how to use light in your photos.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## iPhone Photography Lighting Tips
+
+* [Part 1: Tips for Outdoor iPhone Photographers](#part1)
+* [Part 2: Tips for Indoor iPhone Photography Sessions](#part2)
+
+### Tips for Outdoor iPhone Photographers
+
+**1\. Golden hour:** Diffused light is much more pleasant for taking photos and the softest natural light can be found during the sunrise and sunset. The hour before the sun sets or rises is called the golden hour and it is one of the best times of the day for photography in terms of the quality of light that is available. Colors on photos taken during the golden hour appear warm and pictures have a lot of red, yellow or orange due to the low position of the sun on the horizon. Sunrise and sunset are also a perfect time of the day to capture silhouette photos or breathtaking landscapes.
+
+![golden-hour-photo](https://images.wondershare.com/filmora/article-images/golden-hour-photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Image resource: Constractly
+
+Anyone who has seen a photo of a sunset knows how light during the golden hour looks like, but being able to capture such beautiful light requires you to use your iPhone as a photo camera frequently. If you constantly take pictures early in the morning or just before sunset you'll be able to take your iPhone photography a step further.
+
+**2\. Blue hour:** Around half an hour before the night ends or after the sunset there is still enough light to shoot amazing photos. During that narrow period of time, you can create stunning city vistas because the artificial light of metropolises creates a contrast to the sky in the background. The light during the blue hour is colder, which is why photos taken during the period tend to have more blues and greens.
+
+![blue-hour-photography](https://images.wondershare.com/filmora/article-images/blue-hour-photography.jpg)
+
+Holding your phone in your hand while taking pictures during the blue hour may result in blurry photos because you have to set longer exposures in order to ensure your camera is getting enough light. Placing your iPhone on a tripod or on a surface on which it will be perfectly stable, will enable you to produce razor-sharp images with a lot of blue hour light.
+
+**3\. Midday:** One hour before and after the noon and the Sun is at its highest point, which means that during this period of the day it provides the most light. The type of light the Sun produces at this time of the day is called direct light, that is much less diffused than the light in the morning. Even though there is enough light to take pictures while holding your iPhone, too much light can also create problems if you are using automatic settings.
+
+![midday-lighting](https://images.wondershare.com/filmora/article-images/midday-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Image resource: flickr
+
+The abundance of light puts you at risk of overexposing parts of your photo, and for that reason it is better to set the ISO, Aperture and Exposure values manually, using some of the iOS apps that enable you to control your iPhone camera settings. The direct light produces a strong contrast between light and shadow, that can create a great rhythm on a photo.
+
+**4\. Cloudy sky:** Clouds can be photographer's best friend and his or her's worst enemy. A cloudy gray sky generates all sorts of problems to cameras because it is often much brighter than the rest of the scene. On the other hand, a blue sky with fluffy white clouds looks like the perfect background for a photo. This is a great example of how much outdoor photography depends on good weather conditions.
+
+![cloudy-sky-lighting](https://images.wondershare.com/filmora/article-images/cloudy-sky-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Image resource: Digital Photo Secrets
+
+Cloudy gray days allow you to take better black and white photos because the scenes you can take photos of, don't have too much color. Monochrome photos are easier to take because unlike with color photos you only have to work with blacks and whites.
+
+Color photos of a cloudy sky look better if the sky is clear and there are only a few cloud formations in the shot, and if you want to take photos of clouds you just have to be careful not to use zoom too much.
+
+**5\. Mist and Fog:** Mist or fog has a tendency to diffuse light which makes the light more pleasant to the human eye, but the reduced visibility complicates taking pictures for a number of reasons. A great photo always depends on a good moment, so in order to make good use of mist, you have to be at a right location and at a right time. Early morning is the best time to experiment with light softened by fog because usually there is enough light so you can capture sunbeams as they fall on the scene before you.
+
+![mist-fog-lighting](https://images.wondershare.com/filmora/article-images/mist-fog-lighting.jpg)
+
+Image resource: Digital Photo Secrets
+
+As rewarding as they may be, mist creates a lot of problems for iPhone photographers, because finding a focus point is more difficult than it is under normal light conditions. The light you can capture through the mist is truly magical, but it is often difficult to come across this type of light.
+
+**6\. Backlight:** Commonly, photos receive most of the light from the light that falls from the front, but when the light falls from the back of the photo's subject that means that the picture is backlit. The best example of the backlit photo is a silhouette photo, because most of the light in the photo comes from the source located behind the subject of a photo, thus making it possible to create a silhouette of a figure.
+
+![get-silhoutte-photo](https://images.wondershare.com/filmora/article-images/get-silhoutte-photo.jpg)
+
+Image resource: Google
+
+All you need to do in order to capitalize on backlight is to place the subject of the photo between the iPhone camera and a source of light. The light that's coming directly towards camera will force you to reduce the camera's exposure, which will create a dark figure on your photo. If you want to take great backlit photos, you need to learn how to use sources of light you have at your disposal. Use anything you can find, shop windows, street lamps or anything else that can help you take a better photo.
+
+**7\. Artificial light at night:** Long exposure photography is an art that takes time to master, but being patient and willing to learn all its tricks will improve your photo taking skills. Using an artificial light at night can help you avoid using flash or tripods while taking photos with an iPhone. Even if there is a lot of artificial light in the scene you want to photograph, the stability of your camera should be your main concern because even the smallest camera shake can easily blur the photo.
+
+![artificial-light-outdoor](https://images.wondershare.com/filmora/article-images/artificial-light-outdoor.jpg)
+
+Image resource: Efram Goldberg Photography
+
+Rain creates reflections of artificial light on the streets at night, which is why if you like night photography, taking pictures at night after the rain is one of the best times for long exposure pictures. iPhones can capture amazing night shots, but they do need additional photo equipment to achieve their best results.
+
+### Watch Video! Tips for Taking Photos on iPhone in Different Lighting
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Tips for Indoor iPhone Photography Sessions
+
+Indoor photography often includes the use of artificial light, but during the day iPhone photographers can also take advantage of the light that comes through the windows. The light that falls at an angle produces shadows that add a sense of depth to the photo, thus creating an opportunity to take an artistic photo indoors.
+
+![artificial-light](https://images.wondershare.com/filmora/article-images/artificial-light.jpg)
+
+However, artificial sources of light are usually a better option if you want to take interior photos since the natural sources of light are scarce and unreliable. Using a flash on your iPhone is also an option but its strong light will completely change the light setting of the scene.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-4k-uxga-reality-check-detailed-review-of-asus-mg28uq/"><u>[New] 2024 Approved 4K UXGA Reality Check - Detailed Review of ASUS MG28UQ</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-6-proven-techniques-to-elevate-your-youtube-engagement-and-reduce-churn/"><u>[New] 2024 Approved 6 Proven Techniques to Elevate Your YouTube Engagement and Reduce Churn</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-how-to-expertly-record-and-save-your-favorite-hulu-shows/"><u>[New] 2024 Approved How To Expertly Record and Save Your Favorite Hulu Shows</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-professional-edge-with-free-best-premiere-pro-resources/"><u>[New] 2024 Approved Professional Edge with FREE, Best Premiere Pro Resources</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-frames-to-fun-youtube-gifs-creation-made-simple/"><u>[New] From Frames to Fun YouTube GIFs Creation Made Simple</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-explore-new-horizons-in-video-editing-software/"><u>[New] In 2024, Explore New Horizons in Video Editing Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-leveraging-the-power-of-movie-maker-in-windows-8-for-professional-results/"><u>[New] Leveraging the Power of Movie Maker in Windows 8 for Professional Results</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-mobile-editing-hacks-for-visual-storytelling-for-2024/"><u>[New] Mobile Editing Hacks for Visual Storytelling for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-in-depth-look-at-adobes-cloud-and-comparable-services/"><u>[Updated] 2024 Approved In-Depth Look at Adobe's Cloud & Comparable Services</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-pictures-worth-a-thousand-dollars-online-top-photo-cloud-services-reviewed/"><u>[Updated] A Picture's Worth a Thousand Dollars Online Top Photo Cloud Services Reviewed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-lean-cloud-archive-efficient-low-cost-large-data/"><u>[Updated] Lean Cloud Archive Efficient, Low-Cost Large Data</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-respecting-copyrights-when-converting-youtube-to-mp4-for-2024/"><u>[Updated] Respecting Copyrights When Converting YouTube to MP4 for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-stepwise-strategies-building-a-playlist-on-youtube/"><u>2024 Approved Stepwise Strategies Building a Playlist on YouTube</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/adjusting-buffer-rates-to-minimize-lag-with-vlc/"><u>Adjusting Buffer Rates to Minimize Lag with VLC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-gif-storage-and-use-in-the-digital-age-iphone/"><u>In 2024, Navigating GIF Storage and Use in the Digital Age (iPhone)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-unlocking-spotify-promotion-potential/"><u>In 2024, Unlocking Spotify Promotion Potential</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-virtual-sphere-access-the-leading-10-pc-vr-playback-titles/"><u>In 2024, Virtual Sphere Access The Leading 10 PC VR Playback Titles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-average-incomes-in-the-podcasting-industry-for-2024/"><u>Navigating Average Incomes in the Podcasting Industry for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210703476-9798987098127-vision-walk/"><u>Vision Walk | Free Book</u></a></li>
+</ul></div>
+
