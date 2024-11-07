@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Background Excision Tool Affinity Photo"
-date: 2024-10-29T01:17:08.791Z
-updated: 2024-10-31T23:41:10.272Z
+date: 2024-10-31T16:26:06.513Z
+updated: 2024-11-07T08:32:44.227Z
 tags: 
   - screen-recording
   - ai video
@@ -41,20 +41,34 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -106,10 +120,10 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -127,13 +141,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -145,6 +152,13 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -152,13 +166,6 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -175,13 +182,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -217,22 +217,24 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-elite-4k-laptops-for-gamers-1-ranked-list/"><u>[New] 2024 Approved Elite 4K Laptops for Gamers – #1 Ranked List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-from-amateur-to-pro-video-editing-mastery-using-windows-movie-maker-windows-8-for-2024/"><u>[New] From Amateur to Pro Video Editing Mastery Using Windows Movie Maker (Windows 8) for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-locate-lively-youtube-conversations/"><u>[New] Locate Lively YouTube Conversations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-gamers-choice-best-4k-monitors/"><u>[New] Top Gamer's Choice Best 4K Monitors</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-effortlessly-arrange-your-iphones-memories-into-ordered-albums-for-icloud/"><u>[Updated] 2024 Approved Effortlessly Arrange Your iPhone's Memories Into Ordered Albums for iCloud</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-bypass-costs-and-watch-governments-election-coverage-online/"><u>[Updated] Bypass Costs and Watch Government's Election Coverage Online</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-add-motion-blur-effect-to-photos-in-photoshop/"><u>[Updated] In 2024, Add Motion Blur Effect to Photos in Photoshop</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-navigating-through-the-premier-10-image-stock-websites/"><u>[Updated] In 2024, Navigating Through the Premier 10 Image Stock Websites</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-tips-for-unlocking-youtube-video-comments/"><u>[Updated] Tips for Unlocking YouTube Video Comments</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-pre-release-film-recording-critique-with-secondary-choices/"><u>2024 Approved Pre-Release Film Recording Critique with Secondary Choices</u></a></li>
-<li><a href="https://app-tips.techidaily.com/1723620185282-comprehensive-guide-to-the-eva-ai-chatbot-from-ex-journey-dont-miss-this/"><u>Comprehensive Guide to the EVA AI Chatbot From Ex Journey – Don't Miss This</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/harness-the-magic-of-photography-and-video-with-pixiz/"><u>Harness the Magic of Photography and Video with Pixiz</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/how-mycam-changes-video-recording-at-home-an-in-depth-review-for-2024/"><u>How MyCam Changes Video Recording at Home – An In-Depth Review for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-avoiding-darkness-with-lightrooms-dynamic-range-technique/"><u>In 2024, Avoiding Darkness with Lightroom’s Dynamic Range Technique</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-honor-magic-5-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Honor Magic 5 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/optimizing-airpods-headset-volume-and-quality-for-personal-computers/"><u>Optimizing AirPods Headset Volume & Quality for Personal Computers</u></a></li>
-<li><a href="https://driver-download.techidaily.com/resolving-dts-audio-not-available-on-your-selected-output-device/"><u>Resolving 'DTS Audio Not Available' On Your Selected Output Device</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-auditory-explorers-manual-crafting-unique-sounds-and-ringtones-for-android-users/"><u>[New] 2024 Approved The Auditory Explorer's Manual Crafting Unique Sounds & Ringtones for Android Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-twitter-video-streams-download-and-convert-to-mp3/"><u>[New] 2024 Approved Twitter Video Streams Download & Convert to MP3</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-auditory-anatomy-understanding-video-audio-for-ig-feeds-for-2024/"><u>[New] Auditory Anatomy Understanding Video Audio for IG Feeds for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-blitz-through-edits-with-windows-11-pro-tips-for-2024/"><u>[New] Blitz Through Edits with Windows 11 Pro Tips for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-your-visual-journey-top-12-websites-unveiling-high-quality-stock-images/"><u>[New] In 2024, Your Visual Journey - Top 12 Websites Unveiling High-Quality Stock Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-eye-of-excellence-a-comprehensive-list-of-8k-cameras/"><u>[Updated] 2024 Approved Eye of Excellence A Comprehensive List of 8K Cameras</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-innovative-video-designs-free-premiere-plans/"><u>[Updated] 2024 Approved Innovative Video Designs Free Premiere Plans</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unveiling-the-top-6-head-mount-options-for-dynamic-camera-use/"><u>[Updated] 2024 Approved Unveiling the Top 6 Head Mount Options for Dynamic Camera Use</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-cross-platform-connection-masterclass-instagramfacebook-for-2024/"><u>[Updated] Cross-Platform Connection Masterclass Instagram/Facebook for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-photography-refinement-removing-backgrounds-and-blurring-effectively/"><u>2024 Approved Photography Refinement Removing Backgrounds & Blurring Effectively</u></a></li>
+<li><a href="https://article-posts.techidaily.com/capturing-clarity-iphone-low-light-techniques-for-2024/"><u>Capturing Clarity IPhone Low Light Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/expert-tips-for-photo-hdr-mastery-in-photoshop-for-2024/"><u>Expert Tips for Photo-HDR Mastery in Photoshop for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-cutting-edge-plot-architects-domain/"><u>In 2024, Cutting-Edge Plot Architects Domain</u></a></li>
+<li><a href="https://article-files.techidaily.com/initiate-integrate-and-interact-the-basics-of-zoom-for-android/"><u>Initiate, Integrate, and Interact The Basics of Zoom for Android</u></a></li>
+<li><a href="https://win-web3.techidaily.com/leading-image-watermark-tools-essential-picks-for-protecting-your-work/"><u>Leading Image Watermark Tools: Essential Picks for Protecting Your Work</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-youtube-live-selling-boost-your-sales-with-these-tips/"><u>New In 2024, YouTube Live Selling Boost Your Sales With These Tips</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-by-step-guide-to-nba-streaming-top-15-essentials/"><u>Step-by-Step Guide to NBA Streaming - Top 15 Essentials</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-asgardian-crusade-final-quest/"><u>The Asgardian Crusade Final Quest</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-oneplus-ace-2v-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset OnePlus Ace 2V | Dr.fone</u></a></li>
 </ul></div>
 

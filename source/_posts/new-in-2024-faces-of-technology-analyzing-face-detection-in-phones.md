@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Faces of Technology  Analyzing Face Detection in Phones\""
-date: 2024-10-26T20:28:17.216Z
-updated: 2024-10-31T16:21:01.041Z
+date: 2024-11-04T08:28:47.313Z
+updated: 2024-11-07T09:01:37.208Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/12e88707f59d2cf337816f66e57d39a5f3c787beb
 
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Which one is more Accuracy?
 
  Being accurate is a considerable issue with face recognition technology if you are using a Samsung device. On the other hand, iPhone X shows accuracy than Samsung since it analyzes the whole face instead of iris. For Samsung’s iris scanner, the camera contains a confined and narrowly designed focus where is exactly your iris needed to be for scanning. The camera will able to recognize only when your iris will be in that same place for long where it focuses. And therefore, there are times when you left with holding your device high for better iris detection. Apple has no such accuracy issue for it takes your face to recognize.
@@ -61,16 +68,16 @@ thumbnail: https://thmb.techidaily.com/12e88707f59d2cf337816f66e57d39a5f3c787beb
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
+<span id="1983474">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
@@ -84,17 +91,10 @@ thumbnail: https://thmb.techidaily.com/12e88707f59d2cf337816f66e57d39a5f3c787beb
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Safety Issue
@@ -111,24 +111,18 @@ thumbnail: https://thmb.techidaily.com/12e88707f59d2cf337816f66e57d39a5f3c787beb
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  The technology of facial recognition isn’t new to us and it has made people excited from the time it has come. However, many users have not started using the technology yet. We hope that this functionality will gain the popularity with time and people will start to make use of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -155,18 +149,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elevate-your-photography-experience-on-windows-11-filters-and-music-playback/"><u>[New] 2024 Approved Elevate Your Photography Experience on Windows 11 Filters and Music Playback</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-enhanced-connectivity-sending-social-media-content-between-facebook-and-whatsapp/"><u>[New] 2024 Approved Enhanced Connectivity Sending Social Media Content Between Facebook & WhatsApp</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-master-class-on-cutting-unwanted-backdrops/"><u>[New] In 2024, Master Class on Cutting Unwanted Backdrops</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-craft-your-first-short-film-with-windows-8-movie-maker/"><u>[Updated] 2024 Approved Craft Your First Short Film with Windows 8 Movie Maker</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-flawless-illustration-from-photographs-cross-platform-compatibility/"><u>[Updated] In 2024, Flawless Illustration From Photographs Cross-Platform Compatibility</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-premier-top-selections-affordable-sbd-applications/"><u>[Updated] Premier Top Selections Affordable SBD Applications</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-building-an-engaged-youtube-community-subscribers/"><u>2024 Approved Building an Engaged Youtube Community (Subscribers)</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-apple-iphone-12-pro-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On Apple iPhone 12 Pro? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-13c-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi 13C 5G Phone without Google Account?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-mastering-the-craft-of-online-title-perfection/"><u>In 2024, Mastering the Craft of Online Title Perfection</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-ranking-the-best-camcorders-review-guide/"><u>In 2024, Ranking the Best Camcorders Review Guide</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-honor-play-7t-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Honor Play 7T Phone Network-Ready</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/intels-next-gen-arrow-lake-cpus-compatible-with-new-arctic-36x36-cooler-prepare-your-setup/"><u>Intel's Next-Gen Arrow Lake CPUs Compatible with New Arctic 36X36 Cooler - Prepare Your Setup</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elite-archives-for-3d-graffiti-fonts/"><u>[New] 2024 Approved Elite Archives for 3D Graffiti Fonts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-evenings-reassessment-alternate-vision/"><u>[New] Evening's Reassessment Alternate Vision</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-amplify-visual-appeal-in-tiktok-clips/"><u>[New] In 2024, Amplify Visual Appeal in TikTok Clips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-professional-take-on-the-lg-bp350-monitors-connectivity-features-for-2024/"><u>[New] Professional Take on the LG BP350 Monitor's Connectivity Features for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ecrets-to-an-effective-youtube-closure-for-2024/"><u>[New] Secrets to an Effective YouTube Closure for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-blackout-blitz-a-moments-work-for-2024/"><u>[Updated] Blackout Blitz A Moment's Work for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unzip-excitement-funimate-pros-apk-unwrapped/"><u>[Updated] Unzip Excitement - Funimate Pro's APK Unwrapped</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-customizing-your-pixels-melodic-identity/"><u>2024 Approved Customizing Your Pixel's Melodic Identity</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-handbook-for-using-googles-ai-for-transcription-in-word-processors/"><u>2024 Approved Ultimate Handbook for Using Google's AI for Transcription in Word Processors</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/comment-obtenir-encore-des-documents-effaces-gratuitement-sous-windows-10-tips-et-astuces-utiles/"><u>Comment Obtenir Encore Des Documents Effacés Gratuitement Sous Windows 10 - Tips Et Astuces Utiles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/al-dreamland-gamers-income-evolution/"><u>Digital Dreamland Gamers' Income Evolution</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevate-your-content-with-these-24-best-video-translating-tools/"><u>Elevate Your Content with These 24 Best Video Translating Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explore-the-finest-5-android-photo-editing-apps/"><u>In 2024, Explore the Finest 5 Android Photo Editing Apps</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Vivo Y78t? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamlined-techniques-for-driver-refresh-on-nvidia-gpus/"><u>Streamlined Techniques for Driver Refresh on Nvidia GPUs</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Expanding Creative Horizons with Custom Fonts in After Effects"
-date: 2024-10-28T06:37:25.052Z
-updated: 2024-11-01T15:19:48.177Z
+date: 2024-11-05T22:36:28.742Z
+updated: 2024-11-07T06:25:11.920Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,19 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. How to use text effects in After Effects?
 
 Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
@@ -61,6 +74,13 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * First, select the project video that you want to edit. Then navigate to "effects and presets" and search for the presets of the texts that you want to edit.
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
@@ -83,10 +103,10 @@ These features also include adding texts and changing the fonts of those texts o
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -106,22 +126,15 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
@@ -130,13 +143,6 @@ These features also include adding texts and changing the fonts of those texts o
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -166,22 +172,20 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-ultimate-underwater-gopro-filter-setup-for-2024/"><u>[New] Ultimate Underwater Gopro Filter Setup for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-virtual-realms-at-your-fingertips-the-1-list-of-immersive-vr-streamers-for-pc/"><u>[New] Virtual Realms at Your Fingertips The #1 List of Immersive VR Streamers for PC</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-achromatic-no-more-blades-leap-to-ultra-hd-clarity/"><u>[Updated] 2024 Approved Achromatic No More Blade's Leap to Ultra-HD Clarity</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-convert-your-sbt-to-cutting-edge-srt-with-our-top-8-software-for-desktop-users/"><u>[Updated] 2024 Approved Convert Your SBT to Cutting-Edge SRT with Our Top 8 Software for Desktop Users</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-experience-a-bundle-of-9-whole-film-christmas-treasures-for-free/"><u>[Updated] 2024 Approved Experience a Bundle of 9 Whole-Film Christmas Treasures for Free</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-masterclass-softening-audio-endings/"><u>[Updated] 2024 Approved Masterclass Softening Audio Endings</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-engage-with-audio-world-iphones-and-podcasts/"><u>[Updated] Engage with Audio World IPhones and Podcasts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-merging-markets-youtube-and-brand-collaboration-concepts/"><u>[Updated] Merging Markets YouTube and Brand Collaboration Concepts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-velocity-for-the-visionary-quick-frame-android-tools/"><u>2024 Approved Velocity for the Visionary Quick-Frame Android Tools</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effective-solutions-to-correctly-fix-error-code-130-in-steam-software/"><u>Effective Solutions to Correctly Fix Error Code 130 in Steam Software</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722976751364-experience-the-new-and-improved-magicard-rio-pro-driver-compatible-with-win-11-81-and-7/"><u>Experience the New & Improved Magicard Rio Pro Driver - Compatible with Win 11, 8.1 & 7!</u></a></li>
-<li><a href="https://win11.techidaily.com/guide-to-initiate-wordpad-functionality-in-windows/"><u>Guide to Initiate WordPad Functionality in Windows</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-honor-magic-v2-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Honor Magic V2 Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/iphone-receiving-messages-late-here-are-9-proven-methods-to-improve-sms-timing/"><u>IPhone Receiving Messages Late? Here Are 9 Proven Methods to Improve SMS Timing</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/pushing-boundaries-windows-11s-features-after-latest-update/"><u>Pushing Boundaries: Windows 11'S Features After Latest Update</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/quality-quest-deciphering-the-superior-video-format/"><u>Quality Quest Deciphering the Superior Video Format</u></a></li>
-<li><a href="https://article-helps.techidaily.com/stellar-photo-alterations-frameshift-prowess-for-2024/"><u>Stellar Photo Alterations FrameShift Prowess for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-a-deep-dive-into-dji-phantom-3-professional-drone-for-2024/"><u>[New] A Deep Dive Into DJI Phantom 3 Professional Drone for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-from-flat-to-360-comparing-googles-cardboard-and-samsungs-gear/"><u>[New] From Flat to 360 Comparing Google's Cardboard & Samsung's Gear</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ultimate-no-cost-voice-modifier-transform-your-valorant-gameplay/"><u>[Updated] 2024 Approved Ultimate No-Cost Voice Modifier Transform Your Valorant Gameplay</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-7-video-to-text-converters-for-seamless-content-translation/"><u>[Updated] In 2024, Top 7 Video-to-Text Converters for Seamless Content Translation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/a-day-in-the-life-on-facebook-enhancing-participation-for-2024/"><u>A Day in the Life on Facebook Enhancing Participation for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/el-specific-choices-top-microphone-picks-adapted-to-each-youtube-niche/"><u>Channel-Specific Choices Top Microphone Picks Adapted To Each YouTube Niche</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exclusive-guide-to-ios-177s-latest-features-and-enhanced-security-could-it-outshine-the-next-version-ios-18-wired-news/"><u>Exclusive Guide to IOS 17.7'S Latest Features and Enhanced Security - Could It Outshine the Next Version, iOS 18? | Wired News</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-15-plus-without-losing-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Reset iPhone 15 Plus without Losing Data? | Stellar</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-editorial-expertise-counteract-dimness-in-iphone-hdr-with-four-premiere-techniques/"><u>In 2024, [Editorial Expertise] Counteract Dimness in iPhone HDR with Four Premiere Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-a-closer-look-at-sonys-s6700-enhancements/"><u>In 2024, A Closer Look at Sony's S6700 Enhancements</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-windows-11s-latest-traits-unveiled/"><u>In 2024, Windows 11'S Latest Traits Unveiled</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-notification-setup-integrating-slack-into-your-apple-watch-experience-tech-insights/"><u>Mastering Notification Setup: Integrating Slack Into Your Apple Watch Experience | Tech Insights</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/most-popular-gratuitous-vfx-websites/"><u>Most Popular Gratuitous VFX Websites</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/professioneller-kostenfreier-player-fur-wmv-dateien-ideal-fur-mac-and-windows-betriebssysteme/"><u>Professioneller Kostenfreier Player Für WMV Dateien - Ideal Für Mac & Windows Betriebssysteme</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-samsung-galaxy-a15-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
 </ul></div>
 

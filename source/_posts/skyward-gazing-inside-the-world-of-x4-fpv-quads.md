@@ -1,7 +1,7 @@
 ---
 title: "\"Skyward Gazing  Inside the World of X4 FPV Quads\""
-date: 2024-10-29T22:05:00.593Z
-updated: 2024-10-31T19:10:40.357Z
+date: 2024-10-30T21:09:32.029Z
+updated: 2024-11-07T09:32:27.385Z
 tags: 
   - screen-recording
   - ai video
@@ -64,10 +64,10 @@ thumbnail: https://thmb.techidaily.com/8d3e36af5d5a0091c440dec8233de5f6c2799ee80
  Hubsan H105S X4 is one of the best drone unit with reasonable price range. It is simply the best package with all advanced features including built in GPS. Even if you are a beginner then you will find this drone a good starter.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Complete Review for Hubsan H501S X4
@@ -121,10 +121,10 @@ thumbnail: https://thmb.techidaily.com/8d3e36af5d5a0091c440dec8233de5f6c2799ee80
 ![hubsan h501S x4 controller](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The Hubsan H501S X4 controller is designed with 4.3 LCD screen and it helps users to enjoy FPV camera operation with ease. This LCD screen can display all telemetry data for flights. It works on 5.8 GHz range to send video signals into MicroSD card whereas the controller itself works on 2.4 GHz frequency range.
@@ -134,10 +134,10 @@ thumbnail: https://thmb.techidaily.com/8d3e36af5d5a0091c440dec8233de5f6c2799ee80
 ![hubsan h501s x4 brushless motor](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-motor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Here is one interesting thing to know about Hubsan H501S, that is its brushless motor design. This motor is powerful enough with durable design so that users can enjoy uninterrupted flights for longer run.
@@ -147,16 +147,10 @@ thumbnail: https://thmb.techidaily.com/8d3e36af5d5a0091c440dec8233de5f6c2799ee80
 ![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If you are in search of a drone with great camera setup then you will be impressed with Hubsan X4 results. It captures stills with 1080p resolution and live videos need 5.8 GHz frequency from controller and you can view them directly on 4.3” built in screen of controller unit. All photos and videos are directly saved into MicroSD card.
@@ -192,16 +186,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-beginners-aerial-adventure-top-10-best-kids-drones/"><u>[New] 2024 Approved Beginner's Aerial Adventure Top 10 Best Kids' Drones</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-market-opening-innovations/"><u>[New] In 2024, Market-Opening Innovations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-progopro-tips-for-cinematic-results/"><u>[Updated] 2024 Approved ProGoPro Tips for Cinematic Results</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-direct-from-instagram-masterful-techniques-for-igtv-video-transferring/"><u>[Updated] Direct From Instagram Masterful Techniques for IGTV Video Transferring</u></a></li>
-<li><a href="https://extra-information.techidaily.com/building-a-successful-brand-presence-through-spotify-advertising/"><u>Building a Successful Brand Presence Through Spotify Advertising</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/free-red-eye-correction-for-iphone-users-tips-and-tricks-for-2024/"><u>Free Red-Eye Correction for iPhone Users - Tips and Tricks for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-best-top-text-overlays-and-animations/"><u>In 2024, Best Top Text Overlays & Animations</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-make-your-instagram-pop-with-sharing-gifs-in-4-easy-steps/"><u>In 2024, How to Make Your Instagram Pop with Sharing GIFs in 4 Easy Steps</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-pinnacle-8-webcams-for-high-definition-streaming/"><u>In 2024, Pinnacle 8 Webcams for High-Definition Streaming</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-transform-your-trip-diary-into-haul-video-hype/"><u>In 2024, Transform Your Trip Diary Into Haul Video Hype</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sony-hdrcx405-review-capture-life-in-high-definition/"><u>Sony HDRCX405 Review: Capture Life in High Definition</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-understanding-vectors-first-steps-and-essential-apps/"><u>[New] 2024 Approved Understanding Vectors First Steps and Essential Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-accelerate-document-creation-learning-ms-words-speech-feature/"><u>[Updated] 2024 Approved Accelerate Document Creation Learning MS Word's Speech Feature</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-amplify-your-messages-a-guide-to-effective-telegram-advertising/"><u>[Updated] 2024 Approved Amplify Your Messages A Guide to Effective Telegram Advertising</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-supreme-selection-ideal-sierra-dvd-and-video-apps/"><u>[Updated] 2024 Approved Supreme Selection Ideal Sierra Dvd & Video Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlocking-creativity-free-animation-techniques/"><u>[Updated] 2024 Approved Unlocking Creativity Free Animation Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-peak-craft-space-25-appraisal/"><u>[Updated] In 2024, Peak Craft Space 25 Appraisal</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-monitor-mastery-understanding-the-benefits-of-ultrawide-vs-uhd-4k-for-2024/"><u>[Updated] Monitor Mastery Understanding the Benefits of UltraWide vs UHD 4K for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-flying-into-photography-discovering-the-dji-spark-advantage/"><u>2024 Approved Flying Into Photography Discovering the DJI Spark Advantage</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-quick-methods-how-to-locate-people-on-facebook-in-6-steps/"><u>Discover Quick Methods: How To Locate People On Facebook in 6 Steps</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723204055633-effortless-ways-to-fix-your-overwatch-voice-chat-woes-today/"><u>Effortless Ways to Fix Your Overwatch Voice Chat Woes Today</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-to-reinstating-deleted-windows-update-service/"><u>Guide to Reinstating Deleted Windows Update Service</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-vivo-y78-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Vivo Y78 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-beginners-guide-to-key-camera-movements-in-film/"><u>In 2024, The Beginner's Guide to Key Camera Movements in Film</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-vida-edits-with-ease-a-user-centric-perspective-review/"><u>In 2024, Vida Edits with Ease A User-Centric Perspective Review</u></a></li>
+<li><a href="https://techtrends.techidaily.com/movavis-complimentary-tool-for-quickly-changing-flv-video-to-mp4-on-the-web/"><u>Movavi's Complimentary Tool for Quickly Changing FLV Video to MP4 on the Web</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-windows-breakpoint-exception-error/"><u>Overcoming Windows' Breakpoint Exception Error</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-assassins-creed-odyssey-how-to-stop-your-game-from-freezing/"><u>Troubleshooting Assassin's Creed Odyssey: How to Stop Your Game From Freezing</u></a></li>
 </ul></div>
 

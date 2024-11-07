@@ -1,0 +1,183 @@
+---
+title: "\"Snap-Happy with Hero5 Black  Tips for Stunning Visuals\""
+date: 2024-11-03T07:00:14.813Z
+updated: 2024-11-07T10:06:45.494Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes Snap-Happy with Hero5 Black: Tips for Stunning Visuals\""
+excerpt: "\"This Article Describes Snap-Happy with Hero5 Black: Tips for Stunning Visuals\""
+keywords: "SnapHappy Hero5,Hero5 VizTips,Snappy HeroBlack,BlackHeroSnaps,Photobook HERO5,VisualSnapHero5,HERO5 ShotsGold"
+thumbnail: https://thmb.techidaily.com/a05ae5ee6982c15ff3eed9139528bca4d5df10563908a6200578c04353f69c36.jpg
+---
+
+## Snap-Happy with Hero5 Black: Tips for Stunning Visuals
+
+# How to Use GoPro Hero5 Black: Tips for Shooting Great Photos and Videos
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+Finally, you have bought your GoPro Hero5 Black action camera! Now you are ready to capture YouTube ready scenes with impressive video quality. But probably you will find some difficulties in its usage because of its rich functionality and numerous features. Don't worry! Here are few [tips and tricks](https://tools.techidaily.com/wondershare/filmora/download/) about how to make most out of your GoPro Hero5 Black.
+
+---
+
+#### Best Video Editing Software for GoPro Hero5 - Wondershare Filmora
+
+We recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as one of the best video editing application for GoPro users. It possesses ability to correct lens distortions according to the type of your action camera, and works for advanced video stabilization with audio de-noising and speed control. Filmora also assists in color correction which applies film-looking effects for your video. Brand new Instant Cutter feature for easy trim or merge of video files with no quality loss.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## How to use GoPro Hero5 Black
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Explore the Appearance
+
+#### 1.Replace lens Protector
+
+The best thing to know about Hero5 black is that this device is developed with waterproof body so you need not to use any additional waterproof housing with it. But the drawback is that it makes your lens susceptible to damage and scratches. It is better to buy a replacement GoPro protective lens cover to replace your lens cap. While fixing it, never forget to apply little pressure and then simple rotate cap in clockwise direction for 1/8th turn.
+
+#### 2.Lock the Touch Screen
+
+It is essential to lock the screen while capturing your videos otherwise you may face crash of videos due to accidental swipe on screen. To activate this screen lock function, you simply need to swipe down on your screen and on settings bar press the padlock shaped icon. In order to unlock the screen again you have to swipe down again on screen and then again press the padlock to unlock your screen.
+
+#### 3.Side Charging Door
+
+A portable power bank can be directly connected to your GoPro device while keeping your side charging door open. It can easily extend your video shooting hours from one hour to 8 hours. You simple need to open the side charging door and next pull as well as bend at the same time. It will easily come right off; you need not to apply extra force to do this task. While attaching your side charging door ensure that the mechanism is completely extended.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Have Fun with the New Features
+
+#### 1.Voice Command
+
+In order to turn this feature on, you simply need to swipe down on main screen of your Hero5 Black device and then go to voice command icon. Whenever your camera is powered On then you can control various functions by just speaking few dedicated commands to your camera. These commands start with GoPro as like:
+
+* GoPro, Start recording
+* GoPro, Shoot Burst
+* GoPro, Start time lapse
+* GoPro, HiLight
+* GoPro, Photo mode
+* GoPro, Turn Off
+* GoPro. Video mode
+* GoPro, take a photo
+* GoPro, stop recording
+* GoPro, Time lapse mode
+* GoPro, turn Off
+
+The HiLight voice command in this series will simply mark your video right at that moment and then Quick editing app will use the portion exactly before your command to create final video. In case if you forget any of these commands then they can be easily found under preferences list of your GoPro device. It is also possible to use any preferred language setting for voice commands out of 10 suported languages.
+
+#### 2.Timelapse Mode
+
+Your GoPro device can assist you with Time Lapse mode to create special slow motion footage. This mode is specially utilized to shoot city streets as well as for sports activities.
+
+In order to make settings for this mode:
+
+* Simply tap on the screen and then go to shooting mode icon from left button available on screen.
+* Tap on the time lapse icon that is available on top right portion of screen and then choose time lapse video.
+* Click on Res, FOV and interval to make your desired settings.
+* When you want to hide the settings then just tap on screen.
+
+You can easily record Full HD, 2.7K and 4K resolutions but audio cannot be recorded. The frame rate can be varied from 60 fps to 0.5 fps with simple settings. Here the shorter intervals are preferred for shooting action or sports but longer intervals can be used to record lengthy duration activities. For capturing beautiful scenes of sun rise or sun set it is good to switch to mid range fps values.
+
+#### 3.Field of View
+
+The super wide angle type lenses of your GoPro device will assist you in capturing unique scenes. The linear FIV option is recently added to action camera model and it assist users to take a closer look over scene while developing a smooth footage. It is possible to make customized settings for FOV as per your shoot requirements.
+
+#### 4.Capture App
+
+Hero5 Black allows users to connect their device to phone via wireless network. Simple switch your device Wi-Fi on and then establish an active connection with your smart phone application. The GoPro Capture App assists users in easier settings with fine shooting options from remote location.
+
+#### 5.Quick App
+
+If you want to edit your footage with a bunch advanced tools then it is good to use Quick app that offers wide variety of transitions along with impressive effects. With Quick app, it becomes much easier to pick any theme and then edit videos to create impressive results.
+
+[Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-iphone-camera-mastery-x8-series-essential-tools/"><u>[New] 2024 Approved IPhone Camera Mastery X/8 Series Essential Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-ultimate-guide-to-digital-mastery-of-vhs-visuals/"><u>[New] 2024 Approved The Ultimate Guide to Digital Mastery of VHS Visuals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unlocking-timelapse-magic-with-your-gopro/"><u>[New] 2024 Approved Unlocking Timelapse Magic with Your GoPro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nalyzing-the-post-upload-process-in-youtubes-ecosystem-for-2024/"><u>[New] Analyzing the Post-Upload Process in YouTube's Ecosystem for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-best-ff-browser-add-ons-for-fb-videos/"><u>[New] In 2024, Best FF Browser Add-Ons for FB Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-beyond-vlc-uncovering-hidden-streaming-gems/"><u>[Updated] 2024 Approved Beyond VLC Uncovering Hidden Streaming Gems</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-top-15-snapchat-sharing-tactics-for-maximum-impact/"><u>[Updated] 2024 Approved Top 15 Snapchat Sharing Tactics for Maximum Impact</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-amplify-creativity-in-photography-innovative-pixlr-hacks-for-2024/"><u>[Updated] Amplify Creativity in Photography Innovative Pixlr Hacks for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-photos-unbound-choosing-between-cost-free-and-premium-cloud-options-for-2024/"><u>[Updated] Photos Unbound Choosing Between Cost-Free and Premium Cloud Options for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-simplifying-the-process-of-creating-time-lapses-with-gopro/"><u>2024 Approved Simplifying the Process of Creating Time Lapses with GoPro</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-singing-siblings-shine-on-tiktok/"><u>2024 Approved Singing Siblings Shine on TikTok</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/examining-the-tech-in-djis-phantom-3-prototype/"><u>Examining the Tech in DJI's Phantom 3 Prototype</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-prime-video-the-twitterspheres-favorite-shows-of-23/"><u>In 2024, Prime Video The Twittersphere's #Favorite Shows of '23</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-the-exceptional-benefits-of-using-a-netgear-nighthawk-c7000-modem-for-seamless-connectivity/"><u>In-Depth Evaluation: The Exceptional Benefits of Using a Netgear Nighthawk C7000 Modem for Seamless Connectivity</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavi-flac-ogg-mp4/"><u>Movavi FLAC에서 OGG로 원형 손상 없이 MP4로 변환하기 - 무료 인터넷 연결을 사용한다</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/poker-playpersonalized-projections/"><u>POKER PLAYPERSONALIZED PROJECTIONS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-to-securing-your-youtube-videos-for-2024/"><u>Step-by-Step Guide to Securing Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/turbocharged-ai-how-copilot-makes-it-accessible-and-powerful/"><u>Turbocharged AI: How Copilot Makes It Accessible and Powerful</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/understanding-macos-11-big-sur-transition-tips/"><u>Understanding macOS 11 Big Sur Transition Tips</u></a></li>
+</ul></div>
+
