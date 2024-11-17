@@ -1,7 +1,7 @@
 ---
 title: "Unraveling the Secrets of Exceptional Green Screen Filming for 2024"
-date: 2024-09-06T00:12:01.317Z
-updated: 2024-09-07T00:12:01.317Z
+date: 2024-11-10T16:13:11.550Z
+updated: 2024-11-17T16:00:48.362Z
 tags: 
   - screen-recording
   - ai video
@@ -16,18 +16,6 @@ keywords: "GreenScreenFilmingSecrets,ExcellentGreenKeyingTips,GreenScreenCinemaT
 thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c8228611ca9a5690c1d2c490.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unraveling the Secrets of Exceptional Green Screen Filming
 
 # How to Shoot a Green Screen Video
@@ -48,26 +36,8 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
@@ -84,30 +54,12 @@ Don’t throw too much light onto the green background. That will create hotspot
 
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
 Also choose carefully the camera as some cameras are better to shoot green screen video, especially if you are shooting something with a bit of movement. Then shoot your video as HD quality video (720p or higher) and save in a format your green screen software can import.
@@ -142,12 +94,6 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -173,4 +119,33 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-constructing-a-high-definition-pc-for-ultra-hd-video-production/"><u>[New] 2024 Approved Constructing a High-Definition PC for Ultra-HD Video Production</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-seamless-conversion-from-iphonepc-explore-the-8-best-apps/"><u>[New] 2024 Approved Seamless Conversion From iPhone/PC Explore the #8 Best Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-learn-efficiently-how-to-use-zero-cost-timers-for-2024/"><u>[New] Learn Efficiently How To Use Zero Cost Timers for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-optibackup-insider-opinions/"><u>[New] OptiBackup Insider Opinions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-zooming-up-elevate-your-visuals-on-snapchat/"><u>[New] Zooming Up Elevate Your Visuals on Snapchat</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-hefty-helpers-airborne-lifting-titans-unveiled/"><u>[Updated] Hefty Helpers Airborne Lifting Titans Unveiled</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-finest-9-cross-platform-video-conferencing-apps-for-iphonestablets/"><u>[Updated] In 2024, The Finest 9 Cross-Platform Video Conferencing Apps for iPhones/Tablets</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-quick-clip-cinema-scenario-for-2024/"><u>[Updated] Quick Clip Cinema Scenario for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-transcoding-ttml-and-ssa-into-easy-to-use-srt-format/"><u>[Updated] Transcoding TTML & SSA Into Easy-to-Use SRT Format</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-vivo-y28-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Vivo Y28 5G</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/discovering-this-years-most-captivating-yt-tales/"><u>Discovering This Year's Most Captivating YT Tales</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ve-video-clarity-with-simplified-caption-steps-for-2024/"><u>Improve Video Clarity with Simplified Caption Steps for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-conquering-gameplay-logic-from-console-to-computer-playback/"><u>In 2024, Conquering Gameplay Logic From Console to Computer Playback</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lenovo-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Lenovo Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/infinite-inspiration-cost-free-youtube-theming/"><u>Infinite Inspiration Cost-Free YouTube Theming</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/transforming-static-text-into-dynamic-elements-on-a-budget-for-2024/"><u>Transforming Static Text Into Dynamic Elements on a Budget for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ultimate-digital-boutiques-unique-personalized-present-boxes/"><u>Ultimate Digital Boutiques Unique, Personalized Present Boxes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/understanding-budgets-youtube-marketing-investments-for-2024/"><u>Understanding Budgets YouTube Marketing Investments for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/winning-the-battle-against-stuck-file-explorer-on-your-windows-10-pc-a-fixers-companion/"><u>Winning the Battle Against Stuck File Explorer on Your Windows 10 PC - A Fixer’s Companion</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Swift Remedies to Rescue Your Windows 10 Photos App for 2024"
-date: 2024-08-28T07:16:55.982Z
-updated: 2024-08-29T07:16:55.982Z
+date: 2024-11-14T16:03:20.354Z
+updated: 2024-11-17T16:20:34.969Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,13 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -56,9 +63,6 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -70,14 +74,15 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -99,6 +104,13 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -111,22 +123,20 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -150,4 +160,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-streamlining-business-with-azure-speech-services/"><u>[New] 2024 Approved Streamlining Business with Azure Speech Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-taking-control-the-hidden-tips-and-tricks-for-power-users-of-window-11/"><u>[New] 2024 Approved Taking Control The Hidden Tips and Tricks for Power Users of WINDOW 11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-film-techniques-on-youtube-by-future-visionaries/"><u>[New] In 2024, Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-get-in-on-the-action-the-must-try-tiktok-trends/"><u>[New] In 2024, Get in on the Action The Must-Try TikTok Trends</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-film-techniques-flawless-virtual-backdrops-integration/"><u>[New] In 2024, Instagram Film Techniques Flawless Virtual Backdrops Integration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-perfecting-pics-a-full-guide-to-facetune-mastery/"><u>[New] In 2024, Perfecting Pics - A Full Guide to Facetune Mastery</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-optimizing-video-production-in-windows-11-workflows/"><u>[New] Optimizing Video Production in Windows 11 Workflows</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-twitta-to-trackable-audio-transitions-for-2024/"><u>[New] Twitta to Trackable Audio Transitions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-controlling-playback-rate-on-snapchat/"><u>[Updated] The Ultimate Guide to Controlling Playback Rate on Snapchat</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-premier-7-phone-apps-for-changing-tone-quality/"><u>2024 Approved Premier 7 Phone Apps for Changing Tone Quality</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/emergency-fix-for-wet-tech-restoring-your-submerged-iphone-or-ipod/"><u>Emergency Fix for Wet Tech: Restoring Your Submerged iPhone or iPod</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-rapidrush-framefrozen-recording/"><u>In 2024, RapidRush FrameFrozen Recording</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-pros-guide-to-clearing-backdrops-in-figma-design/"><u>In 2024, The Pro's Guide to Clearing Backdrops in Figma Design</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/most-popular-tweets-of-the-year-ranked-and-viewed/"><u>Most Popular Tweets of the Year Ranked & Viewed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/premier-editing-software-perfect-for-dev-screens/"><u>Premier Editing Software Perfect for Dev Screens</u></a></li>
+</ul></div>
 

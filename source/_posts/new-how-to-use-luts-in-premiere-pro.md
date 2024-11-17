@@ -1,7 +1,7 @@
 ---
 title: "[New] How To Use LUTs In Premiere Pro"
-date: 2024-11-04T00:25:22.138Z
-updated: 2024-11-07T08:08:40.702Z
+date: 2024-11-13T16:14:56.878Z
+updated: 2024-11-17T16:13:46.687Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ Step2Locate the Lumetri LUTs folder in your Premiere Pro installation directory 
 
 Step3Paste all of your fresh LUTs in this folder at this time. Your new LUTs will now show up in the Lumetri Color Panel when you launch Premiere Pro (or restart the software if it was already open). Innovative >> Looks
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. How to add LUTs to your footage
 
 Step1Choose the Color Workspace at the top after your clip is in the timeline and prepared for grading.
@@ -48,16 +55,10 @@ Step3The first Basic Correction option in the right-hand panel of Lumetri Color 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Why use LUTs in your project?
@@ -69,13 +70,6 @@ Your finished product, when paired with the appropriate color scheme, has the po
 Because of this, some designers employ look-up tables (LUTs) that they have created themselves or something that is currently available on the internet and is ready to install and use.
 
 When it comes to working on a project for a customer that has a stringent deadline to fulfill, poor color grading could result in a negative impression of your work. This is the case even if everything from the sound effects to the video effects is done to a high standard and is done well.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Can you adjust the strength of the LUT?
 
@@ -98,16 +92,10 @@ Step2Export ".cube" This function exports lookup tables in the.cube format so th
 Step3Store Preset: You can personalize the settings for each color effect, then save the resulting combinations as presets. Within the Save Preset dialog box, give your preset the name you want it to have. If desired, enter a description. Please visit the article on how to create and store an effect preset for further details.
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Where can you find LUTs?
@@ -124,10 +112,10 @@ You might be asking, "Now that I've learned more about LUTs (Lookup Tables), whe
 * Urban Dark Creative LUTs
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -166,24 +154,18 @@ Sometimes, some of them are out there to steal your money rather than provide th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-ignite-interest-captivate-views-elevate-likes-on-your-unboxings-for-2024/"><u>[New] Ignite Interest, Captivate Views Elevate Likes on Your Unboxings for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-future-of-titles-an-innovators-playbook-for-videos/"><u>[New] In 2024, The Future of Titles An Innovator's Playbook for Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-crafting-professional-content-on-youtube-via-enhancements/"><u>[Updated] 2024 Approved Crafting Professional Content on YouTube via Enhancements</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-pros-guide-to-clearing-backdrops-in-figma-design/"><u>[Updated] 2024 Approved The Pro's Guide to Clearing Backdrops in Figma Design</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-a-step-by-step-approach-to-enhanced-roblox-views/"><u>[Updated] A Step-by-Step Approach to Enhanced Roblox Views</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-from-youtube-to-high-definition-prime-downloader-choices/"><u>[Updated] In 2024, From YouTube to High Definition Prime Downloader Choices</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-samsung-bd-j5900-review-2023-update/"><u>[Updated] In 2024, Samsung BD-J5900 Review - 2023 Update</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-8-iphone-accessories-elevate-your-selfies-today/"><u>[Updated] In 2024, Top 8 iPhone Accessories - Elevate Your Selfies Today</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-syncing-songs-safely-with-insta-rules/"><u>[Updated] Syncing Songs Safely with Insta Rules</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-freelancers-companion-easy-and-affordable-audio-effect-additions/"><u>[Updated] The Freelancer's Companion Easy and Affordable Audio Effect Additions</u></a></li>
-<li><a href="https://win-online.techidaily.com/comment-acceder-et-extraire-des-informations-dune-cles-usb-chiffree/"><u>Comment Accéder Et Extraire Des Informations D'une Clés USB Chiffrée</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-realme-v30t-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Realme V30T? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-oppo-reno-11f-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo Reno 11F 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-on-your-iphone-12-pro-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock on your iPhone 12 Pro and iPad</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-obs-vs-streamlabs-which-is-better/"><u>In 2024, OBS vs Streamlabs Which Is Better?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/in-2024-understanding-the-capacity-for-storing-videos-on-large-scale-drives-64128gb/"><u>In 2024, Understanding the Capacity for Storing Videos on Large-Scale Drives (64/128GB)</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unleashing-funimate-on-android-step-by-step-apk-tutorial-for-2024/"><u>Unleashing Funimate on Android - Step-by-Step APK Tutorial for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/winning-at-movie-watching-leading-windows-phone-apps/"><u>Winning at Movie Watching Leading Windows Phone Apps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-backup-your-memories-camera-roll-to-snapchat-explained-for-2024/"><u>[New] Backup Your Memories Camera Roll to Snapchat Explained for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-rhythms-of-romance-most-beloved-ballads-for-engagement/"><u>[New] Rhythms of Romance Most Beloved Ballads for Engagement</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-what-are-the-best-sites-to-download-text-effects-in-2024/"><u>[New] What Are The Best Sites To Download Text Effects, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-8-things-to-consider-before-buying-next-lens-for-4k-camera/"><u>[Updated] 2024 Approved 8 Things to Consider Before Buying Next Lens for 4K Camera</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-enchanting-viewers-the-art-of-crafting-engaging-youtube-description-templates/"><u>[Updated] 2024 Approved Enchanting Viewers The Art of Crafting Engaging YouTube Description Templates</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-enhancing-visual-storytelling-with-impeccable-voice-over/"><u>[Updated] 2024 Approved Enhancing Visual Storytelling with Impeccable Voice Over</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-mastering-iphone-macro-photography-detailed-images-at-your-fingertips/"><u>[Updated] 2024 Approved Mastering iPhone Macro Photography Detailed Images at Your Fingertips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-cloud-storage-expenses-made-simple-comparison-guide-for-2024/"><u>[Updated] Cloud Storage Expenses Made Simple Comparison Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-source-guide-buying-and-downloading-your-favorite-youtube-rings/"><u>[Updated] Ultimate Source Guide Buying and Downloading Your Favorite YouTube Rings</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-perfect-virtual-screens-choosing-best-meet-backgrounds/"><u>2024 Approved Perfect Virtual Screens Choosing Best Meet Backgrounds</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-chuckles-churner-visual-composer/"><u>In 2024, Chuckles Churner Visual Composer</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-guide-to-progressive-volume-reduction-with-logic-pro/"><u>In 2024, Expert Guide to Progressive Volume Reduction with Logic Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/seamless-merge-apple-music-and-videos-together/"><u>Seamless Merge Apple Music & Videos Together</u></a></li>
 </ul></div>
 

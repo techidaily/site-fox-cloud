@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Guide to Add Personalized Sound/Filters on Windows Photos\""
-date: 2024-08-28T07:19:16.754Z
-updated: 2024-08-29T07:19:16.754Z
+date: 2024-11-15T16:10:30.314Z
+updated: 2024-11-17T16:06:11.144Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -65,15 +72,26 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 5**: Hit the ‘Done’ button.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
@@ -81,8 +99,12 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -106,4 +128,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-adventure-videography-supplies-for-travelers/"><u>[New] Adventure Videography Supplies for Travelers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-effortless-time-lapse-cinematography-with-samsung/"><u>[New] Effortless Time-Lapse Cinematography with Samsung</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pioneering-cinematic-experiences-with-vr-tech/"><u>[New] In 2024, Pioneering Cinematic Experiences with VR Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-professional-4k-at-your-fingertips-benq-bl2711u-uncovered/"><u>[New] Professional 4K at Your Fingertips BenQ BL2711U Uncovered</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevating-imagery-detailed-analysis-of-mavic-pro-for-2024/"><u>[Updated] Elevating Imagery - Detailed Analysis of Mavic Pro for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-new-frontiers-in-mobile-videography-alternatives-to-periscope-for-2024/"><u>[Updated] New Frontiers in Mobile Videography - Alternatives to Periscope for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-perfect-harmony-music-in-instagram-storytelling/"><u>[Updated] Perfect Harmony Music in Instagram Storytelling</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-photoshop-pro-with-ai-intelligence-for-2024/"><u>[Updated] Ultimate Photoshop Pro with AI Intelligence for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-prioritize-close-up-views-for-effective-collaboration/"><u>2024 Approved How to Prioritize Close-Up Views for Effective Collaboration</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unsubscribe-from-all-fb-newsworthy-items/"><u>How To Unsubscribe From All FB Newsworthy Items</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionize-yard-work-with-fun-and-easy-grass-cutting-the-ultimate-guide-to-enjoying-remote-controlled-lawnmowers-today/"><u>Revolutionize Yard Work with Fun and Easy Grass Cutting: The Ultimate Guide to Enjoying Remote-Controlled Lawnmowers Today!</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/ultimate-guide-to-cloning-a-hard-disk-with-gpt-configuration-from-hdd-to-ssd-on-windows-1110-systems/"><u>Ultimate Guide to Cloning a Hard Disk with GPT Configuration From HDD to SSD on Windows 11/10 Systems</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-tricks-bringing-off-screen-apps-back-to-life-with-6-tips/"><u>Windows Tricks: Bringing Off-Screen Apps Back to Life with 6 Tips</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Leveraging Patient Stories  A Guide to Powerful Videography for 2024\""
-date: 2024-11-02T19:24:58.423Z
-updated: 2024-11-07T07:40:06.940Z
+date: 2024-11-12T16:03:26.094Z
+updated: 2024-11-17T16:02:29.339Z
 tags: 
   - screen-recording
   - ai video
@@ -37,27 +37,27 @@ It may seem like a daunting task, but there are several ways you can go about de
 * If that's not an option for some reason (maybe there aren't any current customers), consider hiring a research firm or marketing agency that specializes in surveying potential customers and asking questions like "What would encourage you to buy from us?" or "How could we improve our service?" With this information in hand, it should be easier than ever before!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Ask Authentic Questions
 
 ![ask authentic questions](https://images.wondershare.com/filmora/article-images/2022/07/ask-authentic-questions.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Open-ended questions are the best way to engage customers and get them to speak naturally.
 * Make your question relevant to the customer and your product or service.
 * The more specific you can be with these questions, the better. For example, if you're selling pet products online, ask about their pets' names, breed, and color (if applicable).
 * If there's no good reason for asking a question then don't! For example: "How was your experience with our website?"
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Include Strong Opinions
 
@@ -68,13 +68,6 @@ It may seem like a daunting task, but there are several ways you can go about de
 * Use the word “you”.
 * You can also use the word "they" for an authoritative tone, or "them", which is more casual and vaguer, depending on what you want to convey.
 * Please avoid saying the word "me" because this makes it sound like you're speaking in the third person—which can come across as unnatural and pretentious.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Keep it All Short and Sweet
 
@@ -91,25 +84,32 @@ Asking open-ended questions allows people greater freedom when responding—and 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Really Listen to Your Prospects
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 When you're listening to your customers, don't just take notes on what they say. Also, look at their body language and eye movement. This can tell you a lot about whether they are telling the truth or not, and it will give you an idea of what may be going on in their head.
@@ -158,24 +158,16 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-prospective-leaders-in-titling-the-top-5-online-masters-revealed/"><u>[New] 2024 Approved Prospective Leaders in Titling The Top 5 Online Masters Revealed</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-woven-wisdom-in-digital-weaves-arvr-quote-compilation/"><u>[New] 2024 Approved Woven Wisdom in Digital Weaves AR/VR Quote Compilation</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-how-to-check-tiktok-video-copyright-before-uploading/"><u>[New] How to Check Tiktok Video Copyright Before Uploading?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-navigate-your-musical-library-effortlessly-top-6-android-apps/"><u>[New] In 2024, Navigate Your Musical Library Effortlessly - Top 6 Android Apps</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-perfecting-gameplay-with-steam-switch-pro-controller/"><u>[New] In 2024, Perfecting Gameplay with Steam Switch Pro Controller</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-summit-elite-studio-25-test-for-2024/"><u>[New] Summit Elite Studio 25 Test for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-understanding-du-recorder-through-this-guide/"><u>[New] Understanding Du Recorder Through This Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-dynamic-titles-for-adobe-after-effects-for-2024/"><u>[Updated] Dynamic Titles for Adobe After Effects for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exploring-vr-landscapes-perks-pitfalls-and-pivots/"><u>[Updated] Exploring VR Landscapes Perks, Pitfalls and Pivots</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-excellent-5-video-monitors-for-ps5-players/"><u>[Updated] In 2024, Excellent 5 Video Monitors for PS5 Players</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-ranking-the-best-free-passport-picture-services-worldwide/"><u>[Updated] Ranking the Best Free Passport Picture Services Worldwide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>[Updated] Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-monetary-worth-of-podcasting/"><u>[Updated] The Monetary Worth of Podcasting</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-realme-narzo-60-5g-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Realme Narzo 60 5G FRP</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-elevate-your-gopro-footage-live-streaming-on-facebook-and-periscope/"><u>In 2024, Elevate Your Gopro Footage Live Streaming on Facebook and Periscope</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-elevate-your-intellect-with-top-11-general-knowledge-quiz-networks/"><u>In 2024, Elevate Your Intellect with Top 11 General Knowledge Quiz Networks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-swift-video-and-picture-retrieval-guide/"><u>In 2024, Swift Video and Picture Retrieval Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/laughing-lane-the-no-10-guide-to-memelore-for-2024/"><u>Laughing Lane - The No. 10 Guide to Memelore for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/stop-in-app-video-buffering-issues-for-2024/"><u>Stop In-App Video Buffering Issues for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-tiktoks-new-wave-popular-rap-songs-to-sync-with/"><u>[New] TikTok's New Wave Popular Rap Songs to Sync With</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-2-ways-to-fade-audio-in-ableton/"><u>[Updated] In 2024, 2 Ways to Fade Audio in Ableton</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-enhanced-photoshoot-with-online-backdrop-swap/"><u>[Updated] In 2024, Enhanced Photoshoot with Online Backdrop Swap</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-how-to-shoot-hdr-photos-with-iphone/"><u>[Updated] In 2024, How to Shoot HDR Photos with iPhone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/comprehensive-analysis-updated-s3700-bd-player-for-2024/"><u>Comprehensive Analysis Updated S3700 BD Player for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-vivo-s18-pro-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Vivo S18 Pro to Another | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-8-plus-passcode-screen-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 8 Plus Passcode Screen? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/immediate-countermeasures-for-the-w10-photos-crash-dilemnas-for-2024/"><u>Immediate Countermeasures for the W10 Photos Crash Dilemnas for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/next-level-play-the-best-gaming-tech-on-display-for-2024/"><u>Next-Level Play The Best Gaming Tech on Display for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-nubia-red-magic-9-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/quick-tips-for-launching-websites-directly-from-windows-start-menutaskbar/"><u>Quick Tips for Launching Websites Directly From Windows ˈStart Menu/Taskbar</u></a></li>
 </ul></div>
 

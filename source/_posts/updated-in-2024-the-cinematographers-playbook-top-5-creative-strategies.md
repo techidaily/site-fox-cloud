@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Cinematographer's Playbook  Top 5 Creative Strategies\""
-date: 2024-11-04T00:13:37.735Z
-updated: 2024-11-06T19:38:13.182Z
+date: 2024-11-12T16:10:05.780Z
+updated: 2024-11-17T16:13:50.293Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 Step 2 Now open and close the door to get smooth camera movement.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 2\. DIY Light Focus and Control
@@ -89,17 +89,16 @@ Let us see how it looks;
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### DIY Black Wrap
@@ -125,10 +124,16 @@ Here is a GIF attached for a better understanding of the steps.
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### DIY Light Reflector
@@ -154,10 +159,10 @@ There is a GIF attached below to understand the steps visually.
 In professional productions, light diffusers are frequently used to soften, level out the lighting, and lessen the harshness of shadows.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Diffuse Lights With a Desk Mat
@@ -177,19 +182,6 @@ Step 3 Use this diffuser to reduce the intensity of light.
 For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
 
@@ -213,13 +205,6 @@ Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -237,6 +222,13 @@ Step 3 Move slowly to the other side of the subject while recording.
 A sample video attached below shows how to record 180 presentation movements.
 
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
 
@@ -257,6 +249,26 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
+
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -294,22 +306,21 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-digital-alchemy-transformative-afx-samples-without-cost/"><u>[New] 2024 Approved Digital Alchemy Transformative AFX Samples Without Cost</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-efficiently-convert-iphone-photos-jpg-png-into-pdf-format/"><u>[New] In 2024, Efficiently Convert iPhone Photos (JPG, PNG) Into PDF Format</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-transforming-ones-and-twosies-into-avis-with-ease/"><u>[New] In 2024, Transforming Ones and Twosies Into Avis with Ease</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-unlocking-google-docs-transcription-your-complete-manual-for-2024/"><u>[New] Unlocking Google Docs Transcription Your Complete Manual for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-essential-8-tools-linux-based-edits-software/"><u>[Updated] Essential 8 Tools Linux-Based Edits Software</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-navigate-10-top-free-web-explorers-for-remote-collaboration/"><u>[Updated] In 2024, Navigate 10 Top Free Web Explorers for Remote Collaboration</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-prime-mkv-software-pc-and-android-for-2024/"><u>[Updated] Prime MKV Software PC & Android for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-infusing-realism-in-spark-ar-worlds-via-application-of-luts/"><u>2024 Approved Infusing Realism in Spark AR Worlds via Application of LUTs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/dissecting-and-ranking-cost-saving-clouds/"><u>Dissecting and Ranking Cost-Saving Clouds</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/guide-to-restoring-audio-functionality-when-devices-dont-show-up-in-windows-os/"><u>Guide to Restoring Audio Functionality when Devices Don't Show Up in Windows OS</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/guided-pathway-for-large-file-exchange-in-apple-ecosystem-for-2024/"><u>Guided Pathway for Large File Exchange in Apple Ecosystem for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-y17s-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo Y17s | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Poco M6 5G? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-remove-iphone-7-sim-lock-by-drfone-ios/"><u>In 2024, How to Remove iPhone 7 SIM Lock?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-the-ultimate-guide-10-cost-free-passport-image-makers/"><u>In 2024, The Ultimate Guide 10 Cost-Free Passport Image Makers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-ultimate-selection-of-compact-on-the-move-players/"><u>The Ultimate Selection of Compact, On-The-Move Players</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/virtuary-a-beginners-vocabulary-primer-for-2024/"><u>Virtuary A Beginner’s Vocabulary Primer for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-easypodstream-how-to-set-up-and-broadcast-with-minimal-hassle/"><u>[New] EasyPodStream How To Set Up and Broadcast with Minimal Hassle</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-fabricate-a-one-of-a-kind-internet-joke/"><u>[New] Fabricate a One-of-a-Kind Internet Joke</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-embrace-adventures-with-panasonics-innovative-hx-a1-cam/"><u>[New] In 2024, Embrace Adventures with Panasonic's Innovative HX-A1 Cam</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-leading-aerial-footage-best-drone-editors-ranked-by-skill-level/"><u>[New] In 2024, Leading Aerial Footage Best Drone Editors Ranked by Skill Level</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-captivating-creations-utilizing-motion-blur-effects-in-ai/"><u>[Updated] In 2024, Captivating Creations Utilizing Motion Blur Effects in AI</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-typography-and-layout-the-top-10-for-ae/"><u>[Updated] Mastering Typography & Layout The Top 10 For AE</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-thorough-vsco-editor-user-manual/"><u>[Updated] Thorough VSCO Editor User Manual</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/best-bargains-of-the-month-top-amazon-discounts-and-offers-from-october-prime-day-2024-exclusive-selection/"><u>Best Bargains of the Month: Top Amazon Discounts & Offers From October Prime Day 2024 - Exclusive Selection</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/re-sony-vegas-for-high-impact-video-editing-on-youtube/"><u>Explore Sony Vegas for High-Impact Video Editing on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-puts-portals-on-the-move-with-go-version/"><u>Facebook Puts Portals on The Move with Go Version</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/harmonyheed-evaluating-audio-artifacts/"><u>HarmonyHeed Evaluating Audio Artifacts</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/introducing-the-ultra-slim-lg-gram-the-new-standard-in-portable-computing-tech-news/"><u>Introducing the Ultra-Slim LG Gram: The New Standard in Portable Computing - Tech News</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/reinforcing-windows-photo-viewer-functionality-in-windows-10-for-2024/"><u>Reinforcing Windows Photo Viewer Functionality in Windows 10 for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-nonfunctional-speakers-on-windows-11-systems-fixed/"><u>Troubleshooting Nonfunctional Speakers on Windows 11 Systems [FIXED]</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/vive-review-where-real-and-virtual-collide-for-maximum-impact-for-2024/"><u>Vive Review Where Real and Virtual Collide for Maximum Impact for 2024</u></a></li>
 </ul></div>
 

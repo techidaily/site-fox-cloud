@@ -1,7 +1,7 @@
 ---
 title: "Reinforcing Windows Photo Viewer Functionality in Windows 10 for 2024"
-date: 2024-11-03T04:00:01.354Z
-updated: 2024-11-06T16:53:32.486Z
+date: 2024-11-10T16:06:20.391Z
+updated: 2024-11-17T16:13:01.085Z
 tags: 
   - screen-recording
   - ai video
@@ -63,10 +63,10 @@ Here is why they want to restore Windows Photo Viewer –
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 1 to restore Windows Photo Viewer
@@ -77,22 +77,15 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -109,22 +102,16 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -133,6 +120,13 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,17 +153,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-best-tips-to-use-zoom-on-chromebook/"><u>[New] Best Tips to Use Zoom on Chromebook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-revolutionize-your-clips-with-the-latest-vida-tools-for-2024/"><u>[New] Revolutionize Your Clips with the Latest Vida Tools for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-visual-perfection-discover-the-best-of-9-live-stream-filters/"><u>[New] Visual Perfection Discover the Best of 9 Live-Stream Filters</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-effortless-gameplay-enhancement-with-simple-screen-recorders-for-2024/"><u>[Updated] Effortless Gameplay Enhancement with Simple Screen Recorders for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-iconic-anime-intros-the-ultimate-collection/"><u>[Updated] Iconic Anime Intros The Ultimate Collection</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/expert-advice-on-fixing-finals-problem-tfla0002-strategies-and-solutions/"><u>Expert Advice on Fixing Finals Problem TFL_A0002: Strategies and Solutions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/first-steps-in-gopro-gear-selection-for-2024/"><u>First Steps in GoPro Gear Selection for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/guide-to-attending-the-202er-wwdc-event-remotely-insights-and-anticipated-announcements/"><u>Guide to Attending the 202Er WWDC Event Remotely: Insights & Anticipated Announcements</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-decoding-chroma-techniques-from-raw-footage-to-final-cut/"><u>In 2024, Decoding Chroma Techniques From Raw Footage to Final Cut</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-economical-vr-headsets-from-the-east/"><u>In 2024, Economical VR Headsets From the East</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-iphone-and-selfies-unite-our-top-8-gear-guide/"><u>In 2024, Iphone and Selfies Unite - Our Top #8 Gear Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-things-you-must-know-for-screen-mirroring-apple-iphone-12-pro-max-drfone-by-drfone-ios/"><u>In 2024, Things You Must Know for Screen Mirroring Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-bypassing-complexity-your-simple-guide-to-metaverse-avatars-for-2024/"><u>[New] Bypassing Complexity Your Simple Guide to Metaverse Avatars for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-copyright-clash-immediate-consequences-for-2024/"><u>[New] Copyright Clash, Immediate Consequences for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-navigating-price-variations-in-cloud-services/"><u>[New] Navigating Price Variations in Cloud Services</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-a-step-by-step-roadmap-for-masterful-instagram-photos/"><u>[Updated] 2024 Approved A Step-by-Step Roadmap for Masterful Instagram Photos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-elevate-your-work-with-6-pinnacle-nft-maker-tools/"><u>[Updated] 2024 Approved Elevate Your Work with 6 Pinnacle NFT Maker Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-step-by-step-to-activate-pip-in-youtube-iphone-app/"><u>[Updated] 2024 Approved Step-by-Step to Activate PIP in YouTube iPhone App</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-depth-motion-evaluation-2023/"><u>[Updated] In-Depth Motion Evaluation 2023</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-drones-key-parts-for-peak-performance/"><u>[Updated] Mastering Drones Key Parts for Peak Performance</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/capturing-perfect-voices-3-ipad-solutions-for-2024/"><u>Capturing Perfect Voices 3 iPad Solutions for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/elevate-your-gaming-setup-with-tv-tuning-guide/"><u>Elevate Your Gaming Setup with TV Tuning Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Poco C50 | Dr.fone</u></a></li>
 </ul></div>
 

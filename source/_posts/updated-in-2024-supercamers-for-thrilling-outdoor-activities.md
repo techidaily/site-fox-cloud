@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, SuperCamers for Thrilling Outdoor Activities"
-date: 2024-10-30T19:56:23.326Z
-updated: 2024-11-07T09:01:24.826Z
+date: 2024-11-12T16:18:49.257Z
+updated: 2024-11-17T16:22:18.005Z
 tags: 
   - screen-recording
   - ai video
@@ -81,18 +81,18 @@ With 3 axis type optical stabilization, built in GPS, waterproof casing and live
 
 ![Elmo QBIC MS-1](https://images.wondershare.com/filmora/article-images/elmo-qbic-ms-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here is a water resistant type wide angle camera unit that can be easily paired up with smart phones using Wi-Fi interface. It is a light weight device that offers 1080p video recording along with 5MP picture clarity and you can store huge data with its 64GB microSD card support. This camera offers wide angle view of 185 degrees and you can easily upload your footage to internet via live SD streaming feature.
 
 #### 4\. Drift Compass - $129.99
 
 ![Drift Compass](https://images.wondershare.com/filmora/article-images/Drift-Compass.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 With this camera you can captures stills at 8MP clarity and videos can be recorded with 1080p at 30fps whereas for 720p you can go ahead with 60fps. You can control complete functioning of camera via mobile device with the help of drift app. It battery can serve you for approximately two hours and it offers huge variety of mounting accessories.
 
@@ -115,10 +115,10 @@ This slim and compact camera is capable enough to serve users with 60fps at 1080
 ![Polaroid Cube+](https://images.wondershare.com/filmora/article-images/polaroid-cube-plus.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
@@ -130,10 +130,10 @@ Cube+ offers wide angle focus with 124 degree coverage lens and the magnetic bod
 ![Panasonic HX-A1](https://images.wondershare.com/filmora/article-images/bullet-shape-action-camera.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Its maximum weight is only about 1.6 ounce and size goes up to 3.3”. This versatile camera unit can capture videos at 1080p whereas waterproof and quad proof design allows divers to take this camera up to 5’ under water without any additional casing. You can easily mount Panasonic HX-A1 on board, bike and helmet while capturing everything in hands-free motion on the way.
@@ -141,6 +141,13 @@ Its maximum weight is only about 1.6 ounce and size goes up to 3.3”. This vers
 #### 9\. Narrative Clip - $199
 
 ![Narrative Clip](https://images.wondershare.com/filmora/article-images/Narrative-Clip-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Clip 2 is one of the ultra compact and portable camera units with very light weight and attractive design. This digital camera cannot shoot videos for you but in order to capture stills it makes awesome focus adjustments. The built in accelerometer of this camera helps action lovers to capture flipping photos with awesome clarity.
 
@@ -151,19 +158,6 @@ The Clip 2 is one of the ultra compact and portable camera units with very light
 It offers 16MP capabilities for stills along with 1080p at 30fps for videos. You can mount this camera on tripod and its creative shot capturing abilities allows users to go beyond imagination. This device is waterproof with 3.3’ rating and for more advanced controls you can operate it from Bluetooth, WI-Fi connectivity on android and iOS. The mounting accessories are offered by HTC separately as per need of user, you can easily buy them when it is time to be more adventurous with your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -190,22 +184,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-evaluating-dji-phantom-3s-advanced-capabilities-for-2024/"><u>[New] Evaluating DJI Phantom 3'S Advanced Capabilities for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-everything-uncovered-about-the-world-of-yt-shorts-for-2024/"><u>[New] Everything Uncovered About the World of YT Shorts for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-frame-freezing-banishing-blurry-bites-for-2024/"><u>[New] Frame Freezing Banishing Blurry Bites for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-from-zero-to-hero-with-photoshop-basics-in-snapseed/"><u>[New] From Zero to Hero with Photoshop Basics in Snapseed</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-ultimate-ranking-for-vraction-cams-not-like-gopro/"><u>[New] In 2024, The Ultimate Ranking for VR/Action Cams, Not Like GoPro</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-periscope-techniques-for-effective-livestreams/"><u>[New] Periscope Techniques for Effective Livestreams</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-mobile-experiences-ios-and-androids-vr-hits-for-2024/"><u>[New] Top Mobile Experiences IOS & Android's VR Hits for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-soundscape-symphony-magixs-audio-mastery-in-studio-suite/"><u>[Updated] 2024 Approved The Soundscape Symphony Magix's Audio Mastery in Studio Suite</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-channels-templates-at-no-charge/"><u>[Updated] Elevate Your Channels - Templates at No Charge</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-navigating-board-features-across-apple-android-and-windows-for-effective-online-collaboration/"><u>[Updated] In 2024, Navigating Board Features Across Apple, Android & Windows for Effective Online Collaboration</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-secrets-to-professional-streams-selecting-from-the-best-9-filters/"><u>[Updated] In 2024, Secrets to Professional Streams Selecting From the Best 9 Filters</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-jumpstart-your-youtube-venture-top-equipment-choices/"><u>[Updated] Jumpstart Your YouTube Venture Top Equipment Choices</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/budget-friendly-innovation-unveiling-a-remarkably-stylish-phone-for-less-than-200-insider-tips-from-zdnet/"><u>Budget-Friendly Innovation: Unveiling a Remarkably Stylish Phone for Less than $200 - Insider Tips From ZDNet</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/discovering-new-horizons-in-content-with-chatbots/"><u>Discovering New Horizons in Content With Chatbots</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/get-the-cheapest-hd-pet-camera-petcube-revealed/"><u>Get the Cheapest HD Pet Camera - Petcube Revealed</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/the-videographers-playbook-for-game-coverage-excellence/"><u>The Videographer’s Playbook for Game Coverage Excellence</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-the-best-free-video-compression-tools-for-ios-devices/"><u>Updated In 2024, The Best Free Video Compression Tools for iOS Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-breaking-down-tseries-income-strategy-on-youtube-platform/"><u>[New] 2024 Approved Breaking Down TSeries' Income Strategy on YouTube Platform</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-revolutionize-gaming-sounds-ps5ps4-edition/"><u>[New] 2024 Approved Revolutionize Gaming Sounds PS5/PS4 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-amplify-your-windows-photos-viewing-incorporating-artistic-filters-and-music-for-2024/"><u>[New] Amplify Your Windows Photos Viewing Incorporating Artistic Filters and Music for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-transform-your-iphone-footage-creating-and-editing-lengthened-visual-narratives/"><u>[New] In 2024, Transform Your iPhone Footage Creating & Editing Lengthened Visual Narratives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pazera-unleashed-a-deep-dive-into-audio-extractor-reviews-of-2024/"><u>[New] Pazera Unleashed A Deep Dive Into Audio Extractor Reviews of 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-stylish-profiles-easy-downloads/"><u>[New] Stylish Profiles, Easy Downloads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-15-simple-steps-to-convert-youtube-to-mpeg-effortlessly-for-2024/"><u>[Updated] 15 Simple Steps to Convert YouTube to MPEG Effortlessly for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-avoid-complexity-top-5-free-tools-for-effortless-gif-to-video-transformation/"><u>[Updated] Avoid Complexity Top 5 Free Tools for Effortless GIF to Video Transformation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-innovative-windows-media-cutting-tools/"><u>[Updated] Innovative Windows Media Cutting Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-premium-aerial-choices-for-high-quality-gopro-recordings/"><u>[Updated] Premium Aerial Choices For High-Quality GoPro Recordings</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-essential-insights-setting-up-streamlabs-on-mac-with-obs/"><u>In 2024, Essential Insights Setting Up Streamlabs on Mac with OBS</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-realme-11-proplus-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Realme 11 Pro+ Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-innovative-subtitle-edits-rank-the-top-10-programs/"><u>In 2024, Innovative Subtitle Edits – Rank the Top 10 Programs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-unveiling-techniques-for-pace-modification-on-snapchat-videos/"><u>In 2024, Unveiling Techniques for Pace Modification on Snapchat Videos</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/power-meets-some-puzzles-an-insightful-critique-of-the-viair-portable-air-compressor-model-88p/"><u>Power Meets Some Puzzles: An Insightful Critique of the Viair Portable Air Compressor Model 88P</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/premier-phone-editors-for-the-ultimate-gopro-experience/"><u>Premier Phone Editors for the Ultimate GoPro Experience</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/revolutionizing-action-video-with-polaroid-xs-100i/"><u>Revolutionizing Action Video with Polaroid XS 100I</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-converting-and-transferring-your-reading-library-from-kindle-to-kobo-clara-hd-e-reader/"><u>Step-by-Step Guide: Converting and Transferring Your Reading Library From Kindle to Kobo Clara HD E-Reader</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-y17s-by-fonelab-android-recover-data/"><u>Undelete lost data from Y17s</u></a></li>
 </ul></div>
 
