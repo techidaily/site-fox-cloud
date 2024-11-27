@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Opening Lines  Breaking the Ice in Video Comments for 2024\""
-date: 2024-11-10T16:09:18.173Z
-updated: 2024-11-17T16:32:16.462Z
+date: 2024-11-22T23:07:33.404Z
+updated: 2024-11-27T00:12:15.108Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ A YouTube subscriber is someone who has chosen to follow your channel and your c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How important is the subscriber to vloggers or content creator
 
 Building a strong and loyal subscriber base is very important when it comes to creating a strong online community. When a YouTube channel has many subscribers, it’s likely to get more targeted traffic, exposure and views.
@@ -43,19 +47,6 @@ Building a strong and loyal subscriber base is very important when it comes to c
 
 ## How to communicate with your Subscriber
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Replying to comments section
 
 One of the ways to communicate with your subscriber is to reply immediately in your comment section. Often after watching your video your subscriber comment their questions or whatever in the comment section of your video so don’t think twice to reply to their queries or comment.
@@ -63,13 +54,6 @@ One of the ways to communicate with your subscriber is to reply immediately in y
 Engagement is a huge buzz word in the social media space, often comments on a YouTube channel are left unanswered. By building trust with your viewers by answering questions, responding to comments and addressing issues, it will strengthen future and current relationships with your audience or subscriber. The faster you respond with useful information, the more happy and surprised your YouTube subscriber will be.
 
 ![reply youtube comments section](https://images.wondershare.com/filmora/article-images/2022/11/reply-youtube-comments-section.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Engaging with other People
 
@@ -82,17 +66,7 @@ In entering in some communities or groups, remember that these are communities a
 ![engage with other people youtube](https://images.wondershare.com/filmora/article-images/2022/11/engage-with-other-people-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Promoting your channel
@@ -102,6 +76,10 @@ Is one way to engage with your subscriber. Keep them updated, get in touch with 
 Usually subscriber don’t just ask questions in the comment section of your video on YouTube. When they see your other social media link, they go there and do private message you for their concerns because that is the best way for you to notice them. So you need also to check your other social media accounts, if you have subscribers there who comment and reply to them immediately if necessary.
 
 ![prompt your youtube channel](https://images.wondershare.com/filmora/article-images/2022/11/prompt-your-youtube-channel.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Steps How to communicate:**
 
@@ -115,13 +93,6 @@ Step4 Always end the video with a coming back for the next one with a subscribe 
 
 ## How to increase YouTube Subscribers
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Interact Constantly
 
 YouTube is an online community. It’s not just a place where people host videos. When you see this platform this way, you will use it to interact with people who visit it every day. Just like with other social media, the more you give on YouTube.
@@ -129,6 +100,10 @@ YouTube is an online community. It’s not just a place where people host videos
 Be sure to encourage comments in your videos, as well as taking the time to answer the comments on your videos to start driving greater visibility to your content.
 
 The more comments and interaction one of your videos has, the more value YouTube and google search algorithm places on it for certain searches. It’s one the many factors this algorithm takes into account when determining what videos to rank for what key phrases being searched.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Asking for subscribers
 
@@ -163,6 +138,14 @@ Its not enough to be posting weekly videos with you tips and content. Using your
 One of the important things to do as a YouTuber is to give importance to subscribers because they are the reason why a YouTube channel becomes popular, they also the reason why your channel recognized by many. Viewers and subscribers must treat as your family, always reply to their comment and follow what they have suggested. Don’t forget also to give them a treat by giving them some gifts or allow them to join to your giveaways.
 
 ![youtube video engaging tips](https://images.wondershare.com/filmora/article-images/2022/11/youtube-video-engaging-tips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -204,22 +187,20 @@ Creating videos on YouTube is key to your video marketing and content marketing 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-discover-the-best-html5-video-players-around/"><u>[New] 2024 Approved Discover the Best HTML5 Video Players Around</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-breaking-boundaries-with-metaverse-humor-a-guide-for-you/"><u>[New] Breaking Boundaries with Metaverse Humor A Guide for You</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-esteemed-endorsement-elite-websites-for-downloading-snapalerts/"><u>[Updated] In 2024, Esteemed Endorsement Elite Websites for Downloading SnapAlerts</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-gopro-camera-rewind-selecting-superior-sd-cards-hero-7-8/"><u>[Updated] In 2024, GoPro Camera Rewind Selecting Superior SD Cards (Hero 7, 8)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-hone-your-hashtag-game-tripled-traffic-6kplus-vistas/"><u>[Updated] In 2024, Hone Your Hashtag Game Tripled Traffic, $6K+ Vistas</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-innovative-mobile-multimedia-tools-to-transform-photos/"><u>[Updated] In 2024, Innovative Mobile Multimedia Tools to Transform Photos</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-transform-your-avi-images-from-video-to-graphics-using-filmora/"><u>[Updated] In 2024, Transform Your AVI Images From Video To Graphics Using Filmora</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/choosing-the-optimal-power-source-for-advanced-drones/"><u>Choosing the Optimal Power Source for Advanced Drones</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/considerations-regulieres-pour-windows-video-ia-questions-souvent-posees-avec-des-answers-valides/"><u>Considérations Régulières Pour Windows Video IA : Questions Souvent Posées Avec Des Answers Valides</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/discover-the-ultimate-multifunction-charger-compact-high-performance-8-in-1-adapters-that-defy-expectations/"><u>Discover the Ultimate Multifunction Charger: Compact, High-Performance 8-in-1 Adapters That Defy Expectations</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/expertly-ranked-best-netgear-wireless-routers/"><u>Expertly Ranked Best Netgear Wireless Routers</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-honor-play-8t-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Honor Play 8T Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-watch-youtube-green-screen-videos-and-get-your-green-screen-ideas/"><u>In 2024, Watch Youtube Green Screen Videos and Get Your Green Screen Ideas</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/stay-incognito-how-to-stream-unnoticed-on-instagram-for-2024/"><u>Stay Incognito How to Stream Unnoticed on Instagram for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/strategize-reach-the-top-of-every-game-milestone-list/"><u>Strategize: Reach the Top of Every Game Milestone List</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-actual-fix-for-exporting-srt-from-premiere-not-working/"><u>The Actual Fix for Exporting SRT From Premiere Not Working</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-zen-of-zoom-perfecting-your-video-experience/"><u>The Zen of Zoom Perfecting Your Video Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unlocking-kinemasters-fullscreen-magic/"><u>[New] 2024 Approved Unlocking KineMaster's Fullscreen Magic</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamline-your-in-game-communication-pioneering-tips-for-vocal-modifications-pubg/"><u>[New] Streamline Your In-Game Communication Pioneering Tips for Vocal Modifications (PUBG)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-tackle-chromes-inability-to-load-fb-videos/"><u>[New] Tackle Chrome's Inability to Load FB Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-isolating-pictures-from-video-frames-in-photos-app/"><u>[Updated] 2024 Approved Isolating Pictures From Video Frames in Photos App</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-quantity-of-videos-on-128gb-storage-media-for-2024/"><u>[Updated] Quantity of Videos on 128GB Storage Media for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-tutorial-for-lut-use-in-after-effects/"><u>[Updated] The Ultimate Tutorial for LUT Use in After Effects</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/guide-fixing-startechs-driver-compatibility-challenges-across-windows-10-8-and-7-systems/"><u>Guide: Fixing StarTech's Driver Compatibility Challenges Across Windows 10, 8 & 7 Systems</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-does-microsoft-office-vary-across-windows-and-mac-operating-systems/"><u>How Does Microsoft Office Vary Across Windows and Mac Operating Systems?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-restore-brightness-settings-in-windows-10-when-they-stop-responding/"><u>How to Restore Brightness Settings in Windows 10 When They Stop Responding</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/human-expertise-overstated-5-cautionary-tales/"><u>Human Expertise Overstated? 5 Cautionary Tales</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-explore-the-finest-iosdesktop-video-to-file-converters/"><u>In 2024, Explore the Finest iOS/Desktop Video to File Converters</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-fiscal-flyers-list-least-expensive-drones-in-market/"><u>In 2024, Fiscal Flyers' List Least Expensive Drones in Market</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-tecno-spark-10-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Tecno Spark 10 5G Phone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unlocking-creativity-top-20-vlogger-themes-for-2024/"><u>Unlocking Creativity Top 20 Vlogger Themes for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-cheap-but-powerful-video-editing-software/"><u>Updated In 2024, Cheap but Powerful Video Editing Software</u></a></li>
 </ul></div>
 

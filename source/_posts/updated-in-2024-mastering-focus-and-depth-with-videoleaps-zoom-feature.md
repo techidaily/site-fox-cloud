@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastering Focus and Depth with Videoleap's Zoom Feature"
-date: 2024-11-13T16:35:18.634Z
-updated: 2024-11-17T16:05:46.002Z
+date: 2024-11-22T09:35:14.405Z
+updated: 2024-11-27T02:11:20.942Z
 tags: 
   - screen-recording
   - ai video
@@ -44,12 +44,24 @@ Videoleap is famous for providing the best video editing features to its users a
 
 ![transform vdieo videoleap](https://images.wondershare.com/filmora/article-images/2022/07/transform-vdieo-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, in the preview window where all the clips are shown, pinch in or out to zoom into the video or vice versa until you get a desired portion of the screen.
 
 ![zoom into videoleap](https://images.wondershare.com/filmora/article-images/2022/07/zoom-into-videoleap.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now play the video after zooming in by clicking on the "play" button and check whether the zoom effect has been added to your video project or not.
 * After you are satisfied, save the project and export it at your preference to your computer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Animate the Zoom effect in Videoleap
 
@@ -60,23 +72,13 @@ Sometimes the video contents need a dramatic zoom effect that should take place 
 
 ![preview timeline videoleap](https://images.wondershare.com/filmora/article-images/2022/07/preview-timeline-videoleap.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Then select the "keyframes" tool from the toolbar at the bottom of your screen.
 * Add the keyframes to the desired portion of the video and then navigate the timecode to the place on the timeline where you want to stop it. After that add another keyframe at that point and pinch in to zoom the video.
 
 ![add keyframes videoleap](https://images.wondershare.com/filmora/article-images/2022/07/add-keyframes-videoleap.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now head to the second time code where you want to focus the subject and then click on it. Then click on the "Preview" icon and see whether it needs further changes.
@@ -95,13 +97,6 @@ If for some reason you are not able to install and use Videoleap on your system 
 * Open the Filmora application on your PC and then select the video file that you want to edit. Then select the "Pan and Zoom" option available from the toolbar.
 
 ![open the filmora application on pc](https://images.wondershare.com/filmora/guide/pan-zoom-feature-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * This will open 4 different types of tools regarding zoom functions. The first tool will help you to go from larger frames to smaller frames by zooming in. Thus, you can use this feature to bring details to a subject in your video. The second option helps you with zooming out from a smaller frame to a larger frame.
 * The third and fourth tools will help you achieve the Pan function from left to right and right to left respectively. This panning will be on a horizontal axis. You can also pan your video screen by using your mouse too.
@@ -128,10 +123,7 @@ Videoleap is one of the leading video editing platforms available out there. The
 * When you are done with your editing process, save the video and the file will be exported to your PC.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -166,18 +158,20 @@ Videoleap is one of the leading video editing platforms available out there. The
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-in-depth-look-at-inshot-video-editing-powerhouse/"><u>[New] 2024 Approved In-Depth Look at InShot Video Editing Powerhouse?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mighty-machines-meet-thieyes-t5-vs-jcb-sjcam-s6/"><u>[New] 2024 Approved Mighty Machines Meet Thieye's T5 Vs JCB SJCAM S6</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-from-novice-to-expert-navigating-telegram-web-for-2024/"><u>[New] From Novice to Expert Navigating Telegram Web for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-virtualsonic-mix-mac-and-windows/"><u>[New] In 2024, VirtualSonic Mix Mac & Windows</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-top-10-virtual-backdrops-swap-effortlessly-with-picsmagic/"><u>[New] Top 10 Virtual Backdrops Swap Effortlessly with PicsMagic</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-glacial-glory-pinnacle-sports-achievements/"><u>[Updated] 2024 Approved Glacial Glory Pinnacle Sports Achievements</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-expert-techniques-for-ps4-gameplay-documentation/"><u>[Updated] Expert Techniques for PS4 Gameplay Documentation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-troubleshooting-tips-fixing-srt-from-premiere-freeze/"><u>[Updated] In 2024, Troubleshooting Tips Fixing SRT From Premiere Freeze</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-picture-perfection-choosing-the-best-camera-positions-on-iphone-for-2024/"><u>[Updated] Picture Perfection Choosing the Best Camera Positions on iPhone for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixes-implemented-successfully-getting-sea-of-thieves-running-smoothly/"><u>Fixes Implemented: Successfully Getting Sea of Thieves Running Smoothly</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-oneplus-nord-n30-se-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On OnePlus Nord N30 SE</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-rated-mac-mouse-picks-your-ultimate-guide/"><u>Top-Rated Mac Mouse Picks : Your Ultimate Guide</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/troubleshoot-corrupted-dji-drone-recordings-expert-tips-to-restore-phantom-video-playback-issues/"><u>Troubleshoot Corrupted DJI Drone Recordings – Expert Tips to Restore Phantom Video Playback Issues</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unleashing-potential-gopro-karmas-journey-for-2024/"><u>[New] Unleashing Potential GoPro Karma's Journey for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unraveling-freeze-frames-in-photobooth-recordings/"><u>[New] Unraveling Freeze Frames in Photobooth Recordings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-fuel-the-fire-top-videos-that-inspire-audiences/"><u>[Updated] 2024 Approved Fuel the Fire Top Videos That Inspire Audiences</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unveiling-vllo-usability-stories/"><u>[Updated] 2024 Approved Unveiling VLLO Usability Stories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-gb-required-for-one-full-movie-hour-by-hour/"><u>[Updated] In 2024, GB Required for One Full Movie, Hour by Hour</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-sj7s-latest-4k-star-cam-a-revolutionary-action-recorder/"><u>[Updated] In 2024, SJ7's Latest 4K Star Cam - A Revolutionary Action Recorder</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-depth-examination-of-videoshow-24-for-2024/"><u>[Updated] In-Depth Examination of VideoShow '24 for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-cuddly-creatures-galore-best-android-wildlife-titles/"><u>2024 Approved Cuddly Creatures Galore Best Android Wildlife Titles</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/capturing-life-from-above-yuneec-breeze-experience-for-2024/"><u>Capturing Life From Above Yuneec Breeze Experience for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-realme-c33-2023-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Realme C33 2023 for Parents | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-a2-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi A2 Phone FRP Lock</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-definitive-process-for-terminating-your-yahoo-mail-presence-permanently/"><u>The Definitive Process for Terminating Your Yahoo Mail Presence Permanently</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-essential-hubs-for-online-connection-unpacking-facebook-twitter-instagram-and-youtubes-impact/"><u>The Essential Hubs for Online Connection: Unpacking Facebook, Twitter, Instagram & Youtube's Impact</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unveiling-yuneecs-typhoon-h-an-aerial-powerhouse-review/"><u>Unveiling Yuneec’s Typhoon H An Aerial Powerhouse Review</u></a></li>
 </ul></div>
 

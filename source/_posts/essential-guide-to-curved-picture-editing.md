@@ -1,7 +1,7 @@
 ---
 title: "Essential Guide to Curved Picture Editing"
-date: 2024-08-28T07:13:53.254Z
-updated: 2024-08-29T07:13:53.254Z
+date: 2024-11-22T20:57:52.122Z
+updated: 2024-11-27T02:11:23.252Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ After creating the new document, open the image that you want to curve. You may 
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Warp the Image
 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
@@ -54,9 +58,17 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
@@ -67,6 +79,14 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -100,8 +120,26 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-unlocking-efficiency-how-to-document-your-google-collaborations/"><u>[New] 2024 Approved Unlocking Efficiency How to Document Your GooGle Collaborations</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-capturing-knowledge-three-approaches-with-mac/"><u>[New] Capturing Knowledge Three Approaches with Mac</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-aerial-artistry-essential-steps-for-drone-video-excellence/"><u>[New] In 2024, Aerial Artistry Essential Steps for Drone Video Excellence</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-bridging-gaps-video-platforms-brands-and-collaborative-success/"><u>[New] In 2024, Bridging Gaps Video Platforms, Brands & Collaborative Success</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-action-cam-battle-gopro-hero5-and-sj7-star/"><u>[New] In 2024, Top Action Cam Battle GoPro Hero5 & SJ7 Star</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-key-strategies-for-harvesting-free-photo-frames/"><u>[New] Key Strategies for Harvesting Free Photo Frames</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-prime-steadicam-devices-for-drones-in-filmmaking/"><u>[New] Prime Steadicam Devices for Drones in Filmmaking</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-finns-fortune-flux-earnings-examination-for-2024/"><u>[Updated] Finn's Fortune Flux Earnings Examination for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-enhancing-video-quality-on-youtube/"><u>[Updated] In 2024, Enhancing Video Quality on YouTube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-snap-with-precision-essential-camera-angles-for-images/"><u>[Updated] Snap with Precision Essential Camera Angles for Images</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-bypass-latency-with-av1-in-youtube-settings/"><u>2024 Approved Bypass Latency with AV1 in YouTube Settings</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unplug-and-replay-twitch-livestream-techniques/"><u>2024 Approved Unplug and Replay Twitch Livestream Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discipline-managing-your-connection-with-facebook/"><u>Digital Discipline: Managing Your Connection with Facebook</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-top-tier-hardware-solutions-a-spotlight-on-toms-equipment-reviews/"><u>Exploring Top-Tier Hardware Solutions - A Spotlight on Tom's Equipment Reviews</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/immerse-in-depths-with-a-trusty-sidekick-the-insta360-one-x2/"><u>Immerse in Depths with a Trusty Sidekick - The Insta360 One X2</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-tecno-spark-20c-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Tecno Spark 20C Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-full-spectrum-visual-creativity-with-vsco/"><u>In 2024, Full Spectrum Visual Creativity with VSCO</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/premium-free-template-pack-top-titles-for-ae-dreamers-for-2024/"><u>Premium FREE Template Pack Top Titles for AE Dreamers for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-nubia-red-magic-9-proplus-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Nubia Red Magic 9 Pro+ Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

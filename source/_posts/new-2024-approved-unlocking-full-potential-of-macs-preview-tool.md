@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlocking Full Potential of Mac's Preview Tool\""
-date: 2024-11-16T16:31:54.203Z
-updated: 2024-11-17T16:35:38.505Z
+date: 2024-11-25T12:23:16.897Z
+updated: 2024-11-27T08:40:29.251Z
 tags: 
   - screen-recording
   - ai video
@@ -35,18 +35,15 @@ That said, the sections below explain **how to use Preview on Mac** for elementa
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
 
@@ -61,6 +58,10 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Show Markup Tools in Preview on Mac
 
@@ -77,16 +78,7 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Crop in Preview
@@ -117,13 +109,6 @@ Use the method explained above to open the photo in Preview.
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -141,10 +126,7 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -190,6 +172,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -250,20 +236,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-expediting-windows-file-reviews-with-ease-for-2024/"><u>[New] Expediting Windows File Reviews with Ease for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elevate-your-ride-with-these-10-sj4000-essentials/"><u>[New] In 2024, Elevate Your Ride with These 10 SJ4000 Essentials</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-discover-free-and-paid-luts-for-profound-canon-camera-effects/"><u>[Updated] 2024 Approved Discover Free & Paid LUTs for Profound Canon Camera Effects</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-best-photo-background-blur-apps-for-iphone-and-android-for-2024/"><u>[Updated] Best Photo Background Blur Apps for iPhone and Android for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-essentials-in-filming-adventure-vlogs-for-2024/"><u>[Updated] Essentials in Filming Adventure Vlogs for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-adapting-your-favorite-songs-from-spotify-to-youtube-music-service/"><u>[Updated] In 2024, Adapting Your Favorite Songs From Spotify to YouTube Music Service</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-secrets-to-selecting-the-best-online-game-coverage/"><u>[Updated] In 2024, Secrets to Selecting the Best Online Game Coverage</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-picture-text-enhancement-for-2024/"><u>[Updated] The Ultimate Guide to Picture Text Enhancement for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-lava-blaze-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/exploring-the-virtual-frontier-googles-cardboard-meets-samsung-gear-for-2024/"><u>Exploring the Virtual Frontier Google's Cardboard Meets Samsung Gear for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-pajama-plots-reviewed-analyzing-childrens-video-stories/"><u>In 2024, Pajama Plots Reviewed Analyzing Children's Video Stories</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-immediate-collage-making-for-social-sharing/"><u>Mastering Immediate Collage Making for Social Sharing</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/sophisticated-ai-enhancing-educational-outcomes/"><u>Sophisticated AI Enhancing Educational Outcomes</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/unable-to-locate-content-internet-page-missing-error-code-404/"><u>Unable To Locate Content - Internet Page Missing (Error Code ^[4]04)</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-if-higher-payments-yield-superior-ai-results/"><u>Understanding if Higher Payments Yield Superior AI Results</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pinnacle-players-list-best-google-cardboard-vr-game-titles/"><u>[New] In 2024, Pinnacle Players' List Best Google Cardboard VR Game Titles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-prime-aviation-gadgets-purchase-now/"><u>[New] In 2024, Prime Aviation Gadgets, Purchase Now</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-flawless-footage-finishing-integrating-filters-in-viewing-devices/"><u>[Updated] 2024 Approved Flawless Footage Finishing Integrating Filters in Viewing Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-boosting-in-game-charisma-pubg-voice-techniques/"><u>[Updated] Boosting In-Game Charisma PUBG Voice Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevate-listener-engagement-seo-strategies-for-podcasts-for-2024/"><u>[Updated] Elevate Listener Engagement Seo Strategies for Podcasts for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pioneering-programs-3d-animation-crafting-for-2024/"><u>[Updated] Pioneering Programs 3D Animation Crafting for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-professional-streaming-made-simple-in-obs-studio-android-edition-for-2024/"><u>[Updated] Professional Streaming Made Simple in OBS Studio, Android Edition for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-introduce-natural-photo-smear-in-ps/"><u>2024 Approved Introduce Natural Photo Smear in PS</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-premier-transcriber-platform-video-to-writing/"><u>2024 Approved Premier Transcriber Platform Video to Writing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-soothing-stories-in-video-form-insights-and-critiques/"><u>2024 Approved Soothing Stories in Video Form Insights and Critiques</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-top-techniques-for-flawless-distance-audio-capture/"><u>2024 Approved Top Techniques for Flawless Distance Audio Capture</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/graduating-from-novice-to-3d-lut-maestro-for-2024/"><u>Graduating From Novice to 3D LUT Maestro for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-laptoppc-editors-steer-clear-of-inshot/"><u>In 2024, Laptop/PC Editors Steer Clear of Inshot</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premium-extensions-catalog-ae-edition/"><u>Premium Extensions Catalog AE Edition</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/top-10-professional-video-editing-software-free-download/"><u>Top 10 Professional Video Editing Software Free Download</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] '3DR'  The Soloist’s Voyage in 3D Printing Tech\""
-date: 2024-11-11T16:18:23.537Z
-updated: 2024-11-17T16:01:26.066Z
+date: 2024-11-21T17:41:36.479Z
+updated: 2024-11-27T07:32:18.785Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/a1972899444c7fd6c447adfaf7d10b9ab8c7ebd02
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons of 3DR Solo
 
 **Pros:**
@@ -54,10 +58,7 @@ thumbnail: https://thmb.techidaily.com/a1972899444c7fd6c447adfaf7d10b9ab8c7ebd02
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Complete Review
@@ -80,10 +81,7 @@ thumbnail: https://thmb.techidaily.com/a1972899444c7fd6c447adfaf7d10b9ab8c7ebd02
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
@@ -103,10 +101,7 @@ thumbnail: https://thmb.techidaily.com/a1972899444c7fd6c447adfaf7d10b9ab8c7ebd02
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
@@ -124,10 +119,7 @@ thumbnail: https://thmb.techidaily.com/a1972899444c7fd6c447adfaf7d10b9ab8c7ebd02
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -155,24 +147,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-aviation-gaming-the-ultimate-drone-race-course-and-best-models-for-2024/"><u>[New] Aviation Gaming The Ultimate Drone Race Course and Best Models for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-exploring-virtual-reality-lgs-360-degree-experience-for-2024/"><u>[New] Exploring Virtual Reality LG's 360-Degree Experience for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-delicate-visual-initiation/"><u>[New] In 2024, Delicate Visual Initiation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-elite-8-cameras-revolutionizing-online-broadcasts/"><u>[New] In 2024, Elite 8 Cameras Revolutionizing Online Broadcasts</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-guide-to-blending-multiple-exposures-into-a-single-hdr-in-lightroom/"><u>[New] In 2024, The Ultimate Guide to Blending Multiple Exposures Into a Single HDR in Lightroom</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unlock-your-hero5-expert-guides-to-stunning-images-and-movies/"><u>[New] In 2024, Unlock Your Hero5 Expert Guides to Stunning Images & Movies</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-prestigious-music-archives-for-vfx-artists/"><u>[New] Prestigious Music Archives for VFX Artists</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-step-by-step-strategies-downloading-audio-on-iphones-for-2024/"><u>[New] Step-by-Step Strategies Downloading Audio on iPhones for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-unwind-twitch-feeds-immediately-for-2024/"><u>[New] Unwind Twitch Feeds Immediately for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-tap-out-of-tiktok-clutter-editing-guide-for-massive-drafts-for-2024/"><u>[Updated] Tap Out of TikTok Clutter Editing Guide for Massive Drafts for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-fading-techniques-for-less-intensity-in-logic-pro-tracks/"><u>2024 Approved Mastering Fading Techniques for Less Intensity in Logic Pro Tracks</u></a></li>
-<li><a href="https://win-blog.techidaily.com/conquering-high-fps-game-lags-a-comprehensive-tutorial-for-gamers/"><u>Conquering High-FPS Game Lags: A Comprehensive Tutorial for Gamers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-12plus-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on 12+ 5G</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-kinemasters-guide-engineering-impeccable-video-continuity/"><u>In 2024, Kinemaster's Guide Engineering Impeccable Video Continuity</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-honor-magic-5-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Honor Magic 5 FRP Without Computer</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/laugh-loom-robotic-deadlines-for-2024/"><u>Laugh Loom Robotic Deadlines for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-rated-vpn-apps-for-ios-comprehensive-testing-and-reviews-by-experts/"><u>Top-Rated VPN Apps for iOS: Comprehensive Testing & Reviews by Experts</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unlock-a-gamers-dream-secure-free-xbox-game-pass-and-fire-tv-stick-bundle-up-to-33-discount-dont-miss-this-epic-post-prime-day-offer-by-zdnet/"><u>Unlock a Gamer's Dream: Secure Free Xbox Game Pass & Fire TV Stick Bundle Up to 33% Discount – Don't Miss This Epic Post-Prime Day Offer by ZDNET!</u></a></li>
-<li><a href="https://win-dash.techidaily.com/updated-nvidia-quadro-rtx-8000-graphics-card-drivers-supports-windows-11-8-and-7-operating-systems/"><u>Updated Nvidia Quadro RTX 8000 Graphics Card Drivers: Supports Windows 11, 8 & 7 Operating Systems</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-efficiently-producing-quality-videos-on-the-latest-windows-os-for-2024/"><u>[New] Efficiently Producing Quality Videos on the Latest Windows OS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-elevating-your-work-with-dynamic-hdr-techniques/"><u>[New] Elevating Your Work with Dynamic HDR Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-enhancing-your-nba-viewing-with-smart-techniques/"><u>[New] Enhancing Your NBA Viewing with Smart Techniques</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-complete-guide-twitter-reaction-videos/"><u>[Updated] 2024 Approved Complete Guide | Twitter Reaction Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlocking-the-power-of-zoom-with-your-chrome-os-device/"><u>[Updated] 2024 Approved Unlocking the Power of Zoom with Your Chrome OS Device</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-expert-tips-elevating-your-projects-with-movie-maker-in-win11-for-2024/"><u>[Updated] Expert Tips Elevating Your Projects with Movie Maker in Win11 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-decoding-the-magic-of-full-sphere-video/"><u>[Updated] In 2024, Decoding the Magic of Full Sphere Video</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premier-5-ios-backdrop-change-applications-for-iphones-x-8-7/"><u>[Updated] Premier 5 iOS Backdrop Change Applications for iPhones (X, 8, 7)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-quick-guide-bypassing-edgenuity-courses-seamlessly/"><u>[Updated] Quick Guide Bypassing Edgenuity Courses Seamlessly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-experts-list-of-tools-for-accelerating-your-facebook-vids-for-2024/"><u>[Updated] The Expert's List of Tools for Accelerating Your Facebook Vids for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-laptop-and-web-navigating-live-video-communication-in-whatsapp/"><u>2024 Approved Laptop & Web Navigating Live Video Communication in WhatsApp</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabled-apple-iphone-12-mini-how-to-unlock-a-disabled-apple-iphone-12-mini-drfone-by-drfone-ios/"><u>Disabled Apple iPhone 12 mini How to Unlock a Disabled Apple iPhone 12 mini? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-oppo-a78-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Oppo A78 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-nubia-red-magic-8s-proplus-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-metaverse-wisdom-a-compilation-of-inspiring-thoughts/"><u>In 2024, Metaverse Wisdom A Compilation of Inspiring Thoughts</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/1728481701925-itunes/"><u>ITunes 快速重置實用指南: 三大方法維修後的完美順暢</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/al-sizing-for-youtube-thumbnail-impact/"><u>Optimal Sizing for YouTube Thumbnail Impact</u></a></li>
 </ul></div>
 

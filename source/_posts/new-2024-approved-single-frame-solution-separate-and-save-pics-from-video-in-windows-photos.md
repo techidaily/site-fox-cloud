@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Single-Frame Solution  Separate and Save Pics From Video in Windows Photos\""
-date: 2024-11-16T16:03:32.977Z
-updated: 2024-11-17T16:23:51.481Z
+date: 2024-11-25T04:33:48.136Z
+updated: 2024-11-27T00:33:18.987Z
 tags: 
   - screen-recording
   - ai video
@@ -52,6 +52,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -61,26 +65,21 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Check the update
 
@@ -103,21 +102,11 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -126,10 +115,7 @@ We provided you some knowledge on how to save a photo from video Windows 10 Phot
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -157,18 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-exploring-chromatics-from-theory-to-tangible/"><u>[New] 2024 Approved Exploring Chromatics From Theory to Tangible</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-days-viewing-assessing-file-size-in-gb-for-2024/"><u>[New] Day's Viewing Assessing File Size in GB for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-quickly-change-the-pace-of-videos-in-your-instagram-feed/"><u>[New] Quickly Change the Pace of Videos in Your Instagram Feed</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-how-to-sell-your-brand-through-innovative-youtuber-collaborations/"><u>[Updated] How To Sell Your Brand Through Innovative YouTuber Collaborations</u></a></li>
-<li><a href="https://techtrends.techidaily.com/2024dvd/"><u>「ベスト! 幼いこどもが好むディズニーアニメ2024年版DVDコレクション」</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-vivo-y27s-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Vivo Y27s</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ai-infused-inspiration-5-groundbreaking-writing-tools/"><u>AI-Infused Inspiration: 5 Groundbreaking Writing Tools</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/how-to-record-mov-files-on-windows-11/"><u>How to Record MOV Files on Windows 11</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-become-a-zoom-champion-in-minutes/"><u>In 2024, Become a Zoom Champion in Minutes</u></a></li>
-<li><a href="https://win11.techidaily.com/resolving-onedrive-login-issues-in-windows-systems/"><u>Resolving OneDrive Login Issues in Windows Systems</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-meme-gurus-list-of-the-best-designs-10/"><u>The Meme Guru's List of the Best Designs #10</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-guide-opening-your-logiteche-games-without-a-glitch/"><u>Troubleshooting Guide: Opening Your Logiteche Games Without a Glitch</u></a></li>
-<li><a href="https://fox-that.techidaily.com/why-is-it-difficult-to-use-idevices-for-mail-gifting/"><u>Why Is It Difficult to Use iDevices for Mail Gifting?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elevate-your-photography-experience-on-windows-11-filters-and-music-playback/"><u>[New] 2024 Approved Elevate Your Photography Experience on Windows 11 Filters and Music Playback</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-hosting-charismatic-chats-keeping-audiences-hooked-live-for-2024/"><u>[New] Hosting Charismatic Chats Keeping Audiences Hooked Live for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-fun-at-no-cost-top-quality-gratuitous-meme-templates/"><u>[New] In 2024, Fun at No Cost Top Quality, Gratuitous Meme Templates</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-master-class-on-cutting-unwanted-backdrops/"><u>[New] In 2024, Master Class on Cutting Unwanted Backdrops</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-craft-your-first-short-film-with-windows-8-movie-maker/"><u>[Updated] 2024 Approved Craft Your First Short Film with Windows 8 Movie Maker</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elevate-professional-visuals-the-definitive-guide-to-vce-22-for-2024/"><u>[Updated] Elevate Professional Visuals The Definitive Guide to VCE 2.2 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ultimate-action-cams-face-off-black-and-star/"><u>[Updated] In 2024, Ultimate Action Cams Face-Off Black & Star</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-no-money-down-for-vfx-wizards-exclusive-video-tutorials-on-free-green-screen-techniques-from-top-channels/"><u>[Updated] No Money Down for VFX Wizards Exclusive Video Tutorials on Free Green Screen Techniques From Top Channels</u></a></li>
+<li><a href="https://techtrends.techidaily.com/best-auto-clicking-tools-for-android-users-seeking-easy-installations/"><u>Best Auto-Clicking Tools for Android Users Seeking Easy Installations</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/cambia-i-tuoi-audioclip-da-m4a-a-avi-gratuitamente-on-line-guida-completa-di-movavi/"><u>Cambia I Tuoi Audioclip Da M4A a AVI Gratuitamente On-Line: Guida Completa Di Movavi</u></a></li>
+<li><a href="https://network-issues.techidaily.com/immediate-fix-for-laptop-distorted-angles/"><u>Immediate Fix for Laptop Distorted Angles</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-crafting-captivating-unboxing-reels-top-tips-for-success-on-instagram/"><u>In 2024, Crafting Captivating Unboxing Reels Top Tips for Success on Instagram</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-from-zero-to-hero-establishing-a-new-social-media-presence-facebook/"><u>In 2024, From Zero to Hero Establishing a New Social Media Presence (Facebook)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-mastering-the-craft-of-online-title-perfection/"><u>In 2024, Mastering the Craft of Online Title Perfection</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-ranking-the-best-camcorders-review-guide/"><u>In 2024, Ranking the Best Camcorders Review Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-italys-sudden-restriction-on-chatgpt-usage-a-closer-look-at-the-causes/"><u>Understanding Italy's Sudden Restriction on ChatGPT Usage - A Closer Look at the Causes</u></a></li>
 </ul></div>
 
