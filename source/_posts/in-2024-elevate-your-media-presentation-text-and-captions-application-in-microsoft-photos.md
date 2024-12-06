@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elevate Your Media Presentation  Text & Captions Application in Microsoft Photos\""
-date: 2024-08-28T07:10:39.400Z
-updated: 2024-08-29T07:10:39.400Z
+date: 2024-11-30T20:56:14.792Z
+updated: 2024-12-06T19:37:56.300Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,18 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
@@ -62,6 +70,10 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -72,11 +84,12 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -84,8 +97,9 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +123,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-pro-tips-for-impressive-gopro-time-lapse-cinematography/"><u>[New] In 2024, Pro Tips for Impressive GoPro Time-Lapse Cinematography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unraveling-the-fabric-of-augmented-realities/"><u>[New] In 2024, Unraveling the Fabric of Augmented Realities</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-vid-confessions-a-key-to-brand-success/"><u>[New] In 2024, Vid Confessions A Key to Brand Success?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ultimate-list-the-best-vr-game-advancements/"><u>[New] Ultimate List The Best VR Game Advancements</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-aesthetic-innovations-showcase/"><u>[Updated] 2024 Approved Aesthetic Innovations Showcase</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-barely-there-to-top-rated-the-youtube-growth-arc/"><u>[Updated] In 2024, From Barely There to Top Rated The Youtube Growth Arc</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-strategizing-success-the-open-door-approach/"><u>[Updated] Strategizing Success The Open Door Approach</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-non-operational-windows-rules-in-office-365/"><u>Addressing Non-Operational Windows Rules in Office 365</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-timeless-entertainment-premier-dvd-collections-of-top-100-vintage-tv-shows-for-a-great-deal/"><u>Discover Timeless Entertainment: Premier DVD Collections of Top 100 Vintage TV Shows for a Great Deal!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/easy-steps-to-alter-story-video-playback-speed-for-2024/"><u>Easy Steps to Alter Story Video Playback Speed for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-your-sites-traffic-with-cutting-edge-cookiebot-seo-solutions/"><u>Enhance Your Site's Traffic with Cutting-Edge Cookiebot SEO Solutions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/hideous-heroes-black-vs-gleaming-guardians-silver/"><u>Hideous Heroes (Black) VS Gleaming Guardians (Silver)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-a-deeper-insight-into-augmented-reality-stickers-by-google/"><u>In 2024, A Deeper Insight Into Augmented Reality Stickers by Google</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/macbook-continuous-use-strategies-stop-your-laptop-from-going-to-sleep-on-lid-close/"><u>MacBook Continuous Use Strategies: Stop Your Laptop From Going To Sleep on Lid Close</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-through-vlc-features-settings-and-troubleshooting-mac/"><u>Navigating Through VLC Features, Settings & Troubleshooting (Mac)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/nostalgic-film-techniques-for-contemporary-projects-using-vhs-for-2024/"><u>Nostalgic Film Techniques for Contemporary Projects Using VHS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/subtle-sound-decline-using-logic-pro-for-fading-effects-for-2024/"><u>Subtle Sound Decline Using Logic Pro for Fading Effects for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-siri-prompt-issues-why-your-iphone-isnt-showing-recommendations/"><u>Troubleshooting Siri Prompt Issues: Why Your iPhone Isn't Showing Recommendations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/ultimate-selection-of-budget-friendly-4k-projector-brands/"><u>Ultimate Selection of Budget-Friendly 4K Projector Brands</u></a></li>
+</ul></div>
 

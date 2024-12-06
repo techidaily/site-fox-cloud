@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Illuminated Influence  Elevating Your Cinematic Presentations\""
-date: 2024-11-22T19:40:49.334Z
-updated: 2024-11-26T21:03:15.268Z
+date: 2024-11-29T17:06:33.650Z
+updated: 2024-12-06T18:30:11.394Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
@@ -57,15 +57,15 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
@@ -74,7 +74,7 @@ The fill light is used to fill in the shadows created by the key light. It is us
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
@@ -88,6 +88,10 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -103,10 +107,6 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
@@ -114,7 +114,7 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Summary
@@ -151,16 +151,22 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-pioneering-virtual-realities-in-live-video-feeds/"><u>[New] 2024 Approved Pioneering Virtual Realities in Live Video Feeds</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-expert-recommended-apps-and-sites-for-photo-frames/"><u>[New] In 2024, Expert-Recommended Apps & Sites for Photo Frames</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-no-payment-necessary-download-farewell-soundtracks/"><u>[New] No Payment Necessary Download Farewell Soundtracks</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-periscope-prodigy-from-beginner-to-expert-for-2024/"><u>[New] Periscope Prodigy From Beginner to Expert for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-secret-of-superiority-in-photo-hue-modification/"><u>[Updated] The Secret of Superiority in Photo Hue Modification</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-best-10-mininano-drones-in-the-market/"><u>2024 Approved Best 10 Mini/Nano Drones in the Market</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-fresh-aesthetics-prime-laptop-wallpapers-online/"><u>2024 Approved Fresh Aesthetics Prime Laptop Wallpapers Online</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/avi-movavi/"><u>無料で高品質なビデオフォーマットをAVIへ変換: Movaviソフトウェアガイド</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/high-quality-speech-to-text-solutions-for-2024/"><u>High-Quality Speech-to-Text Solutions for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unveiling-youtubes-hidden-feature-stop-snippet-viewing/"><u>Unveiling YouTube's Hidden Feature Stop Snippet Viewing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-blueprint-for-obtaining-free-visual-aids/"><u>[New] 2024 Approved The Blueprint for Obtaining Free Visual Aids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-click-attractor-the-title-crafting-kit-for-2024/"><u>[New] Click Attractor The Title Crafting Kit for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-shield-your-snapshots-from-times-tide-explore-cost-effective-solutions/"><u>[New] Shield Your Snapshots From Time's Tide - Explore Cost-Effective Solutions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-3dr-a-solo-traverse-into-future-tech-world/"><u>[Updated] 2024 Approved '3DR' A Solo Traverse Into Future Tech World</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-experiences-with-the-syma-x8c-drone/"><u>[Updated] 2024 Approved Experiences with the Syma X8C Drone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-inside-out-the-nikon-d7500-experience/"><u>[Updated] 2024 Approved Inside Out The Nikon D7500 Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-time-travel-with-your-phones-videos/"><u>[Updated] In 2024, Time Travel with Your Phone's Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-apex-of-narrative-content-youtubes-finest-in-23/"><u>[Updated] The Apex of Narrative Content YouTube’s Finest in '23</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/find-and-install-epson-wf-3540-drivers-for-optimal-performance-with-windows/"><u>Find and Install Epson WF-3540 Drivers for Optimal Performance with Windows</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-hp-deskjet-3520-software-and-drivers-free-download-now/"><u>Get Your HP Deskjet 3520 Software & Drivers – Free Download Now</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-on-iphone-7-with-or-without-password-drfone-by-drfone-ios/"><u>How To Change Your Apple ID on iPhone 7 With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-your-vivo-x100-lock-screen-password-by-drfone-android/"><u>How to Reset your Vivo X100 Lock Screen Password</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-infinix-hot-40i-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Infinix Hot 40i without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-nubia-red-magic-8s-proplus-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Nubia Red Magic 8S Pro+ Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-ultimate-plugins-list-after-effects-edition/"><u>In 2024, Ultimate Plugins List After Effects Edition</u></a></li>
+<li><a href="https://techidaily.com/repair-broken-or-corrupt-video-files-of-htc-u23-by-stellar-video-repair-mobile-video-repair/"><u>Repair broken or corrupt video files of HTC U23</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-timeless-elegance-of-withings-move-where-vintage-meets-tech-innovation-on-your-wrist/"><u>Reviewing the Timeless Elegance of Withings Move: Where Vintage Meets Tech Innovation on Your Wrist</u></a></li>
 </ul></div>
 

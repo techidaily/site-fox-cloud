@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Reinvigorating Windows Photo Viewer in W10  Procedures #1 & #2\""
-date: 2024-11-21T03:41:11.931Z
-updated: 2024-11-26T17:13:05.951Z
+date: 2024-12-02T17:07:31.375Z
+updated: 2024-12-06T17:54:41.725Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,6 @@ Stay tuned to learn more!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Why you prefer Windows Photo Viewer
 
 We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
@@ -65,7 +61,7 @@ Here is why they want to restore Windows Photo Viewer –
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
@@ -79,7 +75,7 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
@@ -87,7 +83,7 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2 to get Windows Photo Viewer back
@@ -109,7 +105,7 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -117,6 +113,10 @@ Here is the detailed guide –
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -145,24 +145,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-exploring-the-power-of-yi-4k-cameras/"><u>[New] In 2024, Exploring the Power of YI 4K Cameras</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-optimize-your-shots-with-pro-light-tips-for-iphones/"><u>[New] Optimize Your Shots with Pro Light Tips for IPhones</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-freelancers-guide-to-affordable-animation-methods-for-2024/"><u>[New] The Freelancer's Guide to Affordable Animation Methods for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-harmonize-with-inshots-music-load-functionality/"><u>[Updated] 2024 Approved Harmonize with InShot's Music Load Functionality</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-step-by-step-to-premium-audio-with-audacity/"><u>[Updated] 2024 Approved Step-by-Step to Premium Audio with Audacity</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-enhancing-images-the-secret-to-subtracting-backdrops-in-photopea-for-2024/"><u>[Updated] Enhancing Images The Secret to Subtracting Backdrops in Photopea for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-creating-smooth-time-lapses-with-samsung-mobile/"><u>2024 Approved Creating Smooth Time-Lapses with Samsung Mobile</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-enhancing-engagement-a-guide-to-popular-tiktok-unboxers/"><u>2024 Approved Enhancing Engagement A Guide to Popular TikTok Unboxers</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-apple-iphone-6s-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From Apple iPhone 6s</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-methods-for-transforming-youtube-videos-into-high-quality-mp4-format-at-60-fps/"><u>Free Methods for Transforming YouTube Videos Into High-Quality MP4 Format at 60 FPS</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-can-you-determine-if-you-are-being-tracked-by-a-tiny-invisible-tracker-zdnet/"><u>How Can You Determine if You Are Being Tracked by a Tiny, Invisible Tracker? | ZDNET</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-motorola-razr-40-ultra-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Motorola Razr 40 Ultra</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-digital-chromatic-conventions-in-media-production/"><u>In 2024, Digital Chromatic Conventions in Media Production</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-unlocking-ultra-clear-video-in-zoom-meetings/"><u>In 2024, Unlocking Ultra-Clear Video in Zoom Meetings</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-f54-5g-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy F54 5G Phone Network-Ready</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/ioss-leading-edge-the-top-5-emulators-for-psp-games-for-2024/"><u>IOS's Leading Edge The Top 5 Emulators for PSP Games for 2024</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-4k-video-editing-made-easy-top-proxy-editing-tools/"><u>New 4K Video Editing Made Easy Top Proxy Editing Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unboxing-mastery-the-soundtrack-selection-guidebook/"><u>Unboxing Mastery The Soundtrack Selection Guidebook</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unlock-language-skills-without-spending-a-penny-9-must-try-learning-platforms/"><u>Unlock Language Skills Without Spending a Penny: 9 Must-Try Learning Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-essential-5-book-trailer-selections/"><u>[New] 2024 Approved Essential 5 Book Trailer Selections</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-filmoras-pathway-to-convert-video-avi-files-into-image-gif-for-2024/"><u>[New] Filmora’s Pathway to Convert Video (AVI) Files Into Image (GIF) for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-transcending-visual-limits-with-hdr-technology/"><u>[New] In 2024, Transcending Visual Limits with HDR Technology</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-zero-tolerance-for-background-distractions-editing-tutorial-on-photopea/"><u>[New] In 2024, Zero Tolerance for Background Distractions Editing Tutorial on Photopea</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-unveiling-the-premium-cost-free-screen-recording-tools/"><u>[New] Unveiling the Premium, Cost-Free Screen Recording Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-symphony-on-your-phone-best-tone-acquisition-websites/"><u>[Updated] In 2024, Symphony on Your Phone Best Tone Acquisition Websites</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-10-text-presets-for-visual-impact/"><u>[Updated] Top 10 Text Presets for Visual Impact</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-nokia-c32-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Nokia C32 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/corrective-measures-for-hp-printer-driver-issues-win11/"><u>Corrective Measures for HP Printer Driver Issues (Win11)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-camera-combat-gopro-hero5-vs-garmin-virb-ultra-face-off/"><u>In 2024, Camera Combat GoPro Hero5 Vs. Garmin VIRB Ultra Face-Off</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-a56s-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo A56s 5G Devices | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-8-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud On your iPhone 8</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/rectify-insert-disk-required-a-step-by-step-guide-to-troubleshooting-usb-drives/"><u>Rectify 'Insert Disk Required': A Step-by-Step Guide to Troubleshooting USB Drives</u></a></li>
 </ul></div>
 

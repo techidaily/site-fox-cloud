@@ -1,7 +1,7 @@
 ---
 title: "\"From Scratch  Building a Lighthearted Image Meme\""
-date: 2024-08-28T07:05:58.955Z
-updated: 2024-08-29T07:05:58.955Z
+date: 2024-12-04T16:48:20.574Z
+updated: 2024-12-06T16:09:23.795Z
 tags: 
   - screen-recording
   - ai video
@@ -22,11 +22,19 @@ It only takes one amusing thing to find on the internet for your day to be insta
 
 Let’s start off!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. What exactly is a meme?
 
 A meme is an image that is passed around online and is accompanied by some form of writing. These memes typically offer sharp criticism on cultural icons, societal concepts, or current events. A meme is often an image or a video, although it can also take the form of a string of words in some cases. When a meme strikes a chord with a large number of people, it begins to circulate through various social platforms such as Twitter, Facebook, Instagram, messaging, and other methods. The more the number of times a meme is shared, the more of an impact it has on culture.
 
 ![grandpa meme image](https://images.wondershare.com/filmora/article-images/2022/11/grandpa-meme-image.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. When did memes become a thing online?
 
@@ -38,9 +46,6 @@ People's lives are becoming increasingly influenced by the internet and various 
 
 ![create an online meme](https://images.wondershare.com/filmora/article-images/2022/11/create-an-online-meme.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## 3\. How do you make a meme?
 
 It’s quite simple to create your own memes. All you need is a good picture of something, or someone expressing an emotion such a confusion, happiness, and think of a funny phrase people can relate to.
@@ -53,23 +58,18 @@ Step3 You may show your finished work to your coworkers or friends by saving and
 
 ![customize a meme image](https://images.wondershare.com/filmora/article-images/2022/11/customize-a-meme-image.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 Memes are a fantastic way to communicate with friends, family, and coworkers. They're also really simple to create! No prior tool experience is necessary. Absolutely! Use [Filmora's](https://tools.techidaily.com/wondershare/filmora/download/) GIF function to quickly convert any video clip into an animated GIF meme that you can share with others.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Researching trending memes
 
 Through the years, many different styles of memes have come and gone. You don't want to rely on methods that have since become obsolete. Do some research to find out what's trending by looking through old memes. Also, pay attention to the memes that other people are posting wherever it is on the internet that you spend the majority of your time. It doesn't matter if it's Reddit, Facebook, Instagram, or Twitter.
 
 Try to locate recent memes by browsing subreddits such as r/memes and r/dankmemes. In addition, there are times when a particular category of meme becomes popular. In that case, you should give those memes a shot and see if you can make them. For instance, Bernie Sanders was a topic of conversation for a few days not too long ago.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Share your meme
 
 You are now equipped with everything you require to begin creating hilarious memes. To review, you are now familiar with the process of creating a meme by either using a meme template that is blank so that you may add new meme captions or by making use of a screenshot tool to generate an entirely new meme.
@@ -79,12 +79,13 @@ If neither of these techniques works for you, another option is to use image edi
 ![share your meme image](https://images.wondershare.com/filmora/article-images/2022/11/share-your-meme-image.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 And that’s it! Some of the most popular meme producers on the internet have some ideas about where they think the culture of memes might be headed in the future, despite the fact that the future of memes is difficult to forecast due to the fact that meme culture is always changing.
@@ -117,4 +118,22 @@ And that’s it! Some of the most popular meme producers on the internet have so
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-expressive-echoes-mastering-snapchats-cartoon-face-effects/"><u>[New] Expressive Echoes Mastering Snapchat's Cartoon Face Effects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-from-novice-to-expert-navigating-telegram-web/"><u>[New] From Novice to Expert Navigating Telegram Web</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-zoning-in-on-images-core-via-affinity/"><u>[Updated] 2024 Approved Zoning in on Image's Core via Affinity</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-action-packed-comparisons-gopro-vs-star-sj7-for-2024/"><u>[Updated] Action-Packed Comparisons GoPro Vs Star SJ7 for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-guide-to-choosing-ideal-youtube-thumbnail-shapes/"><u>2024 Approved Guide to Choosing Ideal Youtube Thumbnail Shapes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-streamline-your-tiktok-lives-4-essential-desktop-practices/"><u>2024 Approved Streamline Your TikTok Lives 4 Essential Desktop Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-us-and-them-in-social-networking-namespaces/"><u>Clarifying the Us and Them in Social Networking Namespaces</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elite-conference-name-builder/"><u>Elite Conference Name Builder</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/explorer-les-5-strategies-top-en-2024-pour-optimiser-et-hierarchiser-la-resolution-des-images/"><u>Explorer Les 5 Stratégies Top en 2024 Pour Optimiser Et Hiérarchiser La Résolution Des Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/fine-tune-your-videos-mood-with-custom-sound-design/"><u>Fine-Tune Your Video's Mood with Custom Sound Design</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-samsung-galaxy-m34-5g-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Samsung Galaxy M34 5G</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-whats-missing-from-todays-virtual-reality-library-insight/"><u>In 2024, What's Missing From Today's Virtual Reality Library? - Insight</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-5-pro-level-photovideo-creators-with-soundtracks/"><u>Top 5 Pro-Level Photo/Video Creators with Soundtracks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-talkers-theme-transformer-for-2024/"><u>Top Talkers' Theme Transformer for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/yakuza-6-pc-gameplay-fixes-for-a-seamless-song-of-life-experience/"><u>Yakuza 6 PC Gameplay Fixes for a Seamless 'Song of Life' Experience</u></a></li>
+</ul></div>
 

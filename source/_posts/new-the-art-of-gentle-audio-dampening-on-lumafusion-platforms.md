@@ -1,7 +1,7 @@
 ---
 title: "[New] The Art of Gentle Audio Dampening on Lumafusion Platforms"
-date: 2024-11-20T09:38:41.644Z
-updated: 2024-11-27T02:15:42.228Z
+date: 2024-11-29T20:06:35.171Z
+updated: 2024-12-06T21:09:06.498Z
 tags: 
   - screen-recording
   - ai video
@@ -27,10 +27,6 @@ Video editors should give LumaFusion a try if they want to use its compact LumaF
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. How to Fade Audio with LumaFusion
 
 There are several capabilities in Luma Fusion that make precise editing possible, including ones that we haven't seen in other mobile editing tools, such keyframing for all effects. Beginning filmmakers may use LumaFusion to discover their voice via editing. Their work may be moved to a desktop software after their abilities have grown on mobile. To start fading audio using Luma Fusion, follow these steps:
@@ -48,10 +44,6 @@ Step3 From the choices, choose the Cross Dissolve (Fade) transition. The transit
 ![fade audio in luma fusion](https://images.wondershare.com/filmora/article-images/2022/07/fade-audio-in-luma-fusion.jpg)
 
 Beyond simple editing, LumaFusion excels in enhancing projects with a wide variety of built-in effects, transitions, titles, and color correction. It also has a limited (but excellent) collection of royalty-free music. Finally, LumaFusion Project Packages are a terrific solution to regularly backup a project for security or to complete altering it. After choosing Export, choose the Project Package from the list.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. LumaFusion Alternative Way to Fade Audio in Video
 
@@ -76,7 +68,7 @@ Drag and drop your sound recordings from the media library to the timeline at th
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3 Apply Fade Effects
@@ -91,10 +83,6 @@ After finishing the method for editing audio in Filmora, click the Export button
 
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs about LumaFusion
 
 ### 1\. How do you fade in a title LumaFusion?
@@ -102,12 +90,16 @@ In that window, you can select the MP3 format in the format customization box to
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -134,7 +126,7 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step4 Share and export
@@ -145,9 +137,17 @@ In that window, you can select the MP3 format in the format customization box to
 
 ## Part 3\. Related FAQs about LumaFusion
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
@@ -181,21 +181,18 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-crafting-seamless-audiovisual-mixes-in-audacity/"><u>[New] 2024 Approved Crafting Seamless Audiovisual Mixes in Audacity</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-hero5-black-in-action-essential-shooting-advice-for-amazing-results/"><u>[New] In 2024, Hero5 Black in Action Essential Shooting Advice for Amazing Results</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unleash-a-flood-of-supporters-attain-a-million-ish-on-ig-each-month/"><u>[New] In 2024, Unleash a Flood of Supporters Attain a Million-Ish on IG Each Month</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-omega-series-high-definition-full-touch-workstations/"><u>[New] Omega Series High Definition Full Touch Workstations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-firefox-pip-a-complete-users-manual/"><u>[Updated] In 2024, Firefox PIP A Complete User's Manual</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-story-highlight-a-user-friendly-guide/"><u>[Updated] Instagram Story Highlight A User-Friendly Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-into-the-blueprint-cutting-edge-techniques-for-drones/"><u>[Updated] Into the Blueprint Cutting-Edge Techniques for Drones</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-spark-interest-with-animated-text-a-guide-for-instagram-storytellers/"><u>[Updated] Spark Interest with Animated Text A Guide for Instagram Storytellers</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/clarifying-how-shared-links-function-in-ai-conversations/"><u>Clarifying How Shared Links Function in AI Conversations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/dual-task-perfection-iphones-single-action-capture/"><u>Dual-Task Perfection IPhone's Single Action Capture</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1721396161642-gpt-imposters-alert-guard-against-illicit-data-access/"><u>GPT Imposters Alert: Guard Against Illicit Data Access</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/image-innovation-at-your-fingertips-applications-for-photo-text-adjustments/"><u>Image Innovation at Your Fingertips Applications for Photo Text Adjustments</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-auditory-aesthetics-guide-media-sound-choices/"><u>In 2024, Auditory Aesthetics Guide Media Sound Choices</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-visual-storytelling-with-vsco-a-complete-guide/"><u>In 2024, Visual Storytelling with VSCO A Complete Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/premier-20-unrestricted-pubg-montage-samples/"><u>Premier 20 Unrestricted PUBG Montage Samples</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-proven-techniques-to-amplify-content/"><u>Top 8 Proven Techniques to Amplify Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-quality-video-uplift-immaculate-resolution-for-2024/"><u>[New] Top Quality Video Uplift Immaculate Resolution for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-compreranium-unpacking-apeaksoft-screen-tech-2023-edition/"><u>[Updated] 2024 Approved Compreranium Unpacking Apeaksoft Screen Tech, 2023 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-crafting-engaging-podcasts-step-by-step-guide-with-free-examples/"><u>[Updated] 2024 Approved Crafting Engaging Podcasts Step-by-Step Guide with Free Examples</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-essential-techniques-zoom-and-fb-live-streaming-for-2024/"><u>[Updated] Essential Techniques ZOOM & FB Live Streaming for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-markets-top-picks-premier-drone-gimbals/"><u>[Updated] In 2024, Market's Top Picks Premier Drone Gimbals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-peering-into-the-past-publicly-shared-masterpieces/"><u>[Updated] In 2024, Peering Into the Past Publicly Shared Masterpieces</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-cutting-edge-guide-streamlining-your-gopro-studio-workflow/"><u>2024 Approved Cutting-Edge Guide Streamlining Your GoPro Studio Workflow</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/capturing-your-macs-display-live-easy-steps-included-for-2024/"><u>Capturing Your Mac's Display Live - Easy Steps Included for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-hp-deskjet-ink-advantage-3050a-updated-drivers-secure-compatibility-with-windows-download-now/"><u>Get Your HP Deskjet Ink Advantage 3050A Updated Drivers: Secure Compatibility with Windows - Download Now</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-elite-4k-gaming-laptops-ranked-1/"><u>In 2024, Elite 4K Gaming Laptops Ranked #1</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2670458-9781515409885-new-lands/"><u>New Lands | Free Book</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-lost-data-from-oppo-reno-11f-5g-by-fonelab-android-recover-data/"><u>Recover lost data from Oppo Reno 11F 5G</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tap-into-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces-for-2024/"><u>Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces for 2024</u></a></li>
 </ul></div>
 

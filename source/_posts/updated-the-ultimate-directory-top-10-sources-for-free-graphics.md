@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate Directory  Top 10 Sources for Free Graphics\""
-date: 2024-11-22T04:45:58.635Z
-updated: 2024-11-27T04:01:59.007Z
+date: 2024-12-03T20:33:57.388Z
+updated: 2024-12-06T19:59:49.648Z
 tags: 
   - screen-recording
   - ai video
@@ -29,17 +29,9 @@ We've gathered ten of our favorite sites where you can find free images—and th
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. [Pexels](https://www.pexels.com/)
 
 ![pexels](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-01.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Pexels is one of the largest free stock photo sites online. The site has over 500,000 high-quality images, and all photos on Pexels are free for commercial use. All photos on Pexels are licensed under Creative Commons Zero (CC0), which means you can use them in your work without asking permission or giving attribution.
 
@@ -55,25 +47,25 @@ Unsplash was founded in 2011 by Mikael Cho (who also co-founded Crew) to create 
 
 Today Unsplash has grown into one of the most popular free stock photo sites, with over 15 million monthly users worldwide.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. [Kaboompics](https://kaboompics.com/)
 
 ![kaboompics](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-03.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Kaboompics is a free stock photo site that offers a good selection of images. The search functionality on Kaboompics works pretty well and allows for quick indexing of keywords that are relevant to your searches. Their database contains an extensive list of categories, each with hundreds of photos.
 
 Kaboompics also has a "free commercial" section which provides more than 1 million images for your commercial projects without any restrictions or attribution required.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. [Pixabay](https://pixabay.com/)
 
 ![pixabay](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-04.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Pixabay is one of the most popular websites for free images. It has a wide range of photos from different photographers and categories, so it's easy to find an image that could fit your needs.
 
@@ -90,7 +82,7 @@ The site has an extensive library of free stock photos, vectors, mockups, and te
 It can be a little hard to find exactly what you're looking for as there are so many options; if you have trouble finding what you want in Snappa's search engine, try clicking on one of the categories listed above to narrow it down some more.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. [Freerange](https://freerangestock.com/)
@@ -101,6 +93,10 @@ Freerange is a photo agency that offers free and premium photos.
 
 The site has a wide range of subjects, including nature, animals, food, etc. Photos are high-quality, royalty-free images you can use commercially if you choose.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. [Shutterstock Collection](https://www.shutterstock.com/)
 
 ![shutterstocks collection](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-07.JPG)
@@ -110,12 +106,16 @@ One of the best places to get free images is Shutterstock. They have a collectio
 You can search through the site's entire collection or narrow it down by category (e.g., animals or nature). You can also download all images in full resolution or view them as thumbnails on their website.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 8\. Morguefile
 
 ![morguefile](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-08.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Morguefile is a free photo archive founded in 1996, during the early days of the Internet. It aims to provide a free image exchange service for people of all backgrounds to use in their work.
 
@@ -129,10 +129,6 @@ Dreamstime is a stock photography website with over 20 million images. It allows
 
 If you're looking for something specific, Dreamstime has many categories, including animals, architecture, people, nature, and more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 10\. CC Search
 
 ![cc search](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-10.JPG)
@@ -140,6 +136,10 @@ If you're looking for something specific, Dreamstime has many categories, includ
 CC Search is a search engine for Creative Commons photos, which means you can use the images on your website without paying anything. CC Search has an extensive collection of images to choose from, and they are all free. Just type your keyword in the search bar, and you'll find plenty of relevant results.
 
 You can also choose whether you want to display ads on your site. If you want to keep them off completely, there is an option that allows users who visit your site to download high-resolution copies at no cost (as long as they attribute credit).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -177,21 +177,22 @@ Remember, if you're looking for images that aren't copyrighted or stock photos, 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-pixel-perfect-windows-recorder-free/"><u>[New] In 2024, Pixel Perfect Windows Recorder, Free</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-resolving-iphone-xs-facial-recognition-hurdles-for-2024/"><u>[New] Resolving iPhone X's Facial Recognition Hurdles for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-elevate-your-content-in-depth-guide-to-youtube-video-edits/"><u>[Updated] Elevate Your Content In-Depth Guide to YouTube Video Edits</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-essential-insights-getting-started-with-ifunny-memes/"><u>[Updated] Essential Insights Getting Started with iFunny Memes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-premium-power-supplies-for-gopro-hero5-genuine-and-3rd-party/"><u>[Updated] In 2024, Premium Power Supplies for GoPro Hero5 Genuine and 3Rd-Party</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-visual-perfection-ahead-comprehensively-mastering-video-enhancer-22/"><u>[Updated] In 2024, Visual Perfection Ahead Comprehensively Mastering Video Enhancer 2.2</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-unleash-potential-strategies-for-skyrocketing-your-fb-profile-status/"><u>[Updated] Unleash Potential Strategies for Skyrocketing Your FB Profile Status</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-se-2022-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone SE (2022) without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Oppo F23 5G? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-12-pro-max-drfone-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone 12 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210936305-9780717157594-in-the-company-of-angels/"><u>In the Company of Angels | Free Book</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/masterclass-in-conversions-save-vimeo-media-to-mp4-files-for-2024/"><u>Masterclass in Conversions Save Vimeo Media to MP4 Files for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/no-experience-big-income-try-these-13-reddit-methods/"><u>No Experience, Big Income? Try These 13 Reddit Methods</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-battle-of-av1-and-vp9-outcomes-revealed-for-2024/"><u>The Battle of AV1 and VP9 Outcomes Revealed for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-20-free-video-creators-for-enhancing-your-microsoft-windows-experience/"><u>Top 20 Free Video Creators for Enhancing Your Microsoft Windows Experience</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unlocking-iphones-full-podcast-potential/"><u>Unlocking iPhone's Full Podcast Potential</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-elite-edits-10-superior-alternatives-to-vimeo-cameos/"><u>[New] 2024 Approved Elite Edits 10 Superior Alternatives to Vimeo Cameos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-harmonious-hues-the-top-10-sites-to-download-styleful-wallpapers/"><u>[New] Harmonious Hues The Top 10 Sites to Download Styleful Wallpapers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unveiling-the-art-of-slow-motion-utilizing-online-platforms-and-photos-for-2024/"><u>[New] Unveiling the Art of Slow Motion Utilizing Online Platforms & Photos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-harnessing-the-power-of-dynamic-images-in-ios-for-2024/"><u>[Updated] Harnessing the Power of Dynamic Images in iOS for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-drone-trailblazers-the-most-attentive-models/"><u>[Updated] In 2024, Drone Trailblazers The Most Attentive Models</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-leveraging-famebits-expertise-for-maximum-youtube-affiliate-gains/"><u>[Updated] Leveraging FameBit's Expertise for Maximum YouTube Affiliate Gains</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-picking-a-champion-in-video-software-vlcmx-for-2024/"><u>[Updated] Picking a Champion in Video Software VLC/MX for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/10-hidden-gem-free-mobile-games-pure-fun/"><u>10 Hidden Gem Free Mobile Games - Pure Fun!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-how-to-create-time-lapse-video-with-canon-camera/"><u>2024 Approved How to Create Time-Lapse Video with Canon Camera</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/cutting-edge-vector-design-the-most-popular-apps-reviewed-for-2024/"><u>Cutting-Edge Vector Design The Most Popular Apps Reviewed for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-latest-logitech-t630-software-for-windows-operating-systems-7810/"><u>Download the Latest Logitech T630 Software for Windows Operating Systems (7/8/10)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/from-jarring-edits-to-seamless-inshot-integration-for-2024/"><u>From Jarring Edits to Seamless Inshot Integration for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/live-link-legends-favoring-the-framework-software-or-fabrication-hardware/"><u>Live Link Legends Favoring the Framework (Software) or Fabrication (Hardware)?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/passfab-apple-iphone-15-pro-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>PassFab Apple iPhone 15 Pro Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-samsung-galaxy-s23-tactical-edition-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Samsung Galaxy S23 Tactical Edition with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-complete-vivacut-overview-editors-deep-dive-for-2024/"><u>The Complete VivaCut Overview Editor's Deep Dive for 2024</u></a></li>
 </ul></div>
 

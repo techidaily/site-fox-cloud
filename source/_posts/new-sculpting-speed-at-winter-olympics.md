@@ -1,7 +1,7 @@
 ---
 title: "[New] Sculpting Speed at Winter Olympics"
-date: 2024-11-25T17:18:08.883Z
-updated: 2024-11-27T03:54:23.882Z
+date: 2024-12-02T19:29:32.533Z
+updated: 2024-12-06T18:33:09.092Z
 tags: 
   - screen-recording
   - ai video
@@ -36,7 +36,7 @@ Nathan Chen got the combined score of 332.60 in short program and free skate com
 ![nathan chen skating](https://images.wondershare.com/filmora/article-images/nathan-chen-skating.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Nathan Chen of the United States reacts to winning the gold medal at the 2022 Beijing Winter Olympics. He successfully hit five quadruple jumps which helped him outshine others.
@@ -44,7 +44,7 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 ![nathan chen skating gold medal](https://images.wondershare.com/filmora/article-images/nathan-chen-skating-gold-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
@@ -54,6 +54,10 @@ Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United Stat
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
 ![shoma uno](https://images.wondershare.com/filmora/article-images/shoma-uno.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nathan Chen successful triumph has been four years in the making and it is a perfect combination of seven perfect skating minutes. Back at 2018 Olympics, he botched and ended with disappointment. Therefore, Olympics Games Beijing2022 has been redemption for America's best male skater.
 
@@ -66,6 +70,10 @@ Even though Nathan Chen finished first for men's short program of the team event
 Russian Olympic Committee athletes won the gold medal at team event by a margin of 9 points with the combined score of 74\. United States won the silver medal with a combined score of 65 points.
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
 
@@ -89,10 +97,6 @@ Step 1: Download and install Filmora. Launch Filmora and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2: Go to File > Project Settings and set the parameters as per your requirements.
 
 Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all the still photos and video footage clips you have collected about figure skating Olympics. You can trim them and maintain uniformity throughout.
@@ -100,7 +104,7 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
@@ -108,10 +112,6 @@ Step 4: You need to add all imported media files to Video Timeline while you sho
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,24 +136,22 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-abridged-blueprint-for-starting-virtual-conversations-zoom-edition/"><u>[New] 2024 Approved Abridged Blueprint for Starting Virtual Conversations Zoom Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mobiles-best-explore-8-leading-free-mp3-download-applications/"><u>[New] 2024 Approved Mobile's Best Explore 8 Leading Free MP3 Download Applications</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-deep-windows-11-secrets-effortless-media-upload-made-simple/"><u>[New] In 2024, Deep Windows 11 Secrets Effortless Media Upload Made Simple</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-metaverse-enthusiasts-secret-to-simple-avatars/"><u>[New] Metaverse Enthusiasts' Secret to Simple Avatars</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-how-to-record-skype-meeting-on-windows-and-mac-skype-for-business/"><u>[Updated] 2024 Approved How to Record Skype Meeting on Windows and Mac | Skype for Business</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-iphones-ultimate-podcast-downloading-manual/"><u>[Updated] In 2024, IPhone's Ultimate Podcast Downloading Manual</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-luminous-landscapes-designing-visuals-that-dazzle-viewers-for-2024/"><u>[Updated] Luminous Landscapes Designing Visuals that Dazzle Viewers for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-unlocking-youtube-subtitles-srt-3-steps-guide/"><u>[Updated] Unlocking YouTube Subtitles (SRT) - 3 Steps Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-photoshop-guide-realistic-3d-text-creation-steps/"><u>2024 Approved Photoshop Guide Realistic 3D Text Creation Steps</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-critique-of-vivas-video-capabilities/"><u>A Critique of Viva's Video Capabilities</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-realme-11-proplus-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Realme 11 Pro+ Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-infinix-hot-40-pro-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Infinix Hot 40 Pro Without Password | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-samsung-galaxy-f34-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-tracing-the-flow-of-money-in-consumer-opinions/"><u>In 2024, Tracing the Flow of Money in Consumer Opinions</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/libre-meditation-harmonies/"><u>Libre Meditation Harmonies</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/propel-your-cinematic-vision-with-advanced-windows-10-video-tools/"><u>Propel Your Cinematic Vision with Advanced Windows 10 Video Tools</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/singing-machine-sml385btbk-unveiled-simplistic-setup-and-dazzling-display-for-effortless-karaoke-fun/"><u>Singing Machine SML385BTBK Unveiled: Simplistic Setup and Dazzling Display for Effortless Karaoke Fun!</u></a></li>
-<li><a href="https://windows11.techidaily.com/what-does-microsoft-copilot-offer-programmers/"><u>What Does Microsoft Copilot Offer Programmers?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-discover-the-power-of-pixlr-25-must-use-tips-and-tricks/"><u>[New] 2024 Approved Discover the Power of Pixlr 25 Must-Use Tips and Tricks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-a-comprehensive-guide-to-previewing-facebooks-hidden-activities/"><u>[New] In 2024, A Comprehensive Guide to Previewing Facebook's Hidden Activities</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-luminous-language-the-secret-of-dynamic-story-titles/"><u>[New] In 2024, Luminous Language The Secret of Dynamic Story Titles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ranking-the-leading-free-srt-translation-tools/"><u>[New] In 2024, Ranking the Leading Free SRT Translation Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-text-superimposition-windows-and-mac-edition/"><u>[New] Mastering Text Superimposition Windows & Mac Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-prime-selection-8-best-free-mobile-mp3-downloaders/"><u>[New] Prime Selection - 8 Best Free Mobile MP3 Downloaders</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unlocking-premiere-pros-lut-potential-for-2024/"><u>[New] Unlocking Premiere Pro's LUT Potential for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-swift-action-on-slow-footage-with-best-apps/"><u>[Updated] In 2024, Swift Action on Slow Footage with Best Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premium-6-services-for-live-video-localization/"><u>[Updated] Premium 6 Services for Live Video Localization</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-7-camcorder-reviews-for-mountain-enthusiasts-for-2024/"><u>[Updated] Top 7 Camcorder Reviews for Mountain Enthusiasts for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-precision-in-production-5-advanced-methods-for-trimming-on-vimeo-platform/"><u>In 2024, Precision in Production 5 Advanced Methods for Trimming on Vimeo Platform</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-real-world-examples/"><u>In 2024, Real-World Examples</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/into-the-humor-hub-of-the-world-wide-web-metaverse-memes-101/"><u>Into the Humor Hub of the World Wide Web - Metaverse Memes 101</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-galaxy-a54-5g-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Galaxy A54 5G</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-rated-compact-short-throw-projector-models/"><u>Top-Rated Compact Short Throw Projector Models</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/triller-demystified-a-comparative-look-at-unique-online-platforms/"><u>Triller Demystified A Comparative Look at Unique Online Platforms</u></a></li>
 </ul></div>
 
