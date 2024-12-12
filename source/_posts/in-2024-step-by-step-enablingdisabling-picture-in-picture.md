@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Step by Step  Enabling/Disabling Picture-in-Picture\""
-date: 2024-11-30T18:44:33.632Z
-updated: 2024-12-06T20:28:47.369Z
+date: 2024-12-05T18:35:12.816Z
+updated: 2024-12-12T16:44:21.515Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ Thanks to this invention, users can reply to customers' emails while closing a n
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. How to enable and disable picture in picture in Safari for Mac
 
 Picture-in-Picture PiP mode is a feature that allows you to view movies in a tiny floating window while surfing another website in Safari or doing something else on your Mac. It remains in the foreground of your screen regardless of which new program you start on your PC.
@@ -48,15 +52,27 @@ Let's have a look at how to use Picture in Picture in Safari on Mac:
 
 ![enter picture in picture](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Suppose you opened the video tab only; you will see the small sound icon in the address bar. But if you open other tabs, in that case, you will see the small sound icon on the right side of the tab.
 
 You can see that utilizing Picture in Picture in Safari for Mac is simple, straightforward, and adaptable. Let's look at how to get the most of this feature now.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Using Picture in Picture (PiP) on Mac
 
 When you enable this feature, the video will shrink and move to a corner on Mac's screen while still playing. You can perform several tasks to your taste as you keep watching and working. If you feel the size is too small or big, you can resize it by dragging any corner of the video. Furthermore, you can click and pull it to any side of the window if it disturbs your view.
 
 There is a play and pause button available also as well as the forward and backward if you wish to perform any of these activities. And again, you can decide to turn off this feature by repeating the procedure where you locate the small sound icon. But here, you select the mute this tab instead or click the "**X"** button at the top left corner to stop the video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to enable and disable picture in picture in Safari for iPhone
 
@@ -69,10 +85,6 @@ As we have discussed earlier, users have a way to enable the picture in picture 
 ![start pip automatically](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-3.jpg)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** You perform the above procedure also to disable the feature. However, in the case of disabling the option, you turn **OFF** the toggle button for **Start PiP Automatically** to disable this function.
 
@@ -89,11 +101,7 @@ To perform this minimizing feature, grab the window and move it to either side o
 ![move the window to screen's edge](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. How to enable and disable picture in picture in Safari for iPad
@@ -130,11 +138,7 @@ To perform this minimizing feature, grab the window and move it to either side o
 ![move the window to screen's edge](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-in-safari-for-mac-iphone-ipad-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. How to enable and disable picture in picture in Safari for iPad
@@ -147,10 +151,6 @@ The picture in picture mode has been available on the iPad long before it was in
 * Here, toggle picture in picture ON to enable this feature; otherwise, toggle picture in picture OFF to disable the feature.
 
 Above all, you need to have it in the back of your mind that regardless of how you enable this feature, the app or website needs to support the picture in picture mode to work correctly. However, almost all website supports this feature, with YouTube being the top supporter.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -186,22 +186,22 @@ Aside from Safari, the Picture-in-Picture mode is available in other standard pr
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-effective-image-sharing-using-snap-camera-for-microsoft-teams/"><u>[New] 2024 Approved Effective Image Sharing Using Snap Camera for Microsoft Teams</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-360-degree-cameras-vs-3d-cameras-what-are-the-differences/"><u>[Updated] 2024 Approved 360 Degree Cameras Vs 3D Cameras What Are the Differences</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-6-cheapest-action-cameras-to-buy-under-100/"><u>[Updated] 2024 Approved Top 6 Cheapest Action Cameras to Buy Under $100</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-advanced-techniques-for-sharing-srt-data-on-vimeo-and-linkedin-for-2024/"><u>[Updated] Advanced Techniques for Sharing SRT Data on Vimeo and LinkedIn for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-enhancing-gaming-experience-tools-beyond-microsofts-recorder/"><u>[Updated] Enhancing Gaming Experience Tools Beyond Microsoft's Recorder</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-decoding-slug-lines-for-effective-writing/"><u>[Updated] In 2024, Decoding Slug Lines for Effective Writing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-seeing-beyond-our-elite-rankings-of-camera-lenses-1-10-for-2024/"><u>[Updated] Seeing Beyond Our Elite Rankings of Camera Lenses #1-10 for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-wirecast-versus-obs-which-broadcasting-tool-reigns-supreme/"><u>[Updated] Wirecast Versus OBS Which Broadcasting Tool Reigns Supreme?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-complete-audio-editors-journey-through-garageband/"><u>2024 Approved The Complete Audio Editor's Journey Through GarageBand</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/convert-rmvb-files-to-mp4-for-free-using-movavis-user-friendly-online-tool/"><u>Convert RMVB Files to MP4 for Free Using Movavi's User-Friendly Online Tool</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-ace-2-bootloader-easily-by-drfone-android/"><u>How to Unlock OnePlus Ace 2 Bootloader Easily</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polish-study-strategy-for-rapid-progress/"><u>Polish Study Strategy for Rapid Progress</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/simplify-complex-designs-by-mastering-figmas-backdrop-cleansing-for-2024/"><u>Simplify Complex Designs by Mastering Figma's Backdrop Cleansing for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-insiders-guide-to-comprehending-ray-tracing-methodology/"><u>The Insider's Guide to Comprehending Ray Tracing Methodology</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-fixing-the-hp-laptops-unresponsive-usb-port/"><u>Troubleshooting Guide: Fixing the HP Laptop's Unresponsive USB Port</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unleash-your-creativity-the-leading-phone-apps-for-image-stickers/"><u>Unleash Your Creativity The Leading Phone Apps for Image Stickers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unlocking-optimal-flight-the-lipo-selection-saga-for-2024/"><u>Unlocking Optimal Flight The LiPo Selection Saga for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-examining-the-impact-of-aurora-on-home-entertainment-for-2024/"><u>[New] Examining the Impact of Aurora on Home Entertainment for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-explore-and-choose-from-these-top-10-vector-stockplaces-for-2024/"><u>[Updated] Explore and Choose From These Top 10 Vector Stockplaces for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-cutting-edge-film-making-start-here/"><u>2024 Approved Cutting-Edge Film Making, Start Here</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-deciphering-how-burst-improves-video-continuity/"><u>2024 Approved Deciphering How Burst Improves Video Continuity</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-exploring-the-skies-with-top-10-beginner-drones/"><u>2024 Approved Exploring the Skies with Top 10 Beginner Drones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-filmoras-competitors-the-ultimate-list-of-top-notch-free-template-collections/"><u>2024 Approved Filmora's Competitors The Ultimate List of Top-Notch, Free Template Collections</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-low-cost-subscriber-strategy-on-youtube-platform/"><u>2024 Approved Low-Cost Subscriber Strategy on YouTube Platform</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-master-review-unveiling-the-full-potential-of-android-lightroom/"><u>2024 Approved Master Review Unveiling the Full Potential of Android Lightroom</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-smooth-volume-reduction-a-system-friendly-approach/"><u>2024 Approved Smooth Volume Reduction A System-Friendly Approach</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-streamlining-skype-calls-with-advanced-zoom-use/"><u>2024 Approved Streamlining Skype Calls with Advanced Zoom Use</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-complete-blueprint-for-iphone-photo-arrangement-in-ordered-algebras-and-icloud/"><u>2024 Approved The Complete Blueprint for iPhone Photo Arrangement in Ordered Algebras and iCloud</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-itel-a60s-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Itel A60s FRP Locks</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/graphic-animation-basic-knowledge-and-practices-for-2024/"><u>Graphic Animation Basic Knowledge & Practices for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-solutions-for-resolving-ghost-touch-issues-on-your-iphone-a-step-by-step-guide/"><u>Ultimate Solutions for Resolving Ghost Touch Issues on Your iPhone - A Step-by-Step Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-canon-mp560-printer-drivers-with-ease-quick-download-tutorial/"><u>Update Your Canon MP560 Printer Drivers with Ease - Quick Download Tutorial</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-best-animation-software-for-pros-mac-and-windows-compatible/"><u>Updated 2024 Approved Best Animation Software for Pros Mac and Windows Compatible</u></a></li>
+<li><a href="https://article-tips.techidaily.com/virtual-quality-assurance-examining-apps-with-vll/"><u>Virtual Quality Assurance Examining Apps with VLL</u></a></li>
 </ul></div>
 

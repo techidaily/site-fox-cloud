@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Drone Powerhouses  The Ultimate Heavy-Lift Guide\""
-date: 2024-12-05T21:14:25.483Z
-updated: 2024-12-06T17:14:24.598Z
+date: 2024-12-10T17:05:58.240Z
+updated: 2024-12-12T17:28:25.727Z
 tags: 
   - screen-recording
   - ai video
@@ -35,10 +35,6 @@ With this rising need of consumers needing more than just a [flying camera](http
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Top 10 Heavy lift drones
 
 Here are the best heavy lifting drones available in 2020, broken into over-10 kg and under-10 kg payloads.
@@ -59,15 +55,15 @@ Here are the best heavy lifting drones available in 2020, broken into over-10 kg
 | [FREEFLY ALTA 8](#freefly)                     | 18kg                                    | 16min       |       |
 | [ONYXSTAR HYDRA-12](#hydra12)                  | 12kg                                    | 30min       |       |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Under-10kg payload
 
 #### 1\. Tarot T-18 Ready To Fly Drone
 
 ![tarot t-18 ready to fly drone](https://images.wondershare.com/filmora/article-images/tarot-t-18-ready-to-fly-drone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The Tarot T-18 Ready To Fly Drone might just be the ideal drone for those (professional or amateur) who are looking to take outstanding, aerial photography with a decent sized DSLR, thanks to its capability of carrying up to an 8 kg payload. Thanks to the Tarot T-18's octocopter design, a heavy DSLR (or any other payload) will not cause stability or power issues that can come from single-, or even double-rotor drones. With a 20 min. flight time, the Tarot T-18 can be the perfect tool to add to any aerial photographers tool chest.
 
@@ -103,6 +99,10 @@ With the capability of taking off with a payload of about 6 kg, the DJI Matrice 
 
 The DJI's Matrice 100 combines the benefits of an easy-to-fly quadocpter with the ability to deliver a relatively good sized payload of around 3.6 kg. The X-configuration of the drone provides the perfect support for the on-board 4K camera, as well as space to add a supported third-party camera (like a GoPro.) With a flight time of around 50 min., the DJI's Matrice 100 is the perfect tool for anyone who needs a drone that can handle slightly heavier lifts.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Heavy lifting Drones: Over-10kg payload
 
 #### 1\. Vulcan UAV Airlift
@@ -116,7 +116,7 @@ The Airlift series is one of Vulcan's heaviest lifting drones to date. With the 
 ![az 4k uhd camera drone green bee 1200](https://images.wondershare.com/filmora/article-images/az-4k-uhd-camera-drone-green-bee-1200.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As the need for drones that can do some seriously heavy lifting has increased, the AZ 4K UHD Camera Drone Green Bee 1200 has stepped up to fill these needs. Whether you are looking to do some heavy lifting in the realm of photography or cinema, or you need a drone that can move your research and development technology around your indoor or outdoor work area, this drone has you covered. With the ability to carry a payload of up to 20 kg, and a flight time of 20 min. per battery, the AZ 4K UHD Camera Drone Green Bee 1200 is going to allow you to master any heavy lifting work situation with ease.
@@ -144,13 +144,13 @@ The HYDRA-12 was purpose-designed to be able to help you handle heavy payloads w
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -178,18 +178,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-streamline-a-barrage-of-tiktok-drafts-with-editing-skills/"><u>[New] In 2024, Streamline a Barrage of TikTok Drafts with Editing Skills</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-a-standout-linkedin-profile/"><u>[New] Mastering a Standout LinkedIn Profile</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-most-popular-gratuitous-vfx-websites-for-2024/"><u>[New] Most Popular Gratuitous VFX Websites for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-scouting-the-best-cameras-for-aspiring-muso-videographers/"><u>[Updated] 2024 Approved Scouting the Best Cameras for Aspiring Muso Videographers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/1715860744768-updated-essential-mac-screen-recorders-top-10-free-list/"><u>[Updated] Essential Mac Screen Recorders – Top 10 FREE List!</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-primes-trending-topics-highest-tweets-and-watch-count-achievements-for-2024/"><u>[Updated] Prime’s Trending Topics Highest Tweets & Watch Count Achievements for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/stest-growing-youtube-channels-to-inspire-you-for-2024/"><u>10 Fastest Growing YouTube Channels to Inspire You for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/easily-transform-videos-into-wav-format-a-three-step-guide/"><u>Easily Transform Videos Into WAV Format: A Three-Step Guide</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/exclusive-insight-into-low-cost-footage-websites-for-2024/"><u>Exclusive Insight Into Low-Cost Footage Websites for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-tecno-spark-10-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Tecno Spark 10 5G to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/preserving-your-virtual-sessions-gotomeeting-tips/"><u>Preserving Your Virtual Sessions GoToMeeting Tips</u></a></li>
-<li><a href="https://extra-support.techidaily.com/reversing-os-update-on-macs-back-to-el-capitan-for-2024/"><u>Reversing OS Update on Macs Back to El Capitan for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/transforming-srt-a-complete-reference-guide-for-conversion-for-2024/"><u>Transforming SRT A Complete Reference Guide for Conversion for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elevate-your-profile-the-complete-guide-to-editing-numbers-on-tiktok/"><u>[New] 2024 Approved Elevate Your Profile The Complete Guide to Editing Numbers on TikTok</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-enriching-mp4-soundtracks-with-srt-a-compreomedium-guide/"><u>[New] 2024 Approved Enriching MP4 Soundtracks with SRT – A Compreomedium Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-perfect-your-youtube-videos-after-publishing/"><u>[New] 2024 Approved Perfect Your YouTube Videos After Publishing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-tips-to-nail-every-green-screen-scene/"><u>[New] 2024 Approved Top Tips to Nail Every Green Screen Scene</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ease-non-filtered-youtube-video-trail-for-2024/"><u>[New] Cease Non-Filtered YouTube Video Trail for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-discover-unique-features-of-the-missing-iphone-x-for-2024/"><u>[New] Discover Unique Features of the Missing iPhone X for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-your-guide-to-flawless-solo-livestreaming-operations-for-2024/"><u>[New] Your Guide to Flawless, Solo Livestreaming Operations for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-z2-advantage-an-intelligent-mobile-assessment-for-2024/"><u>[Updated] Z2 Advantage An Intelligent Mobile Assessment for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ensure-peak-performance-latest-epson-wf-372-printer-driver-downloads-and-updates-await/"><u>Ensure Peak Performance: Latest Epson WF 372# Printer Driver Downloads and Updates Await!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-navigating-instagrams-video-landscape-a-detailed-look/"><u>In 2024, Navigating Instagram's Video Landscape A Detailed Look</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mastering-direct-controls-full-guide-to-powerdirector-2024/"><u>Mastering Direct Controls Full Guide to PowerDirector 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-realme-11-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Realme 11 Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://blog-min.techidaily.com/three-ideal-ways-to-download-music-from-dailymotion-a-step-by-step-guide/"><u>Three Ideal Ways to Download Music From Dailymotion: A Step-by-Step Guide</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/troubleshooting-woes-solving-lords-of-mayhem-computer-freeze-issues/"><u>Troubleshooting Woes: Solving 'Lords of Mayhem' Computer Freeze Issues</u></a></li>
 </ul></div>
 

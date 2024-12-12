@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Focal Flares  Amplifying Your Footage Visually\""
-date: 2024-08-23T01:50:28.412Z
-updated: 2024-08-24T01:50:28.412Z
+date: 2024-12-11T21:36:25.005Z
+updated: 2024-12-12T21:03:06.985Z
 tags: 
   - screen-recording
   - ai video
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 Many people are wondering how to set up lighting for video shooting. While there are many different ways to set up lighting, some methods are more effective than others.
 
 Therefore, this article will give you a complete guide on how to set up your lighting to make your videos stand out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -48,17 +52,29 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -85,6 +101,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **_3) Pro Tips: The light setting_**
 
@@ -124,8 +144,20 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-enhance-creativity-on-chrome-os-top-10-digital-pencil-stores/"><u>[New] 2024 Approved Enhance Creativity on Chrome OS Top 10 Digital Pencil Stores</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-visual-learning-experience-quick-edit-tips-for-educators/"><u>[New] 2024 Approved Visual Learning Experience Quick Edit Tips for Educators</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-secret-to-flawless-video-spin-guide-and-tips/"><u>[New] YouTube's Secret to Flawless Video Spin (Guide & Tips)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ultimate-online-seminar-creation-assistant/"><u>[Updated] In 2024, Ultimate Online Seminar Creation Assistant</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-vivid-video-visualization-the-essential-5-tools-guide/"><u>[Updated] In 2024, Vivid Video Visualization The Essential 5 Tools Guide</u></a></li>
+<li><a href="https://solve-info.techidaily.com/alternativ-zu-synology-data-replicator-top-downloads-fur-windows-10-und-11/"><u>Alternativ Zu Synology Data Replicator: Top-Downloads Für Windows 10 Und 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/demystifying-copyright-policies-for-your-instagram-playlist/"><u>Demystifying Copyright Policies for Your Instagram Playlist</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-you-cast-your-apple-iphone-12-to-windows-pc-with-ease-drfone-by-drfone-ios/"><u>How Can You Cast Your Apple iPhone 12 to Windows PC With Ease? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-modern-warfare-effective-strategies-to-resolve-dev-error-6034-for-both-pc-and-xbox-gamers/"><u>Mastering Modern Warfare: Effective Strategies to Resolve Dev Error 6034 for Both PC & Xbox Gamers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restoring-functionality-a-step-by-step-fix-for-lucidsound-ls30-microphones/"><u>Restoring Functionality: A Step-by-Step Fix for LucidSound LS30 Microphones</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578958498-tagalog-made-simple-learn-every-day-just-10-minutes/"><u>Tagalog Made Simple: Learn Every Day, Just 10 Minutes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-youtube-success-proven-techniques-for-effective-tagging/"><u>Unlock YouTube Success Proven Techniques for Effective Tagging</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/zac-efron-backgrounds-collection-for-your-computer-professional-photos-and-designs-from-yl-computing-solutions/"><u>Zac Efron Backgrounds Collection for Your Computer - Professional Photos and Designs From YL Computing Solutions</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->

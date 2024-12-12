@@ -1,7 +1,7 @@
 ---
 title: "Peering Into the World of LUTs and Their Effect on Pixels"
-date: 2024-12-04T17:55:03.748Z
-updated: 2024-12-06T20:39:49.603Z
+date: 2024-12-08T16:24:00.820Z
+updated: 2024-12-12T18:55:27.955Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ LUTs also aid in the organization of your post-production processes. You must kn
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How will LUTs change your photography?
@@ -58,10 +58,6 @@ LUTs assist you in applying a fresh color look to Raw or Jpg photos in seconds. 
 Warm or cold tones and bold or washed-out styles are all options provided by the LUTs.
 
 Photographers may now utilize the same techniques that film, and television editors have used for years to achieve the excellent new aesthetics seen in blockbusters. With quick LUT looks, you can now apply LUTs to your photographs to make your editing work stand out.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to use LUTs using Photoshop CC?
 
@@ -80,7 +76,7 @@ Choose Adjustment Layer
 ![how to use luts using Photoshop cc - load 3d lut](https://images.wondershare.com/filmora/article-images/2022/05/luts-photography-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 load 3d lut
@@ -91,6 +87,10 @@ load 3d lut
 
 LUTs come pre-installed in Photoshop, and you can use them as adjustment layers. As mentioned earlier, they'll alter the image's colors, and some of them will also alter the contrast. But what if you want to add LUTs? To add LUTs to Photoshop, you have two options. The first is really simple; all you have to do is discover the LUT and apply it to that specific project. The alternative is a little more difficult, but it enables you to access your LUTs at all times.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Here's the first method
 
 1. It would be best to unzip the LUT before using it in your project. This is relatively simple, and you may either use specialized software or the built-in unzipping utility in Windows.
@@ -99,7 +99,7 @@ LUTs come pre-installed in Photoshop, and you can use them as adjustment layers.
 4. Select the 'Load 3D LUT' button, then navigate to the directory where you unpacked the LUT files.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here's the second one
@@ -129,7 +129,7 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 ![Filmora Windows](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![Filmora Mac](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Closing Thoughts:
@@ -162,18 +162,18 @@ The use of LUTs, like most elements of photography and photo editing, necessitat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-unbeatable-video-popularity-tracker-in-youtube-arena/"><u>[New] 2024 Approved Unbeatable Video Popularity Tracker in YouTube Arena</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-premium-aerial-choices-for-high-quality-gopro-recordings/"><u>[New] Premium Aerial Choices For High-Quality GoPro Recordings</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-spin-tiktok-magic-into-viral-instagram-reel-success-for-2024/"><u>[New] Spin TikTok Magic Into Viral Instagram Reel Success for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-from-ordinary-to-stunning-photo-tile-magic/"><u>[Updated] 2024 Approved From Ordinary to Stunning Photo Tile Magic</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-optimal-free-tools-5-gif-to-video-conversion-websites-without-downloads-for-2024/"><u>[Updated] Optimal Free Tools 5 GIF-to-Video Conversion Websites Without Downloads for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-the-fastest-methods-to-uncover-hidden-reddit-articles/"><u>[Updated] The Fastest Methods to Uncover Hidden Reddit Articles</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/brainiacs-guide-to-best-gk-quizzes-online-for-2024/"><u>Brainiac's Guide to Best GK Quizzes Online for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/fortune-hashtags-for-high-impact-low-length-video-content-for-2024/"><u>Flix Fortune Hashtags for High Impact, Low-Length Video Content for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-polka-dotted-parakeet-party/"><u>In 2024, Polka-Dotted Parakeet Party</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-tech-tutorial-exporting-and-storing-your-snaps-safely/"><u>In 2024, Tech Tutorial Exporting and Storing Your Snaps Safely</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/poker-playpersonalized-projections/"><u>POKER PLAYPERSONALIZED PROJECTIONS</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/video-length-converting-hours-to-gb-storage-for-2024/"><u>Video Length Converting Hours to GB Storage for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-10-free-iphone-composition-tools-for-stunning-images/"><u>[New] 2024 Approved Top 10 Free iPhone Composition Tools for Stunning Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-edge-testing-gopros-hero5-black-against-sessions/"><u>[Updated] 2024 Approved The Ultimate Edge Testing GoPro's Hero5 Black Against Sessions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-complete-analysis-breaking-down-the-google-podcast-app/"><u>[Updated] Complete Analysis Breaking Down the Google Podcast App</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhancing-imagery-with-smart-layers-in-photoshop/"><u>[Updated] Enhancing Imagery with Smart Layers in Photoshop</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/core-elements-of-stories-for-2024/"><u>Core Elements of Stories for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-honor-x8b-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Honor X8b Location Settings | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/energize-android-videos-brightly/"><u>Energize Android Videos Brightly</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/guide-to-repairing-the-80211ac-supported-realtek-rtl8821ae-network-interface-controller-drivers/"><u>Guide to Repairing the 802.11Ac Supported Realtek RTL8821ae Network Interface Controller Drivers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-comprehensive-analysis-of-samsung-image-editor/"><u>In 2024, Comprehensive Analysis of Samsung Image Editor</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-samsung-cf591-a-top-contender-in-gaming-monitors/"><u>In-Depth Review of Samsung CF591: A Top Contender in Gaming Monitors</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-free-video-compression-top-picks-for-windows-10-users-for-2024/"><u>New Free Video Compression Top Picks for Windows 10 Users for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/resetting-your-preferences-for-windows-explorer-layout/"><u>Resetting Your Preferences for Window's Explorer Layout</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/seamlessly-combining-iphone-videos-and-images-for-2024/"><u>Seamlessly Combining IPhone Videos and Images for 2024</u></a></li>
 </ul></div>
 

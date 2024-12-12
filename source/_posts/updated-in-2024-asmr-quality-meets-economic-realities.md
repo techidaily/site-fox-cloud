@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, ASMR Quality Meets Economic Realities"
-date: 2024-12-03T19:49:29.128Z
-updated: 2024-12-06T21:29:32.790Z
+date: 2024-12-08T21:53:53.325Z
+updated: 2024-12-12T21:30:58.912Z
 tags: 
   - screen-recording
   - ai video
@@ -40,6 +40,10 @@ To help you create incredible ASMR video content, our team decided to curate a l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Top 7 Best ASMR Microphones
 
 Here are the best 7 ASMR microphones available on the market today:
@@ -48,11 +52,19 @@ Here are the best 7 ASMR microphones available on the market today:
 
 ![blue yeti usb mic](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Popular amongst live streamers and ASMR content creators, Blue Yeti USB mic is a top-quality condenser microphone suitable for creating unparalleled recordings. With the microphone, you can create the best vocal sound to entertain your ASMR audience.
 
 Blue Yeti USB mic is well-designed with comprehensive features. Besides ASMR, the microphone finds application in the music, gaming, and video recording industry. So whether you wish to create YouTube videos, Twitch clips, or podcasts, the Blue Yeti mic is a great vocal recording aid to use.
 
 Blue Yeti mic provides end-users with several polar patterns. From stereo mode to cardio to omnidirectional and bidirectional. Thus, you need not worry about positioning the microphone. Blue is equipped with a headphone jack. With this feature, you can monitor your streams and recordings conveniently. Connecting Blue's microphone is straightforward. Thanks to the USB connectivity feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. HyperX Quadcast
 
@@ -70,13 +82,25 @@ Lauten Audio LA-220 is another excellent microphone that you can use to capture 
 
 Unlike the aforementioned microphones, Lauten Audio LA-220 comes with a single polar pattern, cardioid to be precise. LA-220 is simple to use and budget-friendly. The mic supports a spider shock mount- a feature designed to protect the microphone from vibrations. Besides ASMR, you can also use it for other vocal recording services.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Audio-Technica AT2020 USB
 
 ![audio technica at2020 usb](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Readily available for as low as $150, Audio-Technica AT2020 USB is another industry-leading microphone to look out for if you want to create lovely ASMR vocals that will entice your listeners. This cardioid condenser mic is built with a USB connection so you don't stress with connectivity.
 
 Audio-Technica AT2020 USB mic comes with a low mass diaphragm which brings an extended frequency response coupled with a superior transient response. Additionally, the microphone supports features like high SPL handling, XLRM type output connector, and many others.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Rode NT1-A
 
@@ -86,10 +110,6 @@ Rode NT1-A is a popular microphone suitable for beginners in the ASMR space to c
 
 It supports features like an internal capsule shocking mount, dust cover, pop filter, high SPL capability, XLR cable, and many more. Rode NT1-A captures sound using the cardioid polar pattern. It produces a maximum of 5dB self-noise. Hence you don't have to worry about background or surrounding noise.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Blue Snowball iCE Plus ‘n Play USB Microphone
 
 ![blue snowball ice plus](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-6.jpg)
@@ -97,10 +117,6 @@ It supports features like an internal capsule shocking mount, dust cover, pop fi
 For as low as $39, Blue Snowball iCE is a cheap microphone perfect for ASMR vocal recordings. With this mic, you can capture your voice without experiencing any difficulty. No technical knowledge is required to configure this microphone to an audio recording source.
 
 Similar to Rode NT1-A, Blue Snowball iCE Plug ‘n Play USB microphone uses the cardioid polar pattern to capture your voice recordings. The mic supports pressure gradient, LED, etc. Blue Snowball iCE records audio without digital signal processing- one reason why it stands out amongst its competitors in similar industries.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Sennheiser MKH416
 
@@ -160,7 +176,7 @@ Locate, and click on the **Import Media** button. You will be directed to your l
 ![import media](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2Next, drag the newly imported video into the video timeline on Filmora interface. Depending on your default settings, you may get the prompt below:
@@ -177,15 +193,15 @@ Kindly select **Detach Audio**. The audio track will immediately detach from the
 
 ![detach audio](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4Next right-click on the detached audio. A page showing several editing features will pop up at the top left corner of your screen just as shown below:
 
 ![editing features](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-14.jpg)
 
 Scroll down to where you have the **Denoise** option, and check the **Remove background noise** option. Click on **OK**, and Filmora will immediately delete the background noise from the audio. Now you can export the video to your local drive. To do that click on the **Export** icon.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs
 
@@ -221,6 +237,10 @@ Blue Yeti USB mic is well-designed with comprehensive features. Besides ASMR, th
 
 Blue Yeti mic provides end-users with several polar patterns. From stereo mode to cardio to omnidirectional and bidirectional. Thus, you need not worry about positioning the microphone. Blue is equipped with a headphone jack. With this feature, you can monitor your streams and recordings conveniently. Connecting Blue's microphone is straightforward. Thanks to the USB connectivity feature.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. HyperX Quadcast
 
 ![hyperx quadcast](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-2.jpg)
@@ -236,10 +256,6 @@ HyperX Quadcast provides end-users with a sensitity tap-to-mute sensor that allo
 Lauten Audio LA-220 is another excellent microphone that you can use to capture your voice when recording ASMR content. This microphone is well designed with an all-around diaphragm condenser that makes it easy to record your voice conveniently. LA-220 is packaged with a 1'' pressure gradient capsule, and stand thread adaptor. It comes with a dust cover which protects it from dust particles.
 
 Unlike the aforementioned microphones, Lauten Audio LA-220 comes with a single polar pattern, cardioid to be precise. LA-220 is simple to use and budget-friendly. The mic supports a spider shock mount- a feature designed to protect the microphone from vibrations. Besides ASMR, you can also use it for other vocal recording services.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Audio-Technica AT2020 USB
 
@@ -257,6 +273,10 @@ Rode NT1-A is a popular microphone suitable for beginners in the ASMR space to c
 
 It supports features like an internal capsule shocking mount, dust cover, pop filter, high SPL capability, XLR cable, and many more. Rode NT1-A captures sound using the cardioid polar pattern. It produces a maximum of 5dB self-noise. Hence you don't have to worry about background or surrounding noise.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Blue Snowball iCE Plus ‘n Play USB Microphone
 
 ![blue snowball ice plus](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-6.jpg)
@@ -265,17 +285,9 @@ For as low as $39, Blue Snowball iCE is a cheap microphone perfect for ASMR voca
 
 Similar to Rode NT1-A, Blue Snowball iCE Plug ‘n Play USB microphone uses the cardioid polar pattern to capture your voice recordings. The mic supports pressure gradient, LED, etc. Blue Snowball iCE records audio without digital signal processing- one reason why it stands out amongst its competitors in similar industries.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Sennheiser MKH416
 
 ![sennheiser mkh416](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Sennheiser is another professional microphone committed to capturing quality ASMR recordings. Although very costly, this microphone holds several incredible features that make it worth your investment. Sennheiser MKH416 has a built-in laser beam focus- a feature that lets the mic capture only your voice and rejects every other ambient sound. Connecting Sennheiser to an audio recording source requires an XLR cable and a phantom power source. This voice aid offers great services.
 
@@ -322,10 +334,6 @@ Step1When Fiilmora opens, click on the **New Project** icon.
 
 ![new project](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 An interface as below will come up on your screen:
 
 ![interface](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-9.jpg)
@@ -348,17 +356,9 @@ Kindly select **Detach Audio**. The audio track will immediately detach from the
 
 ![detach audio](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4Next right-click on the detached audio. A page showing several editing features will pop up at the top left corner of your screen just as shown below:
 
 ![editing features](https://images.wondershare.com/filmora/article-images/2022/09/asmr-microphones-14.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Scroll down to where you have the **Denoise** option, and check the **Remove background noise** option. Click on **OK**, and Filmora will immediately delete the background noise from the audio. Now you can export the video to your local drive. To do that click on the **Export** icon.
 
@@ -406,17 +406,19 @@ Selecting the best ASMR microphone isn't easy, but here are some important facto
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-professional-editors-guide-fcps-top-10-plugins/"><u>[New] 2024 Approved Professional Editor’s Guide FCP's Top 10 Plugins</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-parable-pedagogues-group-ultimate-eight-for-2024/"><u>[New] Parable Pedagogues Group - Ultimate Eight for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-strategy-for-google-podcast-uploads-for-2024/"><u>[New] The Ultimate Strategy for Google Podcast Uploads for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-youtube-edition-expert-advice-on-creating-compelling-video-edits/"><u>[New] Youtube Edition Expert Advice on Creating Compelling Video Edits</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-discovering-the-best-4k-monitors-1-10/"><u>[Updated] 2024 Approved Discovering the Best 4K Monitors #1-10</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-vital-tips-to-preserve-lol-competitions-for-2024/"><u>[Updated] Vital Tips to Preserve LOL Competitions for 2024</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/1-ultimate-bootstrap-4-user-interface-kit-by-creative-tim-free-download/"><u>1. Ultimate Bootstrap 4 User Interface Kit by Creative Tim - Free Download</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/different-methods-to-unlock-your-apple-iphone-se-2020-drfone-by-drfone-ios/"><u>Different Methods To Unlock Your Apple iPhone SE (2020) | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-apple-iphone-xr-drfone-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For Apple iPhone XR | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/the-definitive-comparison-why-ring-video-doorbell-2-reigns-supreme-in-smart-security/"><u>The Definitive Comparison: Why Ring Video Doorbell 2 Reigns Supreme in Smart Security.</u></a></li>
-<li><a href="https://win-blog.techidaily.com/top-tips-for-enhancing-counter-strike-2-play-experience-by-increasing-frame-rate-and-reducing-lag/"><u>Top Tips for Enhancing Counter-Strike 2 Play Experience by Increasing Frame Rate & Reducing Lag</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-how-to-pace-perfectly-on-iphone-capturing-and-editing-slowed-down-videos/"><u>[New] 2024 Approved How to Pace Perfectly on iPhone Capturing & Editing Slowed Down Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-compact-cameras-for-mobile-cinematography/"><u>[New] Compact Cameras for Mobile Cinematography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-gaming-mastery-the-ultimate-speed-controller-guidebook/"><u>[New] In 2024, Gaming Mastery The Ultimate Speed Controller Guidebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-invaluable-slide-show-tools-for-business-executives/"><u>[Updated] 2024 Approved Invaluable Slide Show Tools for Business Executives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-key-methods-to-customize-song-speed-on-spotify/"><u>[Updated] 2024 Approved Key Methods to Customize Song Speed on Spotify</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhance-every-shot-with-free-top-image-boosters/"><u>[Updated] Enhance Every Shot with Free, Top Image Boosters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unleashing-creative-potential-with-instas-bokeh-effects/"><u>[Updated] In 2024, Unleashing Creative Potential with Insta's Bokeh Effects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-instagram-story-mastery-controlling-your-video-speed/"><u>[Updated] Instagram Story Mastery Controlling Your Video Speed</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-image-curves-in-adobe-photoshop-for-2024/"><u>[Updated] Mastering Image Curves in Adobe Photoshop for 2024</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/assessing-value-comparing-free-and-premium-chatgpt-services-zdnet-analysis/"><u>Assessing Value: Comparing Free and Premium ChatGPT Services | ZDNet Analysis</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-ricoh-printing-drivers-now-compatible-with-all-windows-versions/"><u>Get the Latest Ricoh Printing Drivers Now - Compatible with All Windows Versions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/hiding-identity-on-instagram-live-secure-viewing-tips-for-2024/"><u>Hiding Identity on Instagram Live Secure Viewing Tips for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-stop-2024-warcraft-solved-pc-game-from-crashing-best-practices-guide/"><u>How to Stop 2024 Warcraft [Solved] PC Game From Crashing - Best Practices Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-google-pixel-8-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Google Pixel 8 FRP</u></a></li>
 </ul></div>
 

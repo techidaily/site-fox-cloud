@@ -1,7 +1,7 @@
 ---
 title: "[New] The Art of Decreasing Audio Intensity in Logic Pro"
-date: 2024-11-29T18:24:57.712Z
-updated: 2024-12-06T16:33:21.008Z
+date: 2024-12-07T20:58:41.098Z
+updated: 2024-12-12T20:22:42.547Z
 tags: 
   - screen-recording
   - ai video
@@ -33,13 +33,13 @@ The Logic Pro fade-out method, generally, in music production is used to gradual
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Ways to Fade Audio with Logic Pro X
 
 The tool may be used in your productions to help you conclude songs gradually and create more seamless transitions between different parts of your project. In Logic, there are several ways to create fades, but the two most popular methods are automation and the fade tool. The appropriate course of action will vary depending on several variables that we shall discuss later in this piece.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 1: Employ an Automation Tool
 
@@ -54,12 +54,16 @@ Step2 Enter the required value for your fade in the Fade Out section by clicking
 ![fade out section logic pro](https://images.wondershare.com/filmora/article-images/2022/07/fade-out-section-logic-pro.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 Create an automation curve on the produced fade using the Curve section if you'd like. For greater control, you may add a curve to your fading automation. To achieve this, choose the Automation Curve Tool by clicking on the Tool Selector at the top of the Arrangement View. Then, left-click and drag your automation point up or down between the points.
 
 ![automation curve logic pro](https://images.wondershare.com/filmora/article-images/2022/07/automation-curve-logic-pro.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Employ the Fade-Out Tool
 
@@ -69,16 +73,12 @@ Step1 Navigate to the Tool Selector located at the Region View's top. Select the
 
 ![fade tool logic pro](https://images.wondershare.com/filmora/article-images/2022/07/fade-tool-logic-pro.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Select the fade tool, then left-click on the beginning point of your fading while still in the appropriate audio zone. Till the conclusion of your fade, drag the mouse.
 
 ![region master logic pro](https://images.wondershare.com/filmora/article-images/2022/07/region-master-logic-pro.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 The "Fade Out" option may also be used to manage how quickly an area fades out. You must first choose an area and then press the "Fade Out" slider to do this. A playhead may regulate a cross-fade depending on the genre of music. The choice is unaffected by this. However, you should utilize the "Fade In" slider if you're employing an audio effect in a video.
@@ -95,12 +95,16 @@ Step2 To generate a seamless fade while dealing with audio, you must utilize the
 
 ![fade out funtions logic pro](https://images.wondershare.com/filmora/article-images/2022/07/fade-out-funtions-logic-pro.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Additionally, you will always have the option to change the level, which is a terrific method to avoid having too much background noise in your music as shown here:
 
 ![edit music logic pro](https://images.wondershare.com/filmora/article-images/2022/07/edit-music-logic-pro.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. Logic Pro X Alternative to Fade Audio
@@ -137,16 +141,12 @@ To achieve this, focus on the audio file that you want to change in the timeline
 
 ![use audio fade out](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4 Export Your Fade Out Video
 
 In the final touch, if you are content with the way your voice has evolved, now may be the ideal time to maintain it or even record it. There is support for all widely used video and audio formats, including MP3\. Click "Export" and choose the appropriate file format from the Local menu as shown below to do this. The parameters as indicated below allow you to alter the ultimate location of the altered audio file:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -158,6 +158,10 @@ Apple's Logic Pro X is not compatible with Windows-based computers. Therefore, i
 ## Part 1\. Ways to Fade Audio with Logic Pro X
 
 The tool may be used in your productions to help you conclude songs gradually and create more seamless transitions between different parts of your project. In Logic, there are several ways to create fades, but the two most popular methods are automation and the fade tool. The appropriate course of action will vary depending on several variables that we shall discuss later in this piece.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 1: Employ an Automation Tool
 
@@ -171,16 +175,16 @@ Step2 Enter the required value for your fade in the Fade Out section by clicking
 
 ![fade out section logic pro](https://images.wondershare.com/filmora/article-images/2022/07/fade-out-section-logic-pro.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Create an automation curve on the produced fade using the Curve section if you'd like. For greater control, you may add a curve to your fading automation. To achieve this, choose the Automation Curve Tool by clicking on the Tool Selector at the top of the Arrangement View. Then, left-click and drag your automation point up or down between the points.
 
 ![automation curve logic pro](https://images.wondershare.com/filmora/article-images/2022/07/automation-curve-logic-pro.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Employ the Fade-Out Tool
@@ -238,10 +242,6 @@ Then, you must import your files, which is easy with Filmora since you just need
 You must drag the media files into the program's timeline after importing them into Filmora. You may modify your media files using every tool in the timeline. To utilize Filmora's audio editor, just right-click on the specific audio file and choose "Edit Audio" from the list:
 
 ![launch audio editor in filmora](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step3 Use the Audio Fade-in/Fade-out
 
@@ -283,18 +283,20 @@ Apple's Logic Pro X is not compatible with Windows-based computers. Therefore, i
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-elite-list-8-amazing-3d-websites-and-glittering-text-for-2024/"><u>[New] Elite List 8 Amazing 3D Websites & Glittering Text for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-master-multi-tasking-on-edge-with-picture-in-picture/"><u>[New] Master Multi-Tasking on Edge with Picture-in-Picture</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-soaring-stories-crafting-engaging-drone-video-narratives/"><u>[New] Soaring Stories Crafting Engaging Drone Video Narratives</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-essential-20-copyright-free-pubg-display-packs/"><u>2024 Approved Essential 20 Copyright-Free PUBG Display Packs</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-the-secrets-of-funimate-download/"><u>2024 Approved Navigating the Secrets of Funimate Download</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-tips-for-smooth-transitioning-from-zoom-to-fb-live-events/"><u>2024 Approved Tips for Smooth Transitioning From ZOOM to FB Live Events</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/best-free-meme-templates/"><u>Best Free Meme Templates</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/financial-overview-total-investment-for-music-clip-shootings-for-2024/"><u>Financial Overview Total Investment for Music Clip Shootings for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-ultimate-record-keeper-thorough-az-audits/"><u>In 2024, Ultimate Record Keeper - Thorough AZ Audits</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-unveiling-the-secrets-of-lut-customization-in-premiere/"><u>In 2024, Unveiling the Secrets of LUT Customization in Premiere</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/ipados-18-unveiled-at-wwdc-2024-the-game-changing-features-that-could-persuade-you-to-choose-apples-tablet-today-insights/"><u>IPadOS 18 Unveiled at WWDC 2024: The Game-Changing Features That Could Persuade You to Choose Apple’s Tablet Today - Insights</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-samsung-galaxy-xcover-6-pro-tactical-edition-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Samsung Galaxy XCover 6 Pro Tactical Edition Location | Dr.fone</u></a></li>
+<li><a href="https://discover-community.techidaily.com/resumption-alert-joint-army-training-between-china-and-singapore-on-the-horizon-from-late-august-to-mid-september-details-revealed-in-cooperation-202n3/"><u>'Resumption Alert: Joint Army Training Between China and Singapore on the Horizon! From Late August to Mid-September – Details Revealed in Cooperation-202n3</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effective-strategies-for-removing-youtube-media-from-computers/"><u>[New] 2024 Approved Effective Strategies for Removing YouTube Media From Computers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-key-video-beginnings-identifying-the-best-16-for-more-watches/"><u>[Updated] 2024 Approved Key Video Beginnings Identifying the Best 16 for More Watches</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-comprehensive-review-of-non-google-augmented-reality-accessories/"><u>2024 Approved Comprehensive Review of Non-Google Augmented Reality Accessories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-critical-top-5-minute-tight-video-capturers-guide/"><u>2024 Approved Critical Top 5 Minute-Tight Video Capturers Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-evaluation-report-elite-parrot-ar-drone-20/"><u>2024 Approved Evaluation Report Elite Parrot AR Drone 2.0</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-laughburst-app-for-all-humor-needs/"><u>2024 Approved LaughBurst App for All Humor Needs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-pixelpun-factory/"><u>2024 Approved PixelPun Factory</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-propel-your-productivity-with-mematic-tech/"><u>2024 Approved Propel Your Productivity with Mematic Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-reach-peaks-lead-lines-strategies-to-elevate-telegram-marketing/"><u>2024 Approved Reach Peaks, Lead Lines Strategies to Elevate Telegram Marketing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-vivo-t2x-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Vivo T2x 5G</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhance-your-tiktok-content-creation-using-advanced-editing-tools/"><u>Enhance Your TikTok Content Creation Using Advanced Editing Tools</u></a></li>
+<li><a href="https://discover-help.techidaily.com/kopieren-von-festplatteninhalten-auf-windows-7-ohne-neukonfiguration-einfache-anleitung-mit-4-schritten/"><u>Kopieren Von Festplatteninhalten Auf Windows 7 Ohne Neukonfiguration: Einfache Anleitung Mit 4 Schritten</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transform-your-images-into-dynamic-visual-stories/"><u>Transform Your Images Into Dynamic Visual Stories</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1725285862811-windows-11/"><u>Windows 11 最新メディアプレイヤー選び - 評価入り無料安全版</u></a></li>
 </ul></div>
 

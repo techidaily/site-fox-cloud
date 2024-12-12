@@ -1,7 +1,7 @@
 ---
 title: "\"Make Each Second Count  Engaging Activities that Blend Learning and Multitasking\""
-date: 2024-11-29T17:20:44.158Z
-updated: 2024-12-06T18:45:37.982Z
+date: 2024-12-11T16:35:55.218Z
+updated: 2024-12-12T17:31:00.268Z
 tags: 
   - screen-recording
   - ai video
@@ -30,7 +30,7 @@ So, to make the most of your time spent listening to podcasts, here are some ide
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When Listening to a Podcast, What Is Appropriate To Do?
@@ -43,31 +43,23 @@ It allows you to fill those moments by learning new things and improving cogniti
 
 Tasks like commuting, taking a bath, or doing dishes are subconscious. Yes, you can make them mindful and also make their meditative process. But if you are still bored, it is best to fill these little moments of your day with information-rich podcasts. Any mindless task is an opportunity. You do not need to devote any attention to these tasks and can listen to podcasts during this time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### ● Thing is able to do independently
 
 Collaborative work involves communicating with others. So, it is usually best to listen to the podcast when doing something independently. But this does not mean you should always listen to the podcast when doing independent work only. Even if you are surrounded by others and working on something independently, then you can fill the time with the podcast.
 
 Moreover, some things like when you are driving with someone or you are on a road trip, and the other person also enjoys listening to the podcast, then you can fill the time with podcast episodes that interest you both. This also allows you to talk about the episodes and the ideas discussed there, and you both will have something to talk about.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ● Repetitive
 
 You can tune in to the podcasts for repetitive tasks like doing the dishes, gardening, etc. The idea is to complement the repetitive task with something useful.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 15 Things To Do While Listening To Podcasts
 
 That said, here's a short list of things to do while listening to a podcast. It is important to note that not all of you might be doing these tasks, but you must be doing something along these lines. So, it is all about familiarizing you with mindless tasks and how you can make the most of that activity by complementing it with a podcast episode.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Yoga or stretch
 
@@ -78,7 +70,7 @@ As surprising as this might sound, listening to a podcast during Yoga or stretch
 Besides, once you learn the stretch or yoga positions, it becomes a subconscious process. So, chances are, you might not need music to do the stretches or exercises you've already learned. Overall, a good yoga podcast will help improve your knowledge of the yoga field!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Jogging
@@ -86,6 +78,10 @@ Besides, once you learn the stretch or yoga positions, it becomes a subconscious
 Jogging appeals for its mindlessness is prominent among people. Just one foot in front of the other is all jogging and running demands. Again, most people listen to music while on a jog or run. However, you can switch from music to your favorite podcasts easily.
 
 ![jogging podcast](https://images.wondershare.com/filmora/article-images/2023/01/things-to-do-while-listening-to-podcasts-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Listening to podcasts is a mindful activity, so when you run or jog with a podcast episode playing in your ears, it is easy to get distracted. So, it is vital to jog or run in a safe environment while listening to podcasts.
 
@@ -97,11 +93,11 @@ If you go fishing often and listen to music or sit with your friends, you can in
 
 ![fishing podcast](https://images.wondershare.com/filmora/article-images/2023/01/things-to-do-while-listening-to-podcasts-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Moreover, listening to a podcast while fishing does not mean you should start the podcast only when you sit near the lake or pond to fish. It is the entire process; you can start your podcast episodes right from when you take your car, the breaks you take, and while returning too. Try this one when you go fishing and dedicate all the time you set for fishing to listening to podcasts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Organize your photos or files
 
@@ -116,6 +112,10 @@ The benefit of combining listening to a podcast while organizing your photos or 
 Do you cook daily? Or maybe once or twice a week? Well, you can tune into your favorite episodes and cook. The best thing is if you are interested in cooking podcasts, then it is a perfect combination. Nevertheless, even if you follow podcasts discussing astronomy or rocket science, cooking is one of the best things to do while listening to podcasts, it saves time, and you also enjoy a healthy and delicious meal.
 
 ![cooking podcast](https://images.wondershare.com/filmora/article-images/2023/01/things-to-do-while-listening-to-podcasts-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Chopping vegetables or meat, the washing process, and food preparation are some activities that consume a lot of time of people, so filling this with information-rich podcasts is a good substitute for your time.
 
@@ -135,10 +135,14 @@ However, podcasts are made for such times and hurtful tasks like doing laundry o
 
 ![laundry podcast](https://images.wondershare.com/filmora/article-images/2023/01/things-to-do-while-listening-to-podcasts-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Better yet, swift to hand-laundering. Hand laundering has a bad rep, but it is one of the best ways to burn some calories. Sometimes, hand-laundering is necessary; for instance, if you have to wash an expensive garment or want to avoid going to the laundromat, combine the entire process with your favorite podcast playing in your ears.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Gardening
@@ -146,10 +150,6 @@ Better yet, swift to hand-laundering. Hand laundering has a bad rep, but it is o
 Gardening is a set of activities that often are mindless. Additionally, this is one of those activities you often have to turn to every week to ensure your plants are growing normally. You can perfectly fill these activities by tuning a podcast and making the most of your time.
 
 ![gardening podcast](https://images.wondershare.com/filmora/article-images/2023/01/things-to-do-while-listening-to-podcasts-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Basically, if you are thinking about all the stuff to do while listening to podcasts, compile a list of mindless activities you regularly engage in and see if you can substitute such activities; in this case, gardening with podcasts should feel comfortable to you.
 
@@ -169,19 +169,11 @@ If we have to inform this, it means you are not having fun while doing the dishe
 
 ![dishes podcast](https://images.wondershare.com/filmora/article-images/2023/01/things-to-do-while-listening-to-podcasts-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The fun, the learning, and the sense of doing something different hits differently when you combine podcasts with doing dishes; not to forget, you made something of the time that you hate the most of your day.
 
 ### 11\. Paint your nails
 
 Painting nails is once again one of those processes that are initially elegant and important for girls. However, the waiting time while you are drying out the nail polish is the worst. However, doing something fun like playing your high-beat music with dancing as you've never danced before takes you into an astral world and allows you to experience a different side of yourself. This time, however, try playing the newest episode from your favorite podcast. And note down your experience once you complete it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 12\. Take a bath
 
@@ -205,11 +197,19 @@ Again, it all comes down to making a daunting task like cleaning the house fun a
 
 Most people ignore these beautiful tasks of the day, thinking they will be wasting their time, and often hire a housemaid. But that's the beauty of the modern world; you can make these tasks fun and entertaining if only complemented with the right podcasts or music.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 15\. Haircut or hair dye
 
 A haircut is a time that you give to your barber. It is all about sitting on the chair and letting the masters do their work. And putting on earphones for listening to music and podcast can be disastrous, as one snip and your costly earphones will be gone for good.
 
 ![haircut podcast](https://images.wondershare.com/filmora/article-images/2023/01/things-to-do-while-listening-to-podcasts-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 However, you can make the time of everyone sitting at the saloon beautiful by simply asking the barber to play one of the podcasts they like or you like. This will also allow you to experience new podcasts you aren't familiar with and initiate a good conversation with your client.
 
@@ -246,16 +246,14 @@ So, to make the most of your time spent listening to podcasts, here are some ide
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ls-showdown-tech-titans-clashing-in-real-time/"><u>[Updated] 2024 Approved The LS Showdown Tech Titans Clashing in Real Time</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-demystifying-trillers-unique-approach-to-video-content/"><u>[Updated] Demystifying Triller's Unique Approach to Video Content</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-exploring-user-experiences-triller-and-tiktok-compared-max-156-chars/"><u>[Updated] Exploring User Experiences Triller & TikTok Compared (Max 156 Chars)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-exploring-extraordinary-realms-metaverse-vs-omniverse-analyzed/"><u>2024 Approved Exploring Extraordinary Realms Metaverse Vs. Omniverse Analyzed</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/embrace-new-dimensions-step-by-step-on-your-vr-journey/"><u>Embrace New Dimensions Step-by-Step on Your VR Journey</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-vivo-v29-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Vivo V29 Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-files-after-iphone-11-factory-reset-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Files after iPhone 11 Factory Reset? | Stellar</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-the-world-of-haul-videography-tips-and-tricks/"><u>In 2024, Navigating the World of Haul Videography Tips and Tricks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-navigating-through-the-best-youtube-to-avi-options/"><u>In 2024, Navigating Through the Best YouTube-to-AVI Options</u></a></li>
-<li><a href="https://fox-that.techidaily.com/mastering-mobile-troubleshooting-utilizing-the-apple-support-app-on-your-iphone/"><u>Mastering Mobile Troubleshooting: Utilizing the Apple Support App on Your iPhone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/prestigious-vr-movie-collection-to-watch-for-2024/"><u>Prestigious VR Movie Collection to Watch for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-visual-learning-experience-quick-edit-tips-for-educators/"><u>[New] 2024 Approved Visual Learning Experience Quick Edit Tips for Educators</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ultimate-online-seminar-creation-assistant/"><u>[Updated] In 2024, Ultimate Online Seminar Creation Assistant</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-vivid-video-visualization-the-essential-5-tools-guide/"><u>[Updated] In 2024, Vivid Video Visualization The Essential 5 Tools Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-science-behind-apples-m1-processor-unveiled/"><u>[Updated] The Science Behind Apple’s M1 Processor Unveiled</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/demystifying-copyright-policies-for-your-instagram-playlist/"><u>Demystifying Copyright Policies for Your Instagram Playlist</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/expert-advice-for-efficiently-creating-srt-files/"><u>Expert Advice for Efficiently Creating SRT Files</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-ios-system-issues-of-iphone-7-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System Issues of iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-the-complexities-of-ai-made-messages/"><u>Navigating the Complexities of AI-Made Messages</u></a></li>
 </ul></div>
 

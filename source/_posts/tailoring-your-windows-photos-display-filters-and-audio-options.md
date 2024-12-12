@@ -1,7 +1,7 @@
 ---
 title: "\"Tailoring Your Windows Photos Display  Filters & Audio Options\""
-date: 2024-12-02T17:47:23.111Z
-updated: 2024-12-06T19:40:08.288Z
+date: 2024-12-06T17:26:17.354Z
+updated: 2024-12-12T19:25:00.930Z
 tags: 
   - screen-recording
   - ai video
@@ -51,7 +51,7 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
@@ -60,11 +60,11 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 5**: Just select one you like. Preview it and then click Done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to add music on Windows 10 Photos App
 
@@ -78,19 +78,19 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +99,7 @@ From the above article, we conclude that Windows 10 Photos app is an amazing app
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,18 +127,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-expert-insights-into-efficient-lunapic-usage/"><u>[New] In 2024, Expert Insights Into Efficient LunaPic Usage</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-exploring-the-budget-needs-of-making-a-melody-on-screen/"><u>[New] In 2024, Exploring the Budget Needs of Making a Melody on Screen</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-grandmaster-gaming-evaluating-the-best-7-total-war-experiences/"><u>[New] In 2024, Grandmaster Gaming Evaluating the Best 7 Total War Experiences</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-edgeresolve-pixelperfect-booster-windowsmacos/"><u>[Updated] In 2024, EdgeResolve PixelPerfect Booster (Windows/MacOS)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-professional-gopro-footage-in-3-simple-steps/"><u>[Updated] In 2024, Professional Gopro Footage in 3 Simple Steps</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-reintroducing-classic-windows-photo-viewer-w10-edition-for-2024/"><u>[Updated] Reintroducing Classic Windows Photo Viewer - W10 Edition for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/easy-email-notification-pinning-gmail-on-windows-desktop/"><u>Easy Email Notification: Pinning Gmail on Windows Desktop</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-effortless-ways-to-transfer-data-from-your-apple-iphone-se-2022-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Effortless Ways to Transfer Data from Your Apple iPhone SE (2022) to iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-the-apple-iphone-se-2020-sim-lock-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock The Apple iPhone SE (2020) SIM Lock 4 Easy Methods</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagrams-qanda-sticker-usage-for-2024/"><u>Mastering Instagram's Q&A Sticker Usage for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/perfect-your-titling-skills-with-our-best-practices/"><u>Perfect Your Titling Skills with Our Best Practices</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/power-fluctuation-addressed-and-stabilized-in-distribution-hub/"><u>Power Fluctuation Addressed and Stabilized in Distribution Hub</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-building-a-visual-story-on-facebook-with-slideshows/"><u>[New] 2024 Approved Building a Visual Story on Facebook with Slideshows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-deals-on-superior-asmr-microphone-technology/"><u>[New] Best Deals on Superior ASMR Microphone Technology</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-cam-functioning-post-fix-triumph-for-obs/"><u>[New] In 2024, Cam Functioning Post-Fix Triumph for OBS</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-masterful-plot-crafting-in-film-history/"><u>[New] Masterful Plot Crafting in Film History</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/10plus-sites-accessible-free-visuals-for-everyone/"><u>10+ Sites Accessible, Free Visuals for Everyone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-a-stepwise-approach-for-effective-periscope-video-storage/"><u>2024 Approved A Stepwise Approach for Effective Periscope Video Storage</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-copyright-clash-violation-removal-came-quick/"><u>2024 Approved Copyright Clash Violation, Removal Came Quick</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-your-photo-projects-techniques-for-adding-text-to-digital-images/"><u>2024 Approved Elevate Your Photo Projects Techniques for Adding Text to Digital Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-engaging-strategies-for-amplifying-your-youtube-fanbase/"><u>2024 Approved Engaging Strategies for Amplifying Your YouTube Fanbase</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-how-to-polish-your-tiktok-edits-advanced-strategies-for-success/"><u>2024 Approved How to Polish Your TikTok Edits Advanced Strategies for Success</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-introduction-to-moving-graphics-core-principles/"><u>2024 Approved Introduction to Moving Graphics Core Principles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-leading-5-underwater-filters-for-gopro-videos/"><u>2024 Approved Leading 5 Underwater Filters for Gopro Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-lightroom-for-android-unveiled-detailed-assessment/"><u>2024 Approved Lightroom for Android Unveiled Detailed Assessment</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-prototypical-360-rotation-camera-study/"><u>2024 Approved Prototypical 360° Rotation Camera Study</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fix-the-libcurldll-file-is-accessible-from-current-working-directory-error/"><u>Fix the 'libcurl.dll' File Is Accessible From Current Working Directory Error</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-and-modifying-network-address-translation-in-wins-oses/"><u>Navigating and Modifying Network Address Translation in Wins OSes</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-guide-installing-latest-mono-laser-driver-for-your-dell-2330d-or-2330dn-printer/"><u>Step-by-Step Guide: Installing Latest Mono Laser Driver for Your Dell 2330D or 2330DN Printer</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-selection-15-favorite-free-tools-to-effortlessly-remove-programs/"><u>The Ultimate Selection: 15 Favorite Free Tools to Effortlessly Remove Programs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-selection-best-idevice-custom-alerts/"><u>Ultimate Selection Best iDevice Custom Alerts</u></a></li>
 </ul></div>
 

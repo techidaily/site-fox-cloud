@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Cinematic Edge  Master the Top 5 Camera Skills for 2024\""
-date: 2024-12-04T19:26:03.151Z
-updated: 2024-12-06T19:09:34.638Z
+date: 2024-12-08T18:39:42.686Z
+updated: 2024-12-12T19:07:35.018Z
 tags: 
   - screen-recording
   - ai video
@@ -39,11 +39,11 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 ![smooth camera movement](https://images.wondershare.com/filmora/article-images/2022/12/smooth-camera-movement.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2 Now open and close the door to get smooth camera movement.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tip 2\. DIY Light Focus and Control
 
@@ -67,14 +67,6 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -92,10 +84,6 @@ Step 4 Now, use this DIY Light Flag to shape or block light while filming.
 Let us see how it looks;
 
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### DIY Black Wrap
 
@@ -120,7 +108,7 @@ Here is a GIF attached for a better understanding of the steps.
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Light Reflector
@@ -142,7 +130,7 @@ There is a GIF attached below to understand the steps visually.
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tip 3\. DIY Light Diffuser
@@ -167,13 +155,13 @@ For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Reveal Movement
 
@@ -193,6 +181,10 @@ Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -210,6 +202,10 @@ Step 3 Move slowly to the other side of the subject while recording.
 A sample video attached below shows how to record 180 presentation movements.
 
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
 
@@ -232,7 +228,11 @@ The video attached below will help you to understand these steps.
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -271,19 +271,21 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-from-amateur-to-professional-iphone-filmmaking-8-key-tips-for-2024/"><u>[New] From Amateur to Professional iPhone Filmmaking (8 Key Tips) for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-from-monochrome-to-multicolor-grading-journey/"><u>[New] In 2024, From Monochrome to Multicolor Grading Journey</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-harmonize-your-preferences-how-to-create-an-engaging-youtube-playlist/"><u>[New] In 2024, Harmonize Your Preferences How to Create an Engaging YouTube Playlist</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-in-depth-skype-audio-capture-guide-with-obs-software/"><u>[New] In 2024, In-Depth Skype Audio Capture Guide with OBS Software</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-pixiz-guide-to-blending-photography-and-motion/"><u>[New] In 2024, The Pixiz Guide to Blending Photography and Motion</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-transferring-twitter-videos-to-whatsapp-effortlessly/"><u>[New] Transferring Twitter Videos to WhatsApp Effortlessly</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitters-favorites-top-10-tiktok-vids-for-2024/"><u>[New] Twitter's Favorites Top 10 TikTok Vids for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-creating-a-strong-brand-voice-with-social-media-videos/"><u>[Updated] 2024 Approved Creating a Strong Brand Voice with Social Media Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-a-20-second-symphony-understanding-musics-compact-formats-for-2024/"><u>[Updated] A 20-Second Symphony Understanding Music's Compact Formats for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-techniques-to-amplify-youtube-video-clarity/"><u>[Updated] In 2024, Techniques to Amplify YouTube Video Clarity</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-virtual-classrooms-future-learning-unleashed/"><u>[Updated] In 2024, Virtual Classrooms Future Learning Unleashed</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/diy-troubleshooting-for-system-pte-blunders-causing-blue-screens/"><u>DIY Troubleshooting for System PTE Blunders Causing Blue Screens</u></a></li>
-<li><a href="https://common-error.techidaily.com/improve-bluetooth-pairing-with-these-fixes-for-windows-10-users/"><u>Improve Bluetooth Pairing with These Fixes for Windows 10 Users</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/is-image-stabilization-a-feature-worth-your-time-in-2024/"><u>Is Image Stabilization a Feature Worth Your Time, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-overcome-oversaturated-tiktok-drafters-through-savvy-edits/"><u>[New] 2024 Approved Overcome Oversaturated TikTok Drafters Through Savvy Edits</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ast-tip-mastering-green-screen-techniques-for-2024/"><u>[New] Fast Tip Mastering Green Screen Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-excellence-in-capturing-slow-motions/"><u>[New] In 2024, Excellence in Capturing Slow Motions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-potential-with-polarrs-advanced-editing-features/"><u>[New] Unlocking Potential with Polarr's Advanced Editing Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-pushing-boundaries-with-vr-choosing-your-ultimate-game-platform/"><u>[Updated] 2024 Approved Pushing Boundaries with VR Choosing Your Ultimate Game Platform</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-essentials-of-capturing-free-visual-display-vids/"><u>[Updated] Essentials of Capturing Free Visual Display Vids</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-download-x-recorder-for-pc/"><u>[Updated] In 2024, Download X-Recorder for PC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-expert-reviews-top-5-masterful-motion-capture-devices/"><u>[Updated] In 2024, Expert Reviews Top 5 Masterful Motion Capture Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unlock-xps-cinematic-compositions-now/"><u>[Updated] Unlock XP's Cinematic Compositions Now</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-explore-androids-best-moba-experiences-in-10/"><u>2024 Approved Explore Android's Best MOBA Experiences in #10</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comctl32dll-absent-methods-to-restore-and-repair-the-dll-file/"><u>Comctl32.dll Absent: Methods to Restore and Repair the DLL File</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eradicating-share-problems-using-nvidia-software-windows/"><u>Eradicating Share Problems Using NVIDIA Software (Windows)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-from-novice-to-pro-the-complete-creator-hub-guide/"><u>In 2024, From Novice to Pro The Complete Creator Hub Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-honor-x9b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-smart-portable-audio-system-yamahas-mcr-b020bl/"><u>The Smart, Portable Audio System: Yamaha's MCR-B020BL</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unveiling-secrets-to-craft-impeccable-timelapse-shots-with-gopro/"><u>Unveiling Secrets to Craft Impeccable Timelapse Shots with GoPro</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Utilizing Alternate Shots to Elevate Film Quality"
-date: 2024-12-02T16:18:36.775Z
-updated: 2024-12-06T20:01:23.829Z
+date: 2024-12-05T18:46:18.242Z
+updated: 2024-12-12T20:52:41.657Z
 tags: 
   - screen-recording
   - ai video
@@ -49,24 +49,16 @@ On the other hand, cutaways can show how different people react to what is being
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
@@ -74,12 +66,16 @@ Including archival material in your video allows your audience to experience a p
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
@@ -87,19 +83,23 @@ When you are sharing a narrative that has been told in the past or that has hist
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Pick-up shots
 
 A pick-up is a tiny shot added to previously captured material. Re-shoots involve redoing entire scenes. Both types of shots are commonly added during film editing to fix, logic, continuity, or quality flaws. These photos happen a while after the sets have been taken down, clothes and props stowed, and the actors and crew have gone on to new projects.
 
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,19 +135,22 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfecting-your-shots-action-cameras-for-skisnowboarding/"><u>[New] 2024 Approved Perfecting Your Shots Action Cameras for Ski/Snowboarding</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-android-lightroom-app-breakdown-a-complete-review/"><u>[New] In 2024, Android Lightroom App Breakdown A Complete Review</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-reassessing-the-updates-to-sonys-s6500-bdhd-player/"><u>[New] In 2024, Reassessing the Updates to Sony's S6500 BD/HD Player</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-instagram-video-orientation-whats-the-flip/"><u>[New] Instagram Video Orientation - What's the Flip?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-z2-play-analysis-next-gen-tech-insights/"><u>[Updated] 2024 Approved Z2 Play Analysis Next-Gen Tech Insights</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-cutting-edge-tips-for-android-time-lapse-capture-mastery-2024/"><u>[Updated] Cutting-Edge Tips for Android Time-Lapse Capture Mastery 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-visual-vault-visitor/"><u>[Updated] In 2024, Visual Vault Visitor</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-guide-to-youtube-caption-insertion/"><u>[Updated] The Ultimate Guide to YouTube Caption Insertion</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-distinguished-top-5-tiny-yet-powerful-cameras/"><u>2024 Approved Distinguished Top 5 Tiny Yet Powerful Cameras</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-vivo-y200e-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Vivo Y200e 5G FRP Android 10/11/12/13</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-factory-unlock-your-telstra-apple-iphone-7-by-drfone-ios/"><u>In 2024, How To Factory Unlock Your Telstra Apple iPhone 7</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-masterful-mp4-transformation-tools-facebook-edition/"><u>In 2024, Masterful MP4 Transformation Tools (Facebook Edition)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-designers-odyssey-navigating-to-professional-prominence/"><u>[New] In 2024, The Designer's Odyssey Navigating to Professional Prominence</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-transform-your-tactics-exclusive-free-voice-change-tool-for-valorant-gamers/"><u>[New] Transform Your Tactics Exclusive Free Voice Change Tool for Valorant Gamers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-exploring-whatsapps-sound-transfers/"><u>[Updated] 2024 Approved Exploring WhatsApp's Sound Transfers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-aurora-hdr-vs-standard-imagery-quality-analysis/"><u>[Updated] Aurora HDR vs Standard Imagery Quality Analysis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elite-workstations-for-peak-productivity-for-2024/"><u>[Updated] Elite Workstations for Peak Productivity for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-evening-stories-visualized-evaluations/"><u>[Updated] In 2024, Evening Stories Visualized Evaluations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-preferred-programs-3d-animated-scene-design/"><u>[Updated] In 2024, Preferred Programs 3D Animated Scene Design</u></a></li>
+<li><a href="https://extra-support.techidaily.com/add-radial-blur-effect-to-photos-in-photoshop-for-2024/"><u>Add Radial Blur Effect to Photos in Photoshop for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nt-creators-revenue-gain-from-each-click-for-2024/"><u>Content Creators' Revenue Gain From Each Click for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/detailed-exploration-tips-for-roblox-enthusiasts/"><u>Detailed Exploration Tips for Roblox Enthusiasts</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-bot-excellence-gpt-plus-versus-perplexity/"><u>Exploring Bot Excellence: GPT Plus versus Perplexity</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-budget-oriented-chinas-vr-equipment-selection/"><u>In 2024, Budget-Oriented China's VR Equipment Selection</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-mastering-media-the-best-12-tools-to-translate-videos-into-text/"><u>In 2024, Mastering Media The Best 12 Tools to Translate Videos Into Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-identity-what-not-to-post-on-social-media-sites/"><u>Protecting Identity: What Not to Post on Social Media Sites</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/story-2-the-cohort-confusion/"><u>Story 2: The Cohort Confusion</u></a></li>
+<li><a href="https://driver-error.techidaily.com/streamline-dell-input-device-in-win7/"><u>Streamline Dell Input Device in Win7</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-motorola-defy-2-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Motorola Defy 2 Phone Network-Ready</u></a></li>
 </ul></div>
 
