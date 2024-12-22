@@ -1,7 +1,7 @@
 ---
 title: "[New] Lighting Setup to Make Your Videos Stand Out"
-date: 2024-12-20T09:05:04.544Z
-updated: 2024-12-21T09:19:39.718Z
+date: 2024-12-18T02:30:01.844Z
+updated: 2024-12-22T02:01:43.037Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
@@ -63,15 +63,15 @@ The key light is the main light that illuminates the subject. You can place it i
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
 ##### Step3 Set the Backlight
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
@@ -86,12 +86,16 @@ Then, we also have a LED ring light that shines toward the camera. The light add
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After setting up all the lighting above, you can take a look at the comparison below:
 
@@ -100,7 +104,7 @@ After setting up all the lighting above, you can take a look at the comparison b
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Using Key Light + Fill + Backlight**
@@ -112,10 +116,6 @@ After setting up all the lighting above, you can take a look at the comparison b
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Summary
 
@@ -151,14 +151,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-essential-steps-for-organizing-youtube-content/"><u>[New] 2024 Approved Essential Steps for Organizing YouTube Content</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-from-chords-to-clicks-mastering-music-on-ig/"><u>[New] In 2024, From Chords to Clicks Mastering Music on IG</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-from-boring-to-breathtaking-transforming-podcast-blurbs/"><u>[Updated] 2024 Approved From Boring to Breathtaking Transforming Podcast Blurbs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-hack-the-system-avoid-video-ads-directly-on-fb/"><u>[Updated] 2024 Approved Hack the System Avoid Video Ads Directly on FB</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlocking-the-power-of-preview-a-complete-user-guide-for-mac/"><u>[Updated] 2024 Approved Unlocking the Power of Preview A Complete User Guide for Mac</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-streamline-your-video-projects-using-movie-maker-on-windows-8/"><u>[Updated] Streamline Your Video Projects Using Movie Maker on Windows 8</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-controlling-playback-rate-on-snapchat/"><u>[Updated] The Ultimate Guide to Controlling Playback Rate on Snapchat</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/expert-insights-from-toms-hardware-hub-dive-into-technology-today/"><u>Expert Insights From Tom's Hardware Hub - Dive Into Technology Today</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-crosslinked-content-strategy-instagram-plus-tiktok-collaboration/"><u>In 2024, Crosslinked Content Strategy Instagram + TikTok Collaboration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-hero5-black-vs-hero5-the-duel-for-durability/"><u>[New] 2024 Approved Hero5 Black vs Hero5, The Duel for Durability</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-reality-redefined-exploring-virtualitys-kin-vr-ar-and-mr/"><u>[New] In 2024, Reality Redefined Exploring Virtuality’s Kin - VR, AR, & MR</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-clicker-article-titles-maker/"><u>[New] In 2024, Top Clicker Article Titles Maker</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unraveling-the-magic-of-time-extension-in-reels/"><u>[New] In 2024, Unraveling the Magic of Time Extension in Reels</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-instagrams-vertical-vortex-sideways-media-mystery/"><u>[New] Instagram's Vertical Vortex Sideways Media Mystery</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhance-your-vtuber-experience-with-top-voice-modification-tools/"><u>[Updated] Enhance Your VTuber Experience with Top Voice Modification Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-expert-shortcuts-for-savvy-screen-capture-on-your-pc/"><u>[Updated] Expert Shortcuts for Savvy Screen Capture on Your PC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-peekpoint-analysis-a-guide/"><u>[Updated] Peekpoint Analysis A Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/id-centric-top-downloads-for-youtube-videos-explored-for-2024/"><u>Android-Centric Top Downloads for YouTube Videos Explored for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/cambia-tus-archivos-webm-al-formato-mp4-facilmente-y-gratuitamente-usando-el-servicio-en-linea-de-convertidor-de-video-de-movavi/"><u>Cambia Tus Archivos WEBM Al Formato MP4 Fácilmente Y Gratuitamente Usando El Servicio en Línea De Convertidor De Video De Movavi</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-endgame-pc-release-hurdle-a-step-by-step-guide-to-get-you-set/"><u>Fixing the Endgame Pc Release Hurdle: A Step by Step Guide to Get You Set</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-oneplus-open-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked OnePlus Open Phone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-infinix-hot-40-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Infinix Hot 40 Phone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-perfecting-your-personal-palette-a-guide-to-whatsapp-alerts-on-phones/"><u>In 2024, Perfecting Your Personal Palette A Guide to WhatsApp Alerts on Phones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-step-by-step-guide-to-kinemasters-mastery-plus-10-superior-editing-counterparts/"><u>In 2024, Step-by-Step Guide to KineMaster's Mastery + 10 Superior Editing Counterparts</u></a></li>
+<li><a href="https://driver-download.techidaily.com/intel-graphics-driver-download-and-how-to-for-windows-10-and-11-systems/"><u>Intel Graphics Driver Download and How-To for Windows 10 and 11 Systems</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-ultimate-manual-to-assembling-a-top-tier-4k-editing-pc-for-2024/"><u>The Ultimate Manual to Assembling a Top-Tier 4K Editing PC for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-mobile-video-makers-with-a-beat-the-best-apps-for-android-and-iphone/"><u>Updated Mobile Video Makers with a Beat The Best Apps for Android and iPhone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Lighting Setup Tips to Make Great Videos"
-date: 2024-12-18T09:28:33.883Z
-updated: 2024-12-21T04:09:15.160Z
+date: 2024-12-16T21:24:00.818Z
+updated: 2024-12-21T21:54:25.117Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -54,7 +58,7 @@ For this tutorial, we will use the Three-Point Lighting technique:
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
@@ -77,13 +81,13 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -96,16 +100,12 @@ After setting up all the lighting above, you can take a look at the comparison b
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **_3) Pro Tips: The light setting_**
 
@@ -114,7 +114,7 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Summary
@@ -151,24 +151,24 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-gopro-karma-drone-review-for-2024/"><u>[New] GoPro Karma Drone Review for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-explore-new-realms-best-iphoneandroid-vr-games/"><u>[New] In 2024, Explore New Realms Best iPhone/Android VR Games</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-how-to-launch-your-first-session-with-vrecorder/"><u>[New] In 2024, How to Launch Your First Session with VRecorder</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-multimedia-meetings-fusing-zooms-potential-with-skype/"><u>[New] Mastering Multimedia Meetings Fusing Zoom's Potential with Skype</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-speaking-directly-to-text-mastering-the-art-of-voice-to-text-ms-word/"><u>[New] Speaking Directly to Text Mastering the Art of Voice-to-Text (MS Word)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-list-of-untapped-facebook-meme-havens/"><u>[New] The Ultimate List of Untapped Facebook Meme Havens</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-financial-investment-for-youtube-ads-success/"><u>[Updated] In 2024, Financial Investment for Youtube Ads Success</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-mastering-color-changes-11-essential-tips/"><u>[Updated] In 2024, Mastering Color Changes 11 Essential Tips</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-seeing-beyond-the-ordinary-with-ar/"><u>[Updated] In 2024, Seeing Beyond the Ordinary with AR</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-sony-xperia-xz-superior-a-4k-mobile-experience-analysis/"><u>[Updated] In 2024, Sony Xperia XZ Superior A 4K Mobile Experience Analysis</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-leading-open-source-20-best-pubg-images/"><u>[Updated] Leading Open Source 20 Best PUBG Images</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-lighten-your-livestreams-selecting-5-brightening-tech/"><u>[Updated] Lighten Your Livestreams Selecting 5 Brightening Tech</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-pinnacle-of-image-capture-highlighting-the-best-10-4k-phone-cameras/"><u>2024 Approved Pinnacle of Image Capture Highlighting the Best 10 4K Phone Cameras</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/mp4-and-m4v-movavi/"><u>簡単でスピーディな無料MP4 & M4Vファイル変換 - MOVAVI</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-vivo-s17-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Vivo S17 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/incremental-sound-diminishment-guidebook/"><u>Incremental Sound Diminishment Guidebook</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/safe-and-sound-securing-your-fb-live-conversations-on-screen/"><u>Safe & Sound Securing Your FB Live Conversations on Screen</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-combining-two-excel-columns-efficiently/"><u>Step-by-Step Guide: Combining Two Excel Columns Efficiently</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-essential-steps-to-enhance-your-gopro-cinematography/"><u>[New] 2024 Approved Essential Steps to Enhance Your Gopro Cinematography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-vmixfusion-for-dual-environments/"><u>[New] 2024 Approved VMixFusion for Dual Environments</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eginners-blueprint-to-youtube-streaming-games-for-2024/"><u>[New] Beginner's Blueprint to YouTube Streaming Games for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-exploring-the-world-of-montage-image-magic-for-2024/"><u>[New] Exploring the World of Montage Image Magic for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-how-to-retrieve-individual-frames-from-windows-media-files/"><u>[New] How To Retrieve Individual Frames From Windows Media Files</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-mastering-the-process-essential-techniques-and-strategies-for-green-screen-filmmaking/"><u>[New] In 2024, Mastering the Process Essential Techniques & Strategies for Green Screen Filmmaking</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-investing-insights-on-screen-best-youtube-guides-for-stocks/"><u>[New] Investing Insights on Screen Best YouTube Guides for Stocks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-classic-1980s-visual-elements-in-editing-workflow/"><u>[Updated] Classic 1980S Visual Elements in Editing Workflow</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-achieving-flawless-visual-balance-aspect-ratios-matter/"><u>[Updated] In 2024, Achieving Flawless Visual Balance Aspect Ratios Matter</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-from-amateurs-to-experts-shooting-spectacentic-photos-and-videos/"><u>[Updated] In 2024, From Amateurs to Experts Shooting Spectacentic Photos & Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-crafting-serenity-a-spiritual-journey-through-6-intellectually-designed-minecraft-modern-houses/"><u>2024 Approved Crafting Serenity A Spiritual Journey Through 6 Intellectually Designed Minecraft Modern Houses</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/building-your-personalized-gpt-3-powered-conversation-agent-using-microsofts-advanced-bot-framework/"><u>Building Your Personalized GPT-3 Powered Conversation Agent Using Microsoft's Advanced Bot Framework</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/directors-of-the-airspace-editing-for-impactful-drone-videos/"><u>Directors of the Airspace Editing for Impactful Drone Videos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/galaxy-in-darkness-no-more-effective-solutions-for-star-wars-battlefront-2s-ominous-blackout-problem/"><u>Galaxy in Darkness No More: Effective Solutions for Star Wars Battlefront 2'S Ominous Blackout Problem</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-china-on-ice-revelry-at-the-2022-beijing-olympics/"><u>In 2024, China on Ice Revelry at the 2022 Beijing Olympics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-cutting-edge-capture-tips-for-professional-sound-recording/"><u>In 2024, Cutting Edge Capture Tips for Professional Sound Recording</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-pureimagezone-premium-tool-to-remove-backgrounds/"><u>In 2024, PureImageZone Premium Tool to Remove Backgrounds</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/memes-unleashed-ranking-the-best-templates-10-for-2024/"><u>Memes Unleashed Ranking the Best Templates #10 for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/the-power-of-music-in-videos-plusfilmora-editing-tricks-for-2024/"><u>The Power of Music in Videos (+Filmora Editing Tricks) for 2024</u></a></li>
 </ul></div>
 

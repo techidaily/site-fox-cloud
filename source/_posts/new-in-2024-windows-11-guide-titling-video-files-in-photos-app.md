@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Windows 11 Guide  Titling Video Files in Photos App\""
-date: 2024-12-15T20:02:39.318Z
-updated: 2024-12-20T16:55:51.497Z
+date: 2024-12-14T17:08:05.688Z
+updated: 2024-12-21T22:16:53.890Z
 tags: 
   - screen-recording
   - ai video
@@ -47,17 +47,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
@@ -65,7 +61,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -79,31 +75,35 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-* Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -130,24 +130,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-canon-camera-insights-for-stunning-time-lapse-vids/"><u>[New] Canon Camera Insights for Stunning Time-Lapse Vids</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ixing-the-problem-hidden-thumbnails-in-youtube-shorts/"><u>[New] Fixing the Problem Hidden Thumbnails in YouTube Shorts</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-ios-and-desktop-leaders-in-effortless-video-to-file-conversion/"><u>[New] IOS and Desktop Leaders in Effortless Video to File Conversion</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-portable-media-players-uncovered-for-2024/"><u>[New] Top Portable Media Players Uncovered for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-boosting-creativity-top-tips-and-tricks-for-lunapic-editors-for-2024/"><u>[Updated] Boosting Creativity Top Tips & Tricks for LunaPic Editors for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-captivate-with-voice-intros-that-intrigue/"><u>[Updated] Captivate with Voice Intros That Intrigue</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-how-to-record-and-incorporate-speech-into-powerpoint-decks-for-2024/"><u>[Updated] How to Record & Incorporate Speech Into PowerPoint Decks for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-shine-up-advanced-setups-to-make-your-clips-pop/"><u>[Updated] In 2024, Shine Up Advanced Setups to Make Your Clips Pop</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-iphone-lens-wisdom-stunning-image-secrets/"><u>[Updated] IPhone Lens Wisdom Stunning Image Secrets</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-tamiltunes-handbook-downloading-and-trimming-melodies-for-calls/"><u>[Updated] TamilTunes Handbook Downloading & Trimming Melodies for Calls</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-winning-at-windows-11-image-tweaking-tricks/"><u>[Updated] Winning at Window's 11 Image Tweaking Tricks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/educators-guide-to-thriving-youtube-channels-10-must-know-secrets/"><u>Educators' Guide to Thriving YouTube Channels – 10 Must-Know Secrets</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/online-editors-the-essential-guide-for-2024/"><u>Free Online Editors The Essential Guide for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nokia C12 Plus | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mastering-the-art-optimizing-testimonial-creation-for-2024/"><u>Mastering the Art Optimizing Testimonial Creation for 2024</u></a></li>
-<li><a href="https://win-online.techidaily.com/mpeg-video-compression-techniques/"><u>MPEG Video Compression Techniques</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-cultural-wealth-of-farsi-and-its-rewards/"><u>The Cultural Wealth of Farsi & Its Rewards</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-5-essential-factors-to-evaluate-prior-to-purchasing-your-next-game-system/"><u>Top 5 Essential Factors to Evaluate Prior to Purchasing Your Next Game System</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/visual-brilliance-the-ultimate-10-list-for-mac-monitors-for-2024/"><u>Visual Brilliance The Ultimate #10 List for Mac Monitors for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ai-integration-for-vr-marketplaces/"><u>[New] 2024 Approved AI Integration for VR Marketplaces</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-enhance-playstation-2-experience-top-5-android-emulators/"><u>[New] Enhance PlayStation 2 Experience Top 5 Android Emulators</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-surveying-the-spectrum-of-windows-movie-maker-updates/"><u>[New] In 2024, Surveying the Spectrum of Windows Movie Maker Updates</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-mkv-on-mac-top-5-player-apps-summary/"><u>[Updated] 2024 Approved MKV on Mac Top 5 Player Apps Summary</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-premium-steadicam-options-for-high-quality-dslr-shoots/"><u>[Updated] 2024 Approved Premium Steadicam Options for High-Quality DSLR Shoots</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-essential-tools-for-gopro-movie-makers/"><u>[Updated] In 2024, Essential Tools for GoPro Movie Makers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-techs-time-capsule-a-screen-review/"><u>[Updated] In 2024, Tech's Time Capsule A Screen Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-final-cut-editors-toolkit-10-plugin-winners/"><u>[Updated] In 2024, The Final Cut Editor's Toolkit 10 Plugin Winners</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-is-photoshops-stabilization-feature-aiding-creativity/"><u>2024 Approved Is Photoshop's Stabilization Feature Aiding Creativity?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-tier-aerial-vehicles-sold-here/"><u>2024 Approved Top-Tier Aerial Vehicles Sold Here</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-oneplus-ace-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/economic-strategies-for-youtube-marketing-for-2024/"><u>Economic Strategies for YouTube Marketing for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-prime-voice-capture-apps-for-mac-users-feature-spotlight/"><u>In 2024, Prime Voice Capture Apps for Mac Users Feature Spotlight</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-editor/"><u>In 2024, What Is an AI Editor?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/master-guide-to-finding-cheap-transcript-extractors-for-2024/"><u>Master Guide to Finding Cheap Transcript Extractors for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-poco-x5-pro-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Poco X5 Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/professional-stabilization-tech-for-youtube-content-creators-for-2024/"><u>Professional Stabilization Tech for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/simple-ways-to-enhance-hard-drive-speed-on-windows-11/"><u>Simple Ways to Enhance Hard Drive Speed on Windows 11</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-tecno-spark-go-2023-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Tecno Spark Go (2023) without Them Knowing | Dr.fone</u></a></li>
 </ul></div>
 

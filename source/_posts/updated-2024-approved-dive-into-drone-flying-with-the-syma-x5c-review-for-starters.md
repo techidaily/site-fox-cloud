@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dive Into Drone Flying with the Syma X5C Review for Starters\""
-date: 2024-12-18T20:00:16.117Z
-updated: 2024-12-20T16:15:16.037Z
+date: 2024-12-20T16:08:13.190Z
+updated: 2024-12-21T20:53:22.699Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/7f46fac9a85eca734c1f07440ac82d4e70260de32
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Pros and Cons of Syma X5C
@@ -68,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/7f46fac9a85eca734c1f07440ac82d4e70260de32
 **Verdict:**
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Complete Review for Syma X5C
 
@@ -104,6 +100,10 @@ thumbnail: https://thmb.techidaily.com/7f46fac9a85eca734c1f07440ac82d4e70260de32
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
@@ -111,13 +111,13 @@ thumbnail: https://thmb.techidaily.com/7f46fac9a85eca734c1f07440ac82d4e70260de32
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,7 +127,7 @@ thumbnail: https://thmb.techidaily.com/7f46fac9a85eca734c1f07440ac82d4e70260de32
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -155,22 +155,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-cultivating-inquisitive-interview-habits/"><u>[New] In 2024, Cultivating Inquisitive Interview Habits</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-revolutionizing-podcast-titles-leading-10-ai-generators-for-2024/"><u>[New] Revolutionizing Podcast Titles Leading 10 AI Generators for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-scalable-and-stylish-type-in-ae-with-top-choices-for-2024/"><u>[New] Scalable and Stylish Type in AE with Top Choices for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-best-tech-in-cards-for-4k-video-editing/"><u>[Updated] Best Tech in Cards For 4K Video Editing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-easy-steps-to-activatedisable-video-multitasking-on-devices/"><u>[Updated] Easy Steps to Activate/Disable Video Multitasking on Devices</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-video-upload-techniques-for-youtube-via-premiere/"><u>[Updated] In 2024, Expert Video Upload Techniques for YouTube via Premiere</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-prime-concepts-to-transform-vhs-imagery-on-computers/"><u>[Updated] Prime Concepts to Transform VHS Imagery on Computers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-art-of-crafting-impactful-documentary-stories-for-2024/"><u>[Updated] The Art of Crafting Impactful Documentary Stories for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-visual-virtuosos-questions-addressed/"><u>[Updated] Visual Virtuosos Questions Addressed</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-capturing-the-extreme-the-gopro-hero5-black-vs-hero4-silver-duel/"><u>2024 Approved Capturing the Extreme The GoPro Hero5 Black Vs Hero4 Silver Duel</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-step-by-step-guide-to-basic-ps-color-correction/"><u>2024 Approved Step-by-Step Guide to Basic PS Color Correction</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/highlighting-the-best-ways-to-convert-youtube-to-mp4/"><u>Highlighting the Best Ways to Convert YouTube to MP4</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/how-to-efficiently-compress-mp4-files-while-maintaining-excellent-video-clarity-a-step-by-step-tutorial/"><u>How to Efficiently Compress MP4 Files While Maintaining Excellent Video Clarity: A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/how-to-see-who-unfollowed-you-on-instagram-for-2024/"><u>How to See Who Unfollowed You On Instagram for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Oppo A56s 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-navigating-the-maze-of-massive-content-movement-from-iphones-to-mac/"><u>In 2024, Navigating the Maze of Massive Content Movement From iPhones to Mac</u></a></li>
-<li><a href="https://techidaily.com/unlock-android-phone-if-you-don-t-have-xiaomi-13-ultra-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Xiaomi 13 Ultra fingerprint</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-expert-advice-capturing-and-storing-twitter-vids-on-phones/"><u>[New] 2024 Approved Expert Advice Capturing and Storing Twitter Vids on Phones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-become-an-fcp-virtuoso-with-this-guide/"><u>[New] In 2024, Become an FCP Virtuoso with This Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-reviving-rarities-your-guide-to-scanning-and-storing-age-old-photos-for-2024/"><u>[New] Reviving Rarities Your Guide to Scanning and Storing Age-Old Photos for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-iphone-photos-discover-prime-angles-for-perfect-shots/"><u>[Updated] 2024 Approved Mastering iPhone Photos Discover Prime Angles for Perfect Shots</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-smooth-operations-leading-windows-phones-videos/"><u>[Updated] 2024 Approved Smooth Operations Leading Windows Phones Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-metaverse-shenanigans-a-treasury-of-hilarity-and-creative-memes/"><u>[Updated] In 2024, Metaverse Shenanigans A Treasury of Hilarity and Creative Memes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-innovative-image-integration-software-for-visual-enthusiasts/"><u>[Updated] Innovative Image Integration Software for Visual Enthusiasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-tinting-truths-crafting-perfect-imagery/"><u>2024 Approved Tinting Truths Crafting Perfect Imagery</u></a></li>
+<li><a href="https://win11.techidaily.com/eliminating-package-registration-problems-on-windows-devices/"><u>Eliminating Package Registration Problems on Windows Devices</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fresh-drivers-alert-streamline-the-downloading-process-for-epsons-xp-440-model/"><u>Fresh Drivers Alert! Streamline the Downloading Process for Epson's XP-440 Model</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/how-to-add-the-date-to-photo-for-2024/"><u>How to Add the Date to Photo for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-fixing-stuck-feeds-on-instagram-videos/"><u>In 2024, Fixing Stuck Feeds on Instagram Videos</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-13cfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi 13CFRP Lock</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-kinemaster-wisely-skills-and-top-ranked-digital-counterparts-for-2024/"><u>Navigating KineMaster Wisely Skills and Top-Ranked Digital Counterparts for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/step-by-step-guide-to-outstanding-ppt-in-google-meet-iosandroid-for-2024/"><u>Step-by-Step Guide to Outstanding PPT in Google Meet (iOS/Android) for 2024</u></a></li>
 </ul></div>
 

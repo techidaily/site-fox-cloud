@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Navigating the Nuances of Color Grading for GoPro Editors\""
-date: 2024-12-15T18:27:52.224Z
-updated: 2024-12-21T10:23:57.137Z
+date: 2024-12-21T05:28:42.645Z
+updated: 2024-12-22T03:21:54.292Z
 tags: 
   - screen-recording
   - ai video
@@ -51,12 +51,16 @@ thumbnail: https://thmb.techidaily.com/128652f3635b5c02571aebd32ea42bdf5de3d8228
 
 ![Color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Color Correction- On the right hand side of your window the color correction can be done just by hitting on the arrow beside the White Balance button and the Image button. Now you can see the options which needed to be changed in order to correct the color. You will be able to view all the options like temperature, exposure, sharpness, contrast, tint and saturation. You can also choose to apply different preset overlays to give the footage a special filter.
 
 ![how to do color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The GoPro Studio is very user friendly and effective video editing software but in order to use it you need to convert the format of your video before you start to edit. There aren't many options especially when you require enhanced controls on the GoPro recordings. This is why we would recommend you to use the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) editing software. It is equipped with a special action cam tool which not only allows the user to alter the color by changing the brightness, saturation, vignette, tint or temp but even comes with loads of 3D LUT filters which adds a nice effect.
@@ -70,7 +74,7 @@ thumbnail: https://thmb.techidaily.com/128652f3635b5c02571aebd32ea42bdf5de3d8228
 3. It fully supports  encoded MP4 format, MTS and Mov videos shot on any action cams, camcorders and phones.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## GoPro Footage Color Correction in Wondershare Filmora
@@ -81,31 +85,27 @@ thumbnail: https://thmb.techidaily.com/128652f3635b5c02571aebd32ea42bdf5de3d8228
 
 ![color correction](https://images.wondershare.com/filmora/guide/1-action-cam-tool-fix-entrance.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** Color Tuning. Now you need to choose the Color Tab on the left of your control panel. Here you will be able to drag the individual slider so as to alter the contrast, brightness, tint, vignette and saturation.
 
 ![correct gopro footage color](https://images.wondershare.com/filmora/article-images/color-corretion-in-gopro-studio-3.jpg)
 
  The compare button located on the top right lets you check all the segments before and after the correction simultaneously. While the Reset button ![color-tuning-reset-button](https://images.wondershare.com/filmora/guide/color-tuning-reset-button.png) would allow you to clear all the color corrections anytime.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3:** Save and Share- Once the edit is finished you need to hit the Export button in order to save the edited clip as MOV or MP4 format. You can also alter the video res and the frames per sec. Now just hit the OK button to start the export.
 
 ![Export](https://images.wondershare.com/filmora/guide/8-action-cam-tool-export.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -132,14 +132,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-from-beginner-to-expert-with-a-complete-fcp-guidebook/"><u>[New] 2024 Approved From Beginner to Expert with a Complete FCP Guidebook</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-optimal-list-of-10-excellent-spotify-audio-recorders/"><u>[New] In 2024, Optimal List of 10 Excellent Spotify Audio Recorders</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-premier-auto-track-cam-mount-for-smooth-shots/"><u>[New] In 2024, Premier Auto-Track Cam Mount for Smooth Shots</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-jokejuxtaposer-quickly-craft-memes-for-all-occasions/"><u>[Updated] 2024 Approved JokeJuxtaposer Quickly Craft Memes for All Occasions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-pros-5-virtual-helmets-a-drone-racers-choice/"><u>2024 Approved Pro's 5 Virtual Helmets A Drone Racer's Choice</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/easy-solutions-to-upgrade-your-video-calls-from-skype-to-zoom/"><u>Easy Solutions to Upgrade Your Video Calls From Skype to Zoom</u></a></li>
-<li><a href="https://driver-download.techidaily.com/instant-access-to-startechs-latest-usb-graphics-adapter-drivers/"><u>Instant Access to StarTech's Latest USB Graphics Adapter Drivers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-essential-guide-for-embedding-links-in-tiktok-bios-for-2024/"><u>The Essential Guide for Embedding Links in TikTok Bios for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-password-cracking-tools-for-sony-xperia-10-v-by-drfone-android/"><u>Top 10 Password Cracking Tools For Sony Xperia 10 V</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-captivating-stories-in-motion-best-video-theme-choices/"><u>[New] 2024 Approved Captivating Stories in Motion Best Video Theme Choices</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-basketball-enthusiasts-guide-to-online-viewing-for-2024/"><u>[New] Basketball Enthusiast's Guide to Online Viewing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-embedding-youtube-playlists-step-by-step-guide-for-2024/"><u>[New] Embedding YouTube Playlists Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-essential-knowledge-for-recording-movies-anywhere/"><u>[Updated] In 2024, Essential Knowledge for Recording Movies Anywhere</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-strategies-for-finding-and-using-a-lost-iphone-x/"><u>[Updated] In 2024, Top Strategies for Finding & Using a Lost iPhone X</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-tips-and-tricks-for-windows-hdr-video-workflows/"><u>[Updated] Tips and Tricks for Windows HDR Video Workflows</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722974584907-boost-studio-quality-with-free-m-audio-fast-track-ultra-drivers-download-now/"><u>Boost Studio Quality with Free M-Audio Fast Track Ultra Drivers - Download Now!</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/erase-your-online-presence-post-facebook-stories/"><u>Erase Your Online Presence Post-Facebook Stories</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-everything-from-apple-iphone-14-pro-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Everything from Apple iPhone 14 Pro to iPhone 8/X/11 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-transform-your-images-with-freepaid-lut-bundles-for-canon/"><u>In 2024, Transform Your Images with Free/Paid LUT Bundles for Canon</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-solutions-to-restore-your-oculus-rift-s-mic-functionality-expert-advice/"><u>Quick Solutions to Restore Your Oculus Rift S Mic Functionality - Expert Advice</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/selecting-superior-free-srt-translation-apps-today-for-2024/"><u>Selecting Superior Free SRT Translation Apps Today for 2024</u></a></li>
 </ul></div>
 

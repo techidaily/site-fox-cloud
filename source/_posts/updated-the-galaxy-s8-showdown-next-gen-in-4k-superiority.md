@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Galaxy S8 Showdown  Next-Gen in 4K Superiority\""
-date: 2024-12-18T05:52:09.011Z
-updated: 2024-12-21T06:08:13.591Z
+date: 2024-12-14T22:57:50.001Z
+updated: 2024-12-21T19:00:08.288Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ The Samsung galaxy S8 offers an incredible level of performance from one of the 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Samsung Galaxy S8 Pros and cons
 
 **Pros:**
@@ -70,7 +74,7 @@ A standard headphone jack can still be found at the top of this device as well.
 ![samsung-s8-design](https://images.wondershare.com/filmora/article-images/samsung-s8-design.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The Samsung Galaxy S8 has a display that is known for being particularly stunning. It can deliver beautiful black and white contrast tones as well as very rich colors. Do yourself a favor and start streaming content in HD as soon as you get this device.
@@ -94,10 +98,6 @@ To make connectivity even better the S8 is equipped with Bluetooth five which im
 #### 4. Samsung Galaxy S8 Durability
 
 The phone comes with a very durable design that is created to be waterproof. With the full certification on waterproofing this is maybe not a device that you would use for diving but it can stand up to light rain, splashing and other situations. The majority of the device is made out of an aluminum instruction with the front of the device being constructed out of Gorilla Glass 5\. The weight and the durability of this device is not something to question as it can deliver the best in performance throughout a standard day.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Section 2: Samsung Galaxy S8 Features and Performance
 
@@ -133,27 +133,27 @@ It can handle plenty of demanding applications but it's very important to use th
 
 ![samsung-s8-security-performance](https://images.wondershare.com/filmora/article-images/samsung-s8-security-performance.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The S8 has some of the most advanced biometric security available on any smart phone, it has facial recognition, iris recognition as well as a fingerprint scanner all on board. One of the only problems that comes with using these biometrics is that you can end up with a device that consistently needs your permission to unlock and access various applications. Setting up the features is relatively easy and can be done at the start during Samsung set up. Most people end up turning off the iris recognition, facial recognition and opt for fingerprint scanning only as of the much more discreet way to unlock the phone.
 
 #### 5. Samsung Galaxy S8 Compatibility
 
 ![samsung-s8-vr-compatible](https://images.wondershare.com/filmora/article-images/samsung-s8-vr-compatible.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The Samsung S8 is one of the best new devices for using with the Samsung deX accessory as well as the gear 360\. For the future of Samsung VR, the screen without a bevel as well as the HD format that this device can deliver offers a considerable advantage in the market. This is a device that has been well optimized for the future of VR.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Section 3: Samsung Galaxy S8 Onboard Software
 
 The device comes with a touchwiz UI which is very similar to other Samsung application experiences. The menus are all extremely easy-to-use and the home button and menu buttons on the back really assist with navigation throughout the phone.
 
 ![samsung-s8-bixby](https://images.wondershare.com/filmora/article-images/samsung-s8-bixby.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Bixby is one of the latest highlighted features which is somewhat similar to the brand voice for Samsung. Bixby is an assistant at similar to the Google Assistant, Siri and more. Currently Bixby really just delivers a number of different alerts and reminders. The one feature that is fairly interested is the Bixby vision which can examine items in a store and help you comparison shop as well as the ongoing reminders and calendar updates. The current version of Bixby is pretty light but Samsung hopes to eventually include actions like the ability for Bixby to handle uploading all of your photos to social media or even sending out texts and alerts. Currently however Bixby is a fairly light app that you won’t likely use often.
 
@@ -164,7 +164,7 @@ This is currently one of the best android smart phones available on the market. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -192,15 +192,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-harmonizing-songs-and-visuals-adding-youtube-music-to-videos-for-2024/"><u>[New] Harmonizing Songs and Visuals Adding YouTube Music to Videos for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-a-new-era-of-visual-clarity-the-10-list-of-top-monitors-for-macs/"><u>[New] In 2024, A New Era of Visual Clarity The #10 List of Top Monitors for Macs</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-enhancing-social-media-reach-a-deep-dive-into-instagram-and-obs-streaming/"><u>[New] In 2024, Enhancing Social Media Reach A Deep Dive Into Instagram & OBS Streaming</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-the-essentials-understanding-whatsapp-calls/"><u>[New] The Essentials Understanding WhatsApp Calls</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-top-sites-for-digital-metallic-text-with-a-golden-twist/"><u>[Updated] In 2024, Top Sites for Digital Metallic Text with a Golden Twist</u></a></li>
-<li><a href="https://fox-where.techidaily.com/essential-windows-wow6432-node-registry-key-guide/"><u>Essential Windows WOW6432 Node Registry Key Guide</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-oppo-a38-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Oppo A38 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-review-of-asus-proart-pa-329q-professional-4k-screen/"><u>In 2024, The Ultimate Review of Asus ProArt PA 329Q Professional 4K Screen</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mastering-photo-aesthetics-the-essence-of-luts/"><u>Mastering Photo Aesthetics The Essence of LUTs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/nano-drones-review-markets-finest-ten/"><u>Nano Drones Review Market's Finest Ten</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-learn-illustration-magic-a-guide-to-adobe-motion-blur/"><u>[New] 2024 Approved Learn Illustration Magic A Guide to Adobe Motion Blur</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unleashing-potential-gopro-karmas-journey/"><u>[New] 2024 Approved Unleashing Potential GoPro Karma's Journey</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-vr-content-company-within/"><u>[New] 2024 Approved VR Content Company With.in</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-conquer-kinemaster-efficient-use-plus-top-online-gaming-platforms-reviewed/"><u>[Updated] 2024 Approved Conquer KineMaster Efficient Use + Top Online Gaming Platforms Reviewed</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-examining-vllos-user-driven-feedback/"><u>[Updated] 2024 Approved Examining VLLO's User-Driven Feedback</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-overview-of-magix-audio-enhancer/"><u>[Updated] Overview of MAGIX Audio Enhancer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-youtube-editors-handbook-from-basics-to-pros/"><u>[Updated] The YouTube Editor's Handbook From Basics to Pros</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-note-taking-experience-mematic/"><u>2024 Approved Elevate Note-Taking - Experience Mematic</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-inexpensive-mirrorless-and-dslr-options/"><u>2024 Approved Inexpensive Mirrorless & DSLR Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/boosting-zoom-image-resolution-expert-advice/"><u>Boosting Zoom Image Resolution Expert Advice</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/diving-into-the-depths-of-hdr-with-asus-pa32u-for-2024/"><u>Diving Into the Depths of HDR with ASUS PA32U for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/game-compromised-activisions-security-breach/"><u>Game Compromised: Activision's Security Breach</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-nokia-130-music-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Nokia 130 Music Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-annual-roundup-top-no-money-video-editing-software-reviewed/"><u>In 2024, Annual Roundup Top No-Money Video Editing Software Reviewed</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/infinix-note-30-pro-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Infinix Note 30 Pro Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/upgrade-your-photo-edits-the-ultimate-guide-to-pixlr-power/"><u>Upgrade Your Photo Edits The Ultimate Guide to Pixlr Power</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/your-passport-to-popularity-9-essential-instagram-secrets-for-success/"><u>Your Passport to Popularity 9 Essential Instagram Secrets for Success</u></a></li>
 </ul></div>
 

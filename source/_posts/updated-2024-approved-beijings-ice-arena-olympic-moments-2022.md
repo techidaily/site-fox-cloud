@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Beijing's Ice Arena  Olympic Moments, 2022\""
-date: 2024-12-19T18:45:17.738Z
-updated: 2024-12-20T17:24:20.365Z
+date: 2024-12-15T04:46:48.456Z
+updated: 2024-12-21T16:55:42.388Z
 tags: 
   - screen-recording
   - ai video
@@ -27,15 +27,7 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
 
@@ -52,16 +44,24 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-breaks-world-record.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
@@ -71,15 +71,7 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Van der Poel Breaks the World Record
 
@@ -87,15 +79,7 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
@@ -103,13 +87,25 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Chloe Kim Wins Second Straight Olympic Gold
 
 21-year-old Chloe Kim became back-to-back Olympic champion by dominating in the halfpipe. The American confirmed a gold medal on the first run itself. Her runs had 1080, a switch 900, and a switch backside of 540\. It further added another 1080\. She dominated the Snowboarding Women's Halfpipe Final with 94 points. Spain's Queralkt Castellet won silver and the bronze went to Sena Tomita of Japan.
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
@@ -118,6 +114,10 @@ With the triumph, she joins Shaun White to be the only snowboarders to successfu
 We are all aware of the tensions between Ukraine and Russia are at their peak and there are many experts who believe the countries are on the verge of declaring war. Even though The Winter Olympics should have ideally been an apolitical event, Ukrainian skeleton athlete Vladyslav Heraskevych flashed a sign that read “No War in Ukraine” to spark a political controversy.
 
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
@@ -156,21 +156,22 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-a-step-by-step-guide-the-most-effective-7-artwork-to-nft-services/"><u>[New] A Step-by-Step Guide - The Most Effective 7 Artwork-to-NFT Services</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-echoes-of-entertainment-vr-cinematic-worlds/"><u>[New] Echoes of Entertainment VR Cinematic Worlds</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-eco-friendly-visuals-for-film-enthusiasts-for-2024/"><u>[New] Eco-Friendly Visuals for Film Enthusiasts for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-no-cost-nature-inspired-screen-images/"><u>[New] In 2024, No-Cost, Nature Inspired Screen Images</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-art-of-instagram-videography-capturing-attention-for-2024/"><u>[New] The Art of Instagram Videography Capturing Attention for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/asrocks-z890-taichi-aqua-a-powerhouse-of-connectivity-boasting-two-thunderbolt-and-ten-usb-type-c-ports-for-enhanced-performance/"><u>ASROCK's Z890 Taichi Aqua - A Powerhouse of Connectivity: Boasting Two Thunderbolt and Ten USB Type-C Ports for Enhanced Performance</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/capturing-tomorrow-today-leading-video-cams/"><u>Capturing Tomorrow Today – Leading Video Cams</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721478779314-illuminating-factors-behind-your-iphones-dimming-display-explore-these-10-key-reasons-today/"><u>Illuminating Factors Behind Your iPhone's Dimming Display - Explore These 10 Key Reasons Today!</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-quintessential-screenplays-among-varied-genres/"><u>In 2024, Quintessential Screenplays Among Varied Genres</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-smart-solutions-iphone-content-to-computer/"><u>In 2024, Smart Solutions IPhone Content to Computer</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-xiaomi-14-pro-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Xiaomi 14 Pro</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/make-any-video-play-on-android-easy-conversion-techniques-and-tips/"><u>Make Any Video Play on Android - Easy Conversion Techniques & Tips</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/movavi-photo-editor-un-metodo-semplificato-per-generare-immagini-attraverso-scritte-personalizzate/"><u>Movavi Photo Editor: Un Metodo Semplificato per Generare Immagini Attraverso Scritte Personalizzate</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/procedura-tworzenia-kopii-dyskow-zapasowych-dla-systemow-windows-111087-jak-biegnie-to/"><u>Procedura Tworzenia Kopii Dysków Zapasowych Dla Systemów Windows 11/10/8/7 - Jak Biegnie To</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/tomorrows-digital-playground-a-comparative-study-of-metaverse-and-omniverse/"><u>Tomorrow's Digital Playground A Comparative Study of Metaverse & Omniverse</u></a></li>
-<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-11-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-humor-hub-creator/"><u>[New] 2024 Approved Humor Hub Creator</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-youtube-exchange-threads-for-2024/"><u>[Updated] Decoding YouTube Exchange Threads for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-from-0-to-million-views-the-ultimate-content-blueprint-for-2024/"><u>[Updated] From 0 to Million Views The Ultimate Content Blueprint for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-explore-best-locations-for-vr-viewing/"><u>[Updated] In 2024, Explore Best Locations for VR Viewing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-high-speed-windows-photoviewer/"><u>[Updated] In 2024, High-Speed Windows Photoviewer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-crystal-carousel-at-the-olympics/"><u>2024 Approved Crystal Carousel at the Olympics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/best-templates-no-cost-explore-premiere-pro-samples-free-for-2024/"><u>Best Templates, No Cost! Explore Premiere Pro Samples (FREE) for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/boost-engagement-with-these-premier-html5-players-for-2024/"><u>Boost Engagement with These Premier HTML5 Players for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-update-amd-radeon-rx-470-drivers-with-simple-steps/"><u>Download and Update AMD Radeon RX 470 Drivers with Simple Steps</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/download-high-quality-zac-efron-desktop-wallpapers-hd-resolution-images-and-graphics-by-yl-software/"><u>Download High-Quality Zac Efron Desktop Wallpapers - HD Resolution Images & Graphics by YL Software</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Oppo A78? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-tecno-pova-5-easily-by-drfone-android/"><u>In 2024, How To Unlock a Tecno Pova 5 Easily?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-navigating-the-landscape-of-digital-grading-tools/"><u>In 2024, Navigating the Landscape of Digital Grading Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/share-across-platforms-instagram-meets-facebook/"><u>Share Across Platforms Instagram Meets Facebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/subtlety-savvy-sound-settings-for-garageband/"><u>Subtlety Savvy Sound Settings for Garageband</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-30-slept-on-speech-to-text-apps-for-macos-users-for-2024/"><u>Top 30 Slept-On Speech to Text Apps for macOS Users for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-and-correcting-user32dll-errors-on-your-pc/"><u>Understanding and Correcting User32.dll Errors on Your PC</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Ice Dance Showcase  Olympic Winter 2022\""
-date: 2024-08-23T01:36:47.394Z
-updated: 2024-08-24T01:36:47.394Z
+date: 2024-12-18T22:02:56.134Z
+updated: 2024-12-22T04:41:05.780Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ Winter Olympics is synonymous with Figure Skating as it is the oldest sports eve
 
 Nathan Chen of the United States won the gold medal at the 2022 Beijing Winter Olympics. Yuma Kagiyama of Japan won the silver medal while the bronze medal went to Shoma Uno in Men's singles figure skating competition. On the other hand, the gold medal of the team event went to ROC while the silver medal went to United Stated and the bronze medal went to Japan. Here are all the figure skating highlights 2022 Beijing Winter Olympics. We will also illustrate how to create the highlights of figure skating in a video in simple steps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Highlights of Figure Skating Olympics Games Beijing2022
 
 In Olympic competition, skaters need to perform two minutes and 40 seconds short program and four minutes free skate and the winner is decided based on combined score.
@@ -37,6 +41,10 @@ Nathan Chen of the United States reacts to winning the gold medal at the 2022 Be
 Yuma Kagiyama of Japan reacts to become second to Nathan Chen of the United States. He receives a combined score of 310.05 points and wins the silver medal at the 2022 Beijing Winter Olympics.
 
 ![yuma kagiyama](https://images.wondershare.com/filmora/article-images/yuma-kagiyama.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shoma Uno of Japan won the bronze medal with a combined score of 293 points and he has become the second Japanese to win a medal at the 2022 Beijing Winter Olympics.
 
@@ -54,7 +62,15 @@ Russian Olympic Committee athletes won the gold medal at team event by a margin 
 
 ![japan won the bronze medal](https://images.wondershare.com/filmora/article-images/japan-won-the-bronze-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Japan won the bronze medal with 63 points falling short by 2 points 2 behind the United States. The figure skating competition is held at the Capital Indoor Stadium in Beijing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Create a Video for Showing the Highlights of Figure Skating
 
@@ -82,15 +98,16 @@ Step 3: Go to Import > Import with Instant Cutter Tool. It is time to import all
 
 ![filmora edit videos](https://images.wondershare.com/filmora/article-images/edit-recordings-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 4: You need to add all imported media files to Video Timeline while you should add background music or voiceover to the Audio Timeline.
 
 Step 5: Select individual or multiple slides and add Transitions, Effects, Titles and Elements.
 
 Step 6: When everything is done, click on Export to save the video and share anywhere you want.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 Figure skating is undoubtedly one of the most followed sport events in the Winter Olympics. Naturally, there is a huge demand for figure skating highlights across the Winter Olympics fans and followers. We have provided figure skating highlights 2022 and we have illustrated the steps to create a highlight video of figure skating easily.
@@ -112,4 +129,22 @@ Figure skating is undoubtedly one of the most followed sport events in the Winte
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-how-to-add-video-filters-in-zoom-for-2024/"><u>[New] How To Add Video Filters In Zoom for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-on-air-innovations-code-or-circuitry-prevails/"><u>[Updated] 2024 Approved On-Air Innovations Code or Circuitry Prevails?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-exclusive-reveals-on-securing-high-quality-live-cricket-broadcasting/"><u>[Updated] Exclusive Reveals on Securing High-Quality Live Cricket Broadcasting</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-crafting-visual-stories-insights-into-the-vida-app/"><u>[Updated] In 2024, Crafting Visual Stories Insights Into the Vida App</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-mastering-quantum-hdr-principles/"><u>[Updated] In 2024, Mastering Quantum HDR Principles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-protouch-4k-uniscreen-hub-systems/"><u>[Updated] In 2024, ProTouch 4K UniScreen Hub Systems</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-laughlens-lab-snapsatiricals/"><u>[Updated] LaughLens Lab SnapSatiricals</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-imovies-potential-youtube-video-edition-excellence/"><u>[Updated] Unlocking iMovie's Potential YouTube Video Edition Excellence</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-professional-selfies-elevating-your-online-presence/"><u>2024 Approved Professional Selfies Elevating Your Online Presence</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mafia-definitive-edition-not-launching-solved/"><u>Mafia: Definitive Edition Not Launching [Solved]</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/movavi-convert-apes-to-aiff-online-free-converter-easy-audio-format-transformation/"><u>Movavi Convert APES to AIFF Online Free Converter - Easy Audio Format Transformation</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-motorola-edge-2023-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Motorola Edge 2023</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-google-pixel-fold-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Google Pixel Fold</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unleash-potential-7-exceptional-services-for-digital-art-nfts-for-2024/"><u>Unleash Potential 7 Exceptional Services for Digital Art NFTs for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-full-potential-of-alexas-miniature-marvel-a-review-of-the-latest-amazon-echo-dot-3rd-gen/"><u>Unveiling the Full Potential of Alexa's Miniature Marvel - A Review of the Latest Amazon Echo Dot (3Rd Gen)</u></a></li>
+</ul></div>
 

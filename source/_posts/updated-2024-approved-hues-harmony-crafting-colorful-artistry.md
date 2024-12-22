@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Hues Harmony  Crafting Colorful Artistry\""
-date: 2024-12-15T20:41:47.458Z
-updated: 2024-12-21T06:10:21.701Z
+date: 2024-12-17T16:35:41.899Z
+updated: 2024-12-22T02:51:48.961Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ Color theory consists of many elements that could fill a library on its own but 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Color Wheel
@@ -44,13 +44,13 @@ Using red, green and blue as primary colors we can mix the colors to one another
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Color Harmony
@@ -60,7 +60,7 @@ So now we know how the wheel is made and what it looks like. What does it do? We
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
@@ -70,6 +70,10 @@ These colors always work as they create contrast and stability.
 The blue lines represent what is known as split contrasting colors and these will create balance with each other.
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## But How Do I Use This
 
@@ -84,10 +88,6 @@ As you can see from this example the base color for the scene is a dark blue/pur
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -123,22 +123,24 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfectly-sync-apple-music-to-your-videos/"><u>[New] 2024 Approved Perfectly Sync Apple Music to Your Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-free-guide-to-windows-desktop-captures-and-recordings-for-2024/"><u>[New] Free Guide to Windows Desktop Captures & Recordings for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unleashing-clarity-with-eizos-coloredge-cg318-4k/"><u>[New] In 2024, Unleashing Clarity with EIZO's ColorEdge CG318-4K</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-tips-for-gaining-attention-via-snapchat-star-for-2024/"><u>[New] Tips for Gaining Attention via Snapchat Star for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-virtual-horizons-explored-essential-vr-peripherals-for-2024/"><u>[New] Virtual Horizons Explored Essential VR Peripherals for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-mixing-masterclass-elevate-drone-audio-with-20-complimentary-luts/"><u>[Updated] 2024 Approved Mixing Masterclass - Elevate Drone Audio with 20 Complimentary LUTs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-step-by-step-getting-started-with-snapseed-editing/"><u>[Updated] 2024 Approved Step by Step Getting Started with Snapseed Editing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-how-to-add-titlestext-to-video-on-photos-app-in-windows-10/"><u>[Updated] How to Add Titles/Text to Video on Photos App in Windows 10</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-mastering-the-art-of-free-yet-striking-image-acquisition/"><u>[Updated] In 2024, Mastering the Art of Free, Yet Striking Image Acquisition</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unveiling-instagrams-background-replace-technique/"><u>[Updated] In 2024, Unveiling Instagram’s Background Replace Technique</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-solving-high-definition-issues-with-youtube-media/"><u>[Updated] Solving High Definition Issues with YouTube Media</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/creating-gradual-sound-diminishment-for-2024/"><u>Creating Gradual Sound Diminishment for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/expert-windows-and-macos-screen-capture-tools-for-2024/"><u>Expert Windows & macOS Screen Capture Tools for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Realme Narzo 60x 5G | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/no-more-crashing-a-players-handbook-to-a-smooth-minecraft-experience/"><u>No More Crashing - A Player's Handbook to a Smooth Minecraft Experience</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-htc-u23-pro-by-drfone-android/"><u>Universal Unlock Pattern for HTC U23 Pro</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-maximize-your-videos-the-top-10-free-4k-video-converter-software/"><u>Updated In 2024, Maximize Your Videos The Top 10 Free 4K Video Converter Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhance-engagement-learn-to-dim-youtube-video-backgrounds/"><u>[New] 2024 Approved Enhance Engagement Learn to Dim YouTube Video Backgrounds</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-pivotal-software-in-shaping-a-vtubers-sound-identity/"><u>[New] 2024 Approved Pivotal Software in Shaping a Vtuber's Sound Identity</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-from-talk-to-text-utilizing-speech-recognition-in-microsoft-office/"><u>[New] From Talk to Text Utilizing Speech Recognition in Microsoft Office</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-androidandios-the-best-free-overlay-imaging-tools-top-10/"><u>[New] In 2024, Android&iOS The Best FREE Overlay Imaging Tools (Top 10)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-closing-in-on-the-essence-of-cinematic-action/"><u>[New] In 2024, Closing in on the Essence of Cinematic Action</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-incorporating-picture-in-picture-in-browsing-with-edge/"><u>[New] In 2024, Incorporating Picture-In-Picture in Browsing with Edge</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nstantly-professional-masterful-thumbnails-created-fast-in-2024/"><u>[New] Instantly Professional Masterful Thumbnails Created Fast, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-integrate-srt-into-windowsmacos-operations-for-2024/"><u>[New] Integrate SRT Into Windows/macOS Operations for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-trivia-collection-general-knowledge-2024/"><u>[New] The Ultimate Trivia Collection - General Knowledge 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-comprehensive-examination-razer-kiyo-cam-for-2024/"><u>[Updated] Comprehensive Examination Razer Kiyo Cam for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discussing-the-merits-and-drawbacks-of-aurora-hdr-tech/"><u>[Updated] Discussing the Merits and Drawbacks of Aurora HDR Tech</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-exploring-youtubes-functionality-following-uploaded-videos-for-2024/"><u>[Updated] Exploring YouTube’s Functionality Following Uploaded Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-windows-speed-dial-for-swift-inspection/"><u>[Updated] Windows Speed Dial for Swift Inspection</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-inter-app-playlist-exchange-made-simple/"><u>2024 Approved Inter-App Playlist Exchange Made Simple</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/apple-watch-series-4-reviewed-unveiling-upgrades-and-advancements/"><u>Apple Watch Series 4 Reviewed: Unveiling Upgrades and Advancements</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-lava-agni-2-5g-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Lava Agni 2 5G Phone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/mastering-the-reboot-of-radeon-wattman-for-optimal-performance-and-stability/"><u>Mastering the Reboot of Radeon Wattman for Optimal Performance and Stability</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/optimize-productivity-with-mematic-app/"><u>Optimize Productivity with Mematic App</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/optimizing-your-pcs-capabilities-with-windows-control-panel-a-comprehensive-guide-by-yl-computing/"><u>Optimizing Your PC's Capabilities with Windows Control Panel - A Comprehensive Guide by YL Computing</u></a></li>
 </ul></div>
 

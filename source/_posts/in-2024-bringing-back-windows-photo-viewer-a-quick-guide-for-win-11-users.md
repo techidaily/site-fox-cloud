@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Bringing Back Windows Photo Viewer  A Quick Guide for Win 11 Users\""
-date: 2024-12-14T10:43:19.013Z
-updated: 2024-12-21T05:54:53.090Z
+date: 2024-12-16T01:03:07.103Z
+updated: 2024-12-21T17:05:20.128Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,10 @@ Stay tuned to learn more!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Why you prefer Windows Photo Viewer
 
 We would like to explain why most people are still not over Windows Photo Viewer? The good old Photo Viewer has quiet loyal fans out there singing its glory. This portion of the article comprises of the highs about Windows Photo Viewer.
@@ -60,6 +64,10 @@ Here is why they want to restore Windows Photo Viewer –
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
 ## Method 1 to restore Windows Photo Viewer
@@ -69,10 +77,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 1**: Go to ‘Settings’ and open ‘Apps’. Click on ‘Default Apps’ and check ‘Photo Viewer’. The default photo viewer will be visible here.
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
@@ -93,7 +97,7 @@ Here is the detailed guide –
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
@@ -101,7 +105,11 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -110,15 +118,7 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -145,22 +145,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-techniques-to-ensure-uninterrupted-video-capturing/"><u>[New] 2024 Approved Techniques to Ensure Uninterrupted Video Capturing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-best-gear-choosing-cameras-for-live-dynamic-music-visuals-in-hd-for-2024/"><u>[New] Best Gear Choosing Cameras for Live, Dynamic Music Visuals in HD for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-framed-fantasies-expert-recommendations-on-software-and-sites/"><u>[New] In 2024, Framed Fantasies Expert Recommendations on Software & Sites</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-leaders-of-the-digital-age-videoaudio-innovators-index/"><u>[New] In 2024, Leaders of the Digital Age Video/Audio Innovators Index</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-syncing-youtube-audio-to-film-compositions/"><u>[New] In 2024, Syncing YouTube Audio to Film Compositions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-comparing-syma-x8c-to-previous-models/"><u>[Updated] Comparing Syma X8C to Previous Models</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-immersive-experience-keepers-fb-live-2023/"><u>[Updated] Immersive Experience Keepers FB Live 2023</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-mastering-the-art-of-viewing-youtube-video-reactions-and-votes-for-2024/"><u>[Updated] Mastering the Art of Viewing YouTube Video Reactions and Votes for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-scriptwriting-101-decoding-and-writing-slug-lines-for-2024/"><u>[Updated] Scriptwriting 101 Decoding and Writing Slug Lines for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-best-wedding-stories-online-youtube-plus-vimeos-selection-8/"><u>[Updated] The Best Wedding Stories Online YouTube + Vimeo's Selection (8)</u></a></li>
-<li><a href="https://fox-links.techidaily.com/compreenas-an-insightful-guide-to-photography-mastery/"><u>Compreenas An Insightful Guide to Photography Mastery</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/dive-deep-configuring-a-triplet-of-tiles-in-windows-11-ui/"><u>Dive Deep: Configuring a Triplet of Tiles in Windows 11 UI</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-beginners-shooting-companion-top-cameras-reviewed/"><u>In 2024, Beginner's Shooting Companion Top Cameras Reviewed</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-tips-and-tricks-for-windows-hdr-video-workflows/"><u>In 2024, Tips and Tricks for Windows HDR Video Workflows</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/setting-up-your-footprint-a-complete-guide-to-fb-instream-ad-configuration/"><u>Setting Up Your Footprint A Complete Guide to FB Instream Ad Configuration</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/silence-the-clicks-effective-solutions-to-stop-your-arctis-7-headset-from-making-crackling-sounds-on-pc/"><u>Silence the Clicks: Effective Solutions to Stop Your Arctis 7 Headset From Making Crackling Sounds on PC</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/solving-the-issue-why-wont-my-computer-recognize-my-mouse-tips-from-yl-software/"><u>Solving the Issue: Why Won't My Computer Recognize My Mouse? Tips From YL Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-audioadvisor-dacast-and-what-it-should-be-for-2024/"><u>[New] AudioAdvisor DaCast & What It Should Be for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-top-facebook-song-videos-unveiled-a-making-of-chronicle/"><u>[Updated] 2024 Approved Top Facebook Song Videos Unveiled A Making-Of Chronicle</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-structuring-stimulating-podcast-sneak-peeks/"><u>[Updated] Structuring Stimulating Podcast Sneak Peeks</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-vivo-y27s-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/demystifying-bass-management-in-audio-systems-for-optimal-clarity-and-power/"><u>Demystifying Bass Management in Audio Systems for Optimal Clarity and Power</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-oppo-k11-5g-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Oppo K11 5G</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-ways-to-correct-pixel-damage-causing-image-deformation-on-monitors/"><u>Effective Ways to Correct Pixel Damage Causing Image Deformation on Monitors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ulent-fronts-navigating-the-minefield-of-fake-youtube-viewers/"><u>Fraudulent Fronts Navigating the Minefield of Fake YouTube Viewers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gamers-choice-of-iphones-decoding-the-best-devices/"><u>Gamers' Choice of iPhones: Decoding the Best Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-youtuber-in-training-mobile-livestream-without-1000plus-subs/"><u>In 2024, YouTuber in Training Mobile Livestream WITHOUT 1000+ Subs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/innovative-8-image-collections-for-macbook-screens-for-2024/"><u>Innovative 8 Image Collections for MacBook Screens for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/vivid-8-enhancements-to-transform-your-live-footage-for-2024/"><u>Vivid 8 Enhancements to Transform Your Live Footage for 2024</u></a></li>
 </ul></div>
 

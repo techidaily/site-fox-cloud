@@ -1,7 +1,7 @@
 ---
 title: "[New] Prime Online Collections for 3D Typography"
-date: 2024-12-17T22:36:24.268Z
-updated: 2024-12-20T19:15:40.751Z
+date: 2024-12-14T21:02:20.809Z
+updated: 2024-12-21T22:45:35.360Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,10 @@ To get the font, visit the Freepik website using a browser and use the search fi
 
 ![freepik for 3d graffiti text](https://images.wondershare.com/filmora/article-images/freepik-3d-gold-text.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Features**
 
 * Fully scalable and editable assets
@@ -73,10 +77,6 @@ Shutterstock is a global online marketplace for high-definition stunning visuals
 Furthermore, this online resource allows you to download 10 images for free during the trial period. To begin with, visit the website using a browser, sign up for a free trial or premium plan, and simply search for 3D graffiti fonts.
 
 ![shutterstock for 3d graffiti text](https://images.wondershare.com/filmora/article-images/shutterstock-for-3d-graffiti-text.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features**
 
@@ -101,6 +101,10 @@ To download the 3D graffiti fonts from Vecteezy:
 3. Click **"Download"** to save the effect.
 
 ![vecteezy for 3d graffiti text](https://images.wondershare.com/filmora/article-images/3d-gold-text-behance-vecteezy.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Features**
 
@@ -144,10 +148,6 @@ You can access all the fonts you need to create stunning visuals for $49.99 mont
 
 ![adobe stock for 3d graffiti text](https://images.wondershare.com/filmora/article-images/adobe-stock-for-3d-text-png.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Features**
 
 * 297 million royalty-free
@@ -181,7 +181,7 @@ To begin with, visit the **Dafont** website using a browser and use the search f
 * Only zip file format is available to download
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. [MyFonts](https://www.myfonts.com/collections/tags/3d+Graffiti-fonts)
@@ -197,6 +197,10 @@ To download:
 
 ![myfonts for 3d graffiti text](https://images.wondershare.com/filmora/article-images/myfonts-for-3d-graffiti-text.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Features**
 
 * Creative text styles and shapes
@@ -210,7 +214,7 @@ To download:
 * Complicated licensing process
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. [FontSpace](https://www.fontspace.com/category/graffiti)
@@ -265,7 +269,7 @@ Step5 Once done, click the Play icons in the video player to preview the video. 
 You can also watch this video to follow the steps to create 3D text animation in Filmora:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -302,10 +306,6 @@ To get the font, visit the Freepik website using a browser and use the search fi
 
 * You can only download 10 pictures for free
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. [Shutterstock](https://www.shutterstock.com/zh/search/3d-graffiti-font?image%5Ftype=vector)
 
 Shutterstock is a global online marketplace for high-definition stunning visuals, including royalty-free photos, 3D graffiti fonts, videos, and vectors. Here, you can get over 405 million assets at a price starting from $0.22–$14.50/image and $67.96–$99.50/image for an extended license.
@@ -325,6 +325,10 @@ Furthermore, this online resource allows you to download 10 images for free duri
 **Limitations**
 
 * Some users are experiencing issues while canceling their subscription
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. [Vecteezy](https://www.vecteezy.com/free-vector/graffiti-font)
 
@@ -361,10 +365,6 @@ On Befonts, you can also find text templates from different font designers. To g
 
 ![befonts for 3d graffiti text](https://images.wondershare.com/filmora/article-images/befonts-for-3d-graffiti-text.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Features**
 
 * Free templates for personal and commercial use
@@ -377,7 +377,7 @@ On Befonts, you can also find text templates from different font designers. To g
 * You can download text styles in only zip format.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. [Adobe Stock](https://stock.adobe.com/search?k=graffiti%20fonts)
@@ -401,7 +401,7 @@ You can access all the fonts you need to create stunning visuals for $49.99 mont
 * You cannot get extended licenses in bulk
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. [Dafont](https://www.dafont.com/theme.php?cat=606)
@@ -469,6 +469,10 @@ With over 90,000 resources, you're sure to find the perfect customizable font fo
 
 * You cannot use various fonts for commercial use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Edit Graffiti Text Effects in Video
 
 Although the above-mentioned online resources are rich with gold text styles, they do not offer editing tools to edit text effects in a video. Therefore, we recommend using Filmora – a powerful video editing software that can help you add any 3D graffiti fonts to your footage.
@@ -492,10 +496,6 @@ Step3 Now, drag & drop the video clip to the timeline to begin editing 3D graffi
 In the search field, type 3D graffiti text and hit Enter. Next, select the template, click the ;**download** ;icon, and drop the font layer in the timeline. ;
 
 ![creating 3d graffiti text animation in filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Place the text effect in the timeline where you want it to be displayed in the video. Now, double-click the template and type your text.  
 Configure the text style, duration, and color on the video. You can also apply animation by clicking the **"Advanced"** option.
@@ -536,24 +536,24 @@ Hopefully, you've found this article helpful and can now get the proper 3D fonts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mac-assisted-ootd-videography-secrets-revealed/"><u>[New] 2024 Approved Mac-Assisted OOTD Videography Secrets Revealed</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-full-guide-to-google-docs-speech-to-text-service/"><u>[New] Full Guide to Google Docs Speech to Text Service</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-learn-and-create-the-ultimate-youtube-trailer-blueprint-in-filmora/"><u>[New] In 2024, Learn and Create The Ultimate YouTube Trailer Blueprint in Filmora</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-pearlescent-pictures-brighten-with-android-for-2024/"><u>[New] Pearlescent Pictures Brighten with Android for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-unlock-the-full-potential-of-your-iphone-photos-for-2024/"><u>[New] Unlock the Full Potential of Your iPhone Photos for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-embrace-evolution-from-paper-originals-to-digital-archives/"><u>[Updated] 2024 Approved Embrace Evolution From Paper Originals to Digital Archives</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-streamline-your-information-with-mematics-app/"><u>[Updated] 2024 Approved Streamline Your Information with Mematic's App</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ultimate-playlist-of-film-scores-and-tracks/"><u>[Updated] 2024 Approved Ultimate Playlist of Film Scores & Tracks</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-actors-agreement-for-public-viewing/"><u>[Updated] Actors' Agreement for Public Viewing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-essential-livestream-providers-the-ultimate-list-for-2024/"><u>[Updated] Essential Livestream Providers The Ultimate List for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-from-hd-to-hyper-hd-the-eizo-monitor-revolution-with-cg318-4k/"><u>[Updated] From HD to Hyper HD The EIZO Monitor Revolution with CG318-4K</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-top-5-ios-tools-to-download-facebook-movies-and-clips/"><u>[Updated] In 2024, Top 5 iOS Tools to Download Facebook Movies & Clips</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-poco-x6-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Poco X6 Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-ice-racing-royalty-olympians-highlights-2022/"><u>In 2024, Ice Racing Royalty Olympians' Highlights, 2022</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-text-transformation-tactics-avoiding-3d-missteps/"><u>In 2024, Text Transformation Tactics Avoiding 3D Missteps</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Huawei P60 | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722968390836-quick-fix-for-your-printers-download-the-compatible-zebra-gk4n0d-pcb-drivers-now/"><u>Quick-Fix for Your Printers: Download the Compatible Zebra GK4n0D PCB Drivers Now</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-redmi-k70-pro-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi Redmi K70 Pro Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/uninspired-launch-a-critical-look-at-godfall-sonys-initial-ps5-offering/"><u>Uninspired Launch: A Critical Look at Godfall, Sony's Initial PS5 Offering</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-chucklechief-meme-masterclass-online/"><u>[New] 2024 Approved ChuckleChief Meme Masterclass Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-personalizing-your-windows-photos-experience-add-filters-sound/"><u>[New] 2024 Approved Personalizing Your Windows Photos Experience Add Filters, Sound</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-decoding-digital-dialogue-essential-vr-lingo/"><u>[New] Decoding Digital Dialogue Essential VR Lingo</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-separate-visual-elements-videos-to-pics-via-windows-10-photos/"><u>[New] Separate Visual Elements Videos to Pics via Windows 10 Photos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-pioneering-the-soundtrack-adding-editing-and-cropping-music/"><u>[Updated] 2024 Approved Pioneering the Soundtrack Adding, Editing, and Cropping Music</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-sprint-through-slow-androids-premier-video-fixes/"><u>[Updated] 2024 Approved Sprint Through Slow Android's Premier Video Fixes</u></a></li>
+<li><a href="https://win-hot.techidaily.com/bebaskan-file-anda-dari-visual-studio-code-dengan-alasan-tidak-terjadi-di-github/"><u>Bebaskan File Anda Dari Visual Studio Code Dengan Alasan Tidak Terjadi Di GitHub</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boost-productivity-harness-windows-smart-launcher-techniques/"><u>Boost Productivity: Harness Windows' Smart Launcher Techniques</u></a></li>
+<li><a href="https://win11.techidaily.com/exploring-effortless-device-cooperation-between-android-and-pc/"><u>Exploring Effortless Device Cooperation Between Android and PC</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-11-pro-max-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer from Apple iPhone 11 Pro Max to iPhone 8/X/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-pinning-down-content-5-superior-free-video-downloader-tools/"><u>In 2024, Pinning Down Content 5 Superior Free Video Downloader Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-precision-editing-for-perfect-numbers-on-tiktok-videos/"><u>In 2024, Precision Editing for Perfect Numbers on TikTok Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-vibrance-vortex-top-5-video-enhancement-tech/"><u>In 2024, Vibrance Vortex Top 5 Video Enhancement Tech</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/innovators-choice-top-5-state-of-the-art-slow-cams/"><u>Innovators' Choice Top 5 State-of-the-Art Slow Cams</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/optimizing-endorsements-for-credibility/"><u>Optimizing Endorsements for Credibility</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-photographic-edge-cutting-edge-editing-strategies/"><u>The Photographic Edge Cutting-Edge Editing Strategies</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unleash-your-creativity-enhance-livestreams-using-manycams-cutting-edge-vr-camera-solutions/"><u>Unleash Your Creativity: Enhance Livestreams Using ManyCam's Cutting-Edge VR Camera Solutions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/your-instagram-photo-journey-starts-here-for-2024/"><u>Your Instagram Photo Journey Starts Here for 2024</u></a></li>
 </ul></div>
 
