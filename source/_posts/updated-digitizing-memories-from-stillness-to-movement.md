@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Digitizing Memories  From Stillness to Movement\""
-date: 2024-08-23T01:46:35.774Z
-updated: 2024-08-24T01:46:35.774Z
+date: 2024-12-18T04:59:01.973Z
+updated: 2024-12-21T06:48:25.695Z
 tags: 
   - screen-recording
   - ai video
@@ -86,11 +86,19 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Edit the video
 
@@ -123,9 +131,9 @@ That’s it! After making all the changes, you can preview your video on the rig
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## More Editing Tips for Creating Memorable Videos
 
 To get better results while making your video collage, you can consider following these suggestions.
@@ -155,15 +163,17 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -187,4 +197,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-high-quality-methodology-stitching-gopro-sequences-in-virtual-reality-films/"><u>[Updated] 2024 Approved High-Quality Methodology Stitching GoPro Sequences in Virtual Reality Films</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-scripting-success-the-art-of-good-documentaries/"><u>[Updated] 2024 Approved Scripting Success The Art of Good Documentaries</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ultimate-storage-solution-for-sony-a7s-ii/"><u>[Updated] 2024 Approved Ultimate Storage Solution for Sony A7S II</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevate-chromebook-voice-quality-exclusive-list-of-5-top-extensions/"><u>[Updated] Elevate Chromebook Voice Quality Exclusive List of 5 Top Extensions</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-reflex-toolbox-bundle/"><u>[Updated] Reflex Toolbox Bundle</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-swift-cinematic-skills-the-quickest-5-diy-hacks-for-success-for-2024/"><u>[Updated] Swift Cinematic Skills The Quickest 5 DIY Hacks for Success for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ultimate-list-premium-voice-modifiers-for-virtual-creators-for-2024/"><u>[Updated] Ultimate List Premium Voice Modifiers for Virtual Creators for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-innovative-editing-mastery-in-tiktok-seamless-transition-of-video-borders/"><u>2024 Approved Innovative Editing Mastery in TikTok Seamless Transition of Video Borders</u></a></li>
+<li><a href="https://win11.techidaily.com/bypass-blocked-windows-defender-in-win-11/"><u>Bypass Blocked Windows Defender in Win 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/compatibility-checklist-phone-list-for-gear-vr-2023/"><u>Compatibility Checklist Phone List for Gear VR 2023</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ensuring-flawless-hd-audio-performance-idt-codec-drivers-on-windows-11-made-simple/"><u>Ensuring Flawless HD Audio Performance: IDT Codec Drivers on Windows 11 Made Simple</u></a></li>
+<li><a href="https://win-help.techidaily.com/exploring-reasons-for-unexpected-system-crashes-and-freezes-with-yl-software-solutions/"><u>Exploring Reasons for Unexpected System Crashes and Freezes with YL Software Solutions</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/gopro-hero-3-sd/"><u>GoPro Hero 3 リセット手順と初期化のための SD カード設定ガイド</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-digital-photo-albums-acoustic-advancement/"><u>In 2024, Digital Photo Albums Acoustic Advancement</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-lava-yuva-2-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Lava Yuva 2 Pro to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-canon-mg2800-series-drivers-for-windows-operating-systems-get-them-here/"><u>Latest Canon MG2800 Series Drivers for Windows Operating Systems - Get Them Here!</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/solving-windows-11-error-0xc0000221-step-by-step-troubleshooting-guide/"><u>Solving Windows 11 Error 0xC0000221 - Step-by-Step Troubleshooting Guide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-heart-of-vimeo-celebrating-independent-cinema-for-2024/"><u>The Heart of Vimeo Celebrating Independent Cinema for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/your-journey-into-the-world-of-funny-metaverse-images/"><u>Your Journey Into the World of Funny Metaverse Images</u></a></li>
+</ul></div>
 

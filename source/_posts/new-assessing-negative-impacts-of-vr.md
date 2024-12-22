@@ -1,7 +1,7 @@
 ---
 title: "[New] Assessing Negative Impacts of VR"
-date: 2024-12-09T16:10:27.228Z
-updated: 2024-12-12T20:49:42.402Z
+date: 2024-12-16T23:41:37.538Z
+updated: 2024-12-21T02:57:35.864Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The equipment used for VR is very expensive
@@ -46,7 +46,7 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
  Of course with any early stage technology, there are a host of issues to overcome among the first is cost for consumers to participate. Many systems run between $100 and $600 and we have not yet discussed the cost of purchasing experiences or games.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Low resoultion content, large file size
@@ -70,7 +70,7 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
  There is an addictive quality of Virtual Reality environments that should not be ignored. Those who are regular users of these spaces, even in its developmental state find that it can be hard to stay away. Users find themselves in some cases, preferring the virtual world to the real one. If these anecdotal experiences are being reported by a very small sample size what will be the impact on entire cultures that embrace this technology? Considerations of Virtual Reality must extend into the world of human activity and definitions of normal behavior. And as a reminder most of us who love science fiction have a sense of what true Virtual Reality really is. It should be clear that we are a very long way from enjoying the holodeck.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best Video Editor: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -78,13 +78,13 @@ _[Virtual Reality Technology: Current State and Future Challenges](https://tools
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -112,24 +112,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-master-your-thumbnails-with-these-20-top-fonts/"><u>[New] In 2024, Master Your Thumbnails with These 20 Top Fonts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-overcome-oversaturated-tiktok-drafters-through-savvy-edits/"><u>[New] In 2024, Overcome Oversaturated TikTok Drafters Through Savvy Edits</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-achieve-side-by-side-viewing-on-chrome-the-pip-method/"><u>[Updated] 2024 Approved Achieve Side-by-Side Viewing on Chrome The PIP Method</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-creative-ae-templates-select-10/"><u>[Updated] 2024 Approved Creative AE Templates Select 10</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-dynamic-duels-revisited-best-hand-to-hand-games-ranked/"><u>[Updated] 2024 Approved Dynamic Duels Revisited Best Hand-to-Hand Games Ranked</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-tailored-visual-representation-free-logo-base-for-personal-touches/"><u>[Updated] 2024 Approved Tailored Visual Representation Free Logo Base for Personal Touches</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-primeworld-views-worldwide-channel-accessibility-now/"><u>[Updated] PrimeWorld Views Worldwide Channel Accessibility Now</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-silent-spectators-101-the-essentials-for-unnoticed-instagram-livestreams/"><u>[Updated] Silent Spectators 101 The Essentials for Unnoticed Instagram Livestreams</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/beginners-guide-to-interpreting-facebook-metrics-for-2024/"><u>Beginner's Guide to Interpreting Facebook Metrics for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/best-practices-a-guide-to-optimal-mobile-video-reduction-for-2024/"><u>Best Practices A Guide to Optimal Mobile Video Reduction for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/brief-scene-structure-summary/"><u>Brief Scene Structure Summary</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/discovering-the-metaverses-hidden-joys-for-2024/"><u>Discovering the Metaverse's Hidden Joys for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effective-ways-to-repair-lgs-unrecognized-hardware-in-windows-os-windows-1087/"><u>Effective Ways to Repair LG's Unrecognized Hardware in Windows OS (Windows 10/8/7)</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-xiaomi-redmi-note-13-proplus-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Xiaomi Redmi Note 13 Pro+ 5G Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-techniques-to-purge-background-from-photos-using-photopea/"><u>In 2024, Techniques to Purge Background From Photos Using Photopea</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-toolwiz-visualize-a-comprehensive-2023-evaluation/"><u>In 2024, Toolwiz Visualize - A Comprehensive 2023 Evaluation</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/october-2024s-prime-shopping-guide-unbeatable-laptop-offers-featured/"><u>October 2024'S Prime Shopping Guide: Unbeatable Laptop Offers Featured</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/e-oasis-youtubes-finest-yoga-retreats/"><u>Online Oasis YouTube's Finest Yoga Retreats</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-connectivity-issues-how-to-tell-if-discord-server-is-down-or-your-connection-fails/"><u>Troubleshooting Connectivity Issues: How to Tell If Discord Server Is Down or Your Connection Fails?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-2023s-best-device-compatible-entry-editor-solutions/"><u>[New] 2024 Approved 2023'S Best Device-Compatible Entry Editor Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/chieving-1k-subs-in-a-weekend-a-plan-of-action-for-2024/"><u>[New] Achieving 1K Subs in a Weekend A Plan of Action for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-insights-setting-up-time-limited-sessions-with-obs/"><u>[New] In 2024, Ultimate Insights Setting Up Time-Limited Sessions with OBS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-insiders-list-google-pixel-tone-sources-for-2024/"><u>[New] Insider's List Google Pixel Tone Sources for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-screen-selection-simplified-find-the-best-display-for-xbox-series-x-for-2024/"><u>[New] Screen Selection Simplified - Find the Best Display for Xbox Series X for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-selective-selections-notable-sites-for-snagging-snapalert-tunes/"><u>[New] Selective Selections Notable Sites for Snagging SnapAlert Tunes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-instant-inspiration-free-video-intro-kits/"><u>[Updated] In 2024, Instant Inspiration - Free Video Intro Kits</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-pushing-boundaries-innovative-memes-with-kinemaster/"><u>[Updated] In 2024, Pushing Boundaries Innovative Memes with KineMaster</u></a></li>
+<li><a href="https://win11.techidaily.com/efficient-multilingual-translation-with-windows-shortcut-hotkeys/"><u>Efficient Multilingual Translation with Windows Shortcut Hotkeys</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-and-tricks-to-correcting-bios-related-whea-issues/"><u>Expert Tips and Tricks to Correcting BIOS-Related WHEA Issues</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-crafting-stunning-slideshows-on-iphone-series-13/"><u>In 2024, Crafting Stunning Slideshows on iPhone Series 13</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Infinix Hot 40i? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/integrating-zoom-calls-smoothly-on-xbox-console-for-2024/"><u>Integrating Zoom Calls Smoothly on Xbox Console for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-keyword-optimization-in-podcast-seo-for-2024/"><u>Navigating Keyword Optimization in Podcast SEO for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/solve-your-firefox-video-problems-with-these-8-proven-strategies/"><u>Solve Your Firefox Video Problems with These 8 Proven Strategies</u></a></li>
 </ul></div>
 

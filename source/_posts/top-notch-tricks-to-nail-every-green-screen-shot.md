@@ -1,7 +1,7 @@
 ---
 title: "\"Top-Notch Tricks to Nail Every Green Screen Shot\""
-date: 2024-12-07T18:10:32.460Z
-updated: 2024-12-12T18:22:28.659Z
+date: 2024-12-16T06:01:00.847Z
+updated: 2024-12-21T03:29:49.698Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ If you are wondering how to compositing the shot green screen video with your ma
 
 **Related:**[Resources for green screen effects](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5 Tips for shooting better green screen video
 
 We’ve figured out some useful green screen tricks, have fun and hope you’ll be more creative with the help of Filmora green screen video compositing software.
@@ -45,7 +49,7 @@ We’ve figured out some useful green screen tricks, have fun and hope you’ll 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In the following section, we will share with you five tips when you shooting a video for compositing a green screen video, which covering the lighting tips, the camera tips, the clothing tips, the tips for using green screen sheet, and the tips for resolving motion blur in shooting videos.
@@ -59,7 +63,7 @@ Don’t throw too much light onto the green background. That will create hotspot
 ![Lighting tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-lighting-tips.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Check out our picks of [the best lighting equipment for shooting videos](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -67,10 +71,6 @@ Check out our picks of [the best lighting equipment for shooting videos](https:/
 #### 2Camera tips in shooting a Green Screen Video
 
 ![Camera tips in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-6.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 When lighting your key surface, make sure the bounce light is not directed at the camera (as shown in the image above). For example, if your camera faces the key surface directly, set your lights at 45 degree angles to the key surface. This will ensure that the bounce light bounces toward the other light and not at the camera.
 
@@ -91,7 +91,7 @@ There are some mistakes that you can avoid to help your green screen video look 
 ![Wrinkles problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-2.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Wrinkles in your screen can actually lead to heavy shadows and distorted image quality in your green screen video. If you regularly fold your green screen for storage it's very important that you take an iron out and flat negative green screen to prevent shadows and distortions with your background image. This is a step that many skip over but it's important to have a high-quality green screen without wrinkles and folds that cause shadows.
@@ -99,10 +99,6 @@ Wrinkles in your screen can actually lead to heavy shadows and distorted image q
 #### 5 Motion blur problem in shooting a Green Screen Video
 
 ![Motion blur problem in shooting a Green Screen Video](https://images.wondershare.com/images/multimedia/video-editor/green-screen-mistake-4.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 If you are planning on shooting a high action scene in front of a green screen with a camera that only has lower shutter speeds, you can run into real problems. When using a camera with a lower shutter speed consider doing action shots in slow motion or getting subjects to not make any sudden movements in front of the green screen. Motion blur from someone moving rapidly on camera in front of a green screen can really ruin the scene and ruin the realism of the scene. Alternately you could also consider renting a high shutter speed camera to avoid this motion blur if you do plan on shooting a lot of action scenes. Ultimately this is something that you will need to test for yourself before shooting a green screen video, so that you can get a feel for how much action your camera can handle with a green screen without motion blur.
 
@@ -115,6 +111,10 @@ Besides compositing chroma keying videos in Filmora, you can also[stabilize your
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -141,19 +141,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-captivating-features-the-allure-of-filmora-editing/"><u>[New] Captivating Features The Allure of Filmora Editing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-narrative-nexus-cutting-edge-storytelling-channels-of-the-year/"><u>[Updated] 2024 Approved Narrative Nexus Cutting-Edge Storytelling Channels of the Year</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-best-12-websites-to-download-free-stock-photos/"><u>[Updated] In 2024, Best 12 Websites to Download Free Stock Photos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-investigating-screenshots-best-tools-fraps-vs-obs-studio-for-2024/"><u>[Updated] Investigating Screenshots’ Best Tools Fraps Vs OBS Studio for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-4k-blade-camera-imaging-for-2024/"><u>[Updated] The Ultimate Guide to 4K Blade Camera Imaging for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-top-30-camcorders-recommended-for-snow-activities-for-2024/"><u>[Updated] Top 30 Camcorders Recommended for Snow Activities for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/44cm44ox44ot44gu5oqa6kgt44gn44kt44or6zug44ks44kr44k544k44oe44kk44k644gx44cb44gk44gz44gz44kb44gu57eo6zug44k944ov44oi5yip55so44ks44kk44oj44cn/"><u>「プロの技術でキル集をカスタマイズし、おすすめの編集ソフト利用ガイド」</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-top-10-best-free-mmorpg-games-you-can-find/"><u>2024 Approved Top 10 Best Free MMORPG Games You Can Find</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-lava-agni-2-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Lava Agni 2 5G</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/cutting-edge-4k-panels-top-10-revealed-list-for-2024/"><u>Cutting-Edge 4K Panels Top 10 Revealed List for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 To Other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-honor-magic-5-lite-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Honor Magic 5 Lite Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/reviving-shadows-and-highlights-in-iphone-hdr-footage-with-premiere-pro-for-2024/"><u>Reviving Shadows and Highlights in iPhone HDR Footage with Premiere Pro for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/turbocharge-fb-video-speed-selective-extensions-and-apps-guidebook/"><u>Turbocharge FB Video Speed Selective Extensions & Apps Guidebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-30-groundbre-writers-making-metaverse-memes-thrive/"><u>[New] 2024 Approved 30 Groundbre Writers Making Metaverse Memes Thrive</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-revive-vanished-watch-video-icon-for-2024/"><u>[New] Revive Vanished Watch Video Icon for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-selecting-the-perfect-day-for-podcast-drops-for-2024/"><u>[New] Selecting the Perfect Day for Podcast Drops for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-content-maker-to-cash-magnet-youtubes-guide-to-ad-revenue-for-2024/"><u>[Updated] From Content Maker to Cash Magnet Youtube's Guide to Ad Revenue for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-metaverse-memetic-marvels-from-copycat-cartoons-to-originalist-oddities/"><u>[Updated] In 2024, Metaverse Memetic Marvels - From Copycat Cartoons to Originalist Oddities</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-complete-tech-manual-for-game-screen-recording-win10/"><u>2024 Approved The Complete Tech Manual for Game Screen Recording Win10</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-motorola-defy-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://win-best.techidaily.com/diagnosing-hardware-problems-on-your-pc-top-tools-for-windows-systems-exploring-options-with-yl/"><u>Diagnosing Hardware Problems on Your PC: Top Tools for Windows Systems - Exploring Options with YL</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/eliminate-unwanted-podcast-suggestions-on-spotify/"><u>Eliminate Unwanted Podcast Suggestions on Spotify</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-oppo-reno-11-pro-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Oppo Reno 11 Pro 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-subtle-sound-reduction-tactics-with-garageband/"><u>In 2024, Subtle Sound Reduction Tactics with Garageband</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-unlock-full-media-potential-with-funimate-tools/"><u>In 2024, Unlock Full Media Potential with Funimate Tools</u></a></li>
+<li><a href="https://win-tips.techidaily.com/overcoming-azure-capacity-constraints-strategies-for-businesses-insights-and-solutions/"><u>Overcoming Azure Capacity Constraints: Strategies for Businesses - Insights and Solutions</u></a></li>
 </ul></div>
 

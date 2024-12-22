@@ -1,7 +1,7 @@
 ---
 title: "[New] Dive Into iPhone Photo Magic with Surface Mirror Tips"
-date: 2024-12-06T17:17:45.253Z
-updated: 2024-12-12T20:16:32.635Z
+date: 2024-12-19T12:14:31.971Z
+updated: 2024-12-21T04:30:21.004Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips For Perfect Reflective Photography With Your iPhone
@@ -53,21 +53,17 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 ![reflection-surface](https://images.wondershare.com/filmora/article-images/reflection-surface.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  A Crystal/Glass Ball
 
 ![reflection-photography-for-iPhone](https://images.wondershare.com/filmora/article-images/crystal-ball.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Water in a wine glass (turns everything upside down too!)
 
 ![water-reflection](https://images.wondershare.com/filmora/article-images/water-reflection.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\.  Pay Attention to Composition
 
@@ -80,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
  iPhone already has a feature for you to bring up lines before you take the photo with the rule of thirds:
 
 ![reflection-composition-tips](https://images.wondershare.com/filmora/article-images/reflection-composition-tips.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  To activate the lines simply go to **Settings > Camera and Photographs > Grid**
 
@@ -98,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 ![keep-the-image-simple](https://images.wondershare.com/filmora/article-images/keep-the-image-simple.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Awful
@@ -122,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
  It is also just good photography practice to have your subjects bend and distort the light. The contrasts make for an aesthetically beautiful image, and makes post production optimization even easier.
 
 ![make-use-of-texture](https://images.wondershare.com/filmora/article-images/make-use-of-texture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Post Production Reflective Effects
 
@@ -147,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 #### 2\. [Reflection](https://itunes.apple.com/us/app/reflection-create-water-reflection-photo-arts/id672111257?mt=8)
 
 ![reflection-create-water-reflection-photo-arts](https://images.wondershare.com/filmora/article-images/reflection-create-water-reflection-photo-arts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Super user friendly app lets you create HD photos and it's intuitive feature means you can create reflective photos in a few taps. This is one of the best apps in terms of the quality of images/edits. It has all of the reflective effects of many of the top editing packages like Photoshop.
 
@@ -191,21 +191,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-color-grading-with-gopro-studio-for-2024/"><u>[New] Mastering Color Grading with GoPro Studio for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-10-best-text-effects-for-your-video/"><u>[Updated] 2024 Approved 10 Best Text Effects for Your Video</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-begin-installing-xps-key-visual-storytelling-app/"><u>[Updated] 2024 Approved Begin Installing XP’s Key Visual Storytelling App</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-aviations-top-10-hexa-flight-titans/"><u>[Updated] Aviation's Top 10 Hexa-Flight Titans</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-cut-and-paste-chronicles-qanda-archive/"><u>[Updated] Cut & Paste Chronicles Q&A Archive</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-stop-muted-tracks-in-tweeted-video-content/"><u>[Updated] In 2024, Stop Muted Tracks in Tweeted Video Content</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/boost-your-digital-performance-advanced-tips-for-dj-pc-setup-and-video-editing-integration/"><u>Boost Your Digital Performance: Advanced Tips for DJ PC Setup & Video Editing Integration</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-notes-from-iphone-xs-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Notes from iPhone XS Max? | Stellar</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-best-of-mobile-8-ranked-free-and-premium-apps-for-androids-video-tiles/"><u>In 2024, Best of Mobile #8 Ranked Free & Premium Apps for Android's Video Tiles</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-itel-p40-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Itel P40 is off? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mastering-media-mobility-in-apples-ecosystem/"><u>Mastering Media Mobility in Apple's Ecosystem</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/number-1-in-the-8th-digital-image-blend-platform-for-2024/"><u>Number 1 in the 8Th Digital Image Blend Platform for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-process-restarting-frozen-software-in-your-latest-windows-operating-system/"><u>Step-by-Step Process: Restarting Frozen Software in Your Latest Windows Operating System</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ltimate-playbook-for-professional-looking-live-youtube-videos/"><u>The Ultimate Playbook for Professional-Looking Live YouTube Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/be-studios-comprehensive-guide-to-video-post-production/"><u>YouTube Studio's Comprehensive Guide to Video Post Production</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-5-audio-capture-methods-in-windows-11-operating-system/"><u>[New] 2024 Approved Top 5 Audio Capture Methods in Windows 11 Operating System</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unveiling-changes-in-sony-bdp-s670/"><u>[New] In 2024, Unveiling Changes in Sony BDP-S670</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-innovating-film-viewing-with-iphone-tricks-for-2024/"><u>[New] Innovating Film Viewing with iPhone Tricks for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-social-media-shifts-yearly-data-visualization-guide/"><u>[New] Social Media Shifts Yearly Data Visualization Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-hps-visionary-color-display-dissecting-the-z32x-monitor/"><u>[Updated] In 2024, HP’s Visionary Color Display Dissecting the Z32X Monitor</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtube-brand-creation-top-titles-for-video-content-craftsmen-max-156/"><u>2024 Approved Youtube Brand Creation Top Titles for Video Content Craftsmen (Max 156)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/advancing-zoom-clarity-in-online-gatherings-google-meet/"><u>Advancing Zoom Clarity in Online Gatherings (Google Meet)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-iphone-8-and-ipad-securely-drfone-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on iPhone 8 and iPad Securely | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-from-fixed-frames-to-dynamic-circles-in-videos/"><u>In 2024, From Fixed Frames to Dynamic Circles in Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/lightning-fast-windowed-gallery-viewer-alert-for-2024/"><u>Lightning-Fast Windowed Gallery Viewer Alert for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/premium-e-reader-insight-amazons-kindle-oasis-is-the-expense-worth-it/"><u>Premium E-Reader Insight: Amazon's Kindle Oasis - Is the Expense Worth It?</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/by-step-method-for-producing-captivating-video-thumbnails/"><u>Step-by-Step Method for Producing Captivating Video Thumbnails</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-redmi-k70e-by-fonelab-android-recover-music/"><u>The way to get back lost music from Redmi K70E</u></a></li>
 </ul></div>
 

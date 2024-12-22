@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Luminous Techniques  Crafting Captivating Cinematic Pieces for 2024\""
-date: 2024-08-23T01:39:19.940Z
-updated: 2024-08-24T01:39:19.940Z
+date: 2024-12-20T05:30:14.450Z
+updated: 2024-12-21T06:57:47.634Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,10 @@ The fill light is used to fill in the shadows created by the key light. It is us
 
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
 
 ##### Step4 Use Practical Lights
@@ -76,21 +80,37 @@ Finally, we have a few other small LED lights like this unicorn to put in the ba
 
 ![other small led lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After setting up all the lighting above, you can take a look at the comparison below:
 
 **Using Key Light only**
 
 ![using key light only](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Using Key Light + Fill + Backlight**
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
 
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -124,8 +144,21 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-covert-measures-for-efficient-home-based-learning/"><u>[New] 2024 Approved Covert Measures for Efficient Home-Based Learning</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ransform-your-asmr-experience-into-proficiently-produced-videos/"><u>[New] Transform Your ASMR Experience Into Proficiently Produced Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ultimate-conversion-handbook-srt-to-various-formats/"><u>[New] Ultimate Conversion Handbook SRT to Various Formats</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-engineering-eye-catching-podcast-sizzle-reels/"><u>[Updated] 2024 Approved Engineering Eye-Catching Podcast Sizzle Reels</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-mastering-memes-kinemaster-guide/"><u>[Updated] 2024 Approved Mastering Memes KineMaster Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-mastery-perfecting-edits-on-published-videos-for-2024/"><u>[Updated] YouTube Mastery Perfecting Edits on Published Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-a-list-5-high-res-tvs-perfecting-chromatic-balance/"><u>In 2024, A-List 5 High-Res TVs Perfecting Chromatic Balance</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-your-apple-iphone-12-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On your Apple iPhone 12</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-mastering-the-interface-key-win11-tricks/"><u>In 2024, Mastering the Interface Key Win11 Tricks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-visuals-gpu-boosting-on-laptops/"><u>Maximizing Visuals: GPU Boosting on Laptops</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-motorola-moto-g34-5g-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after Motorola Moto G34 5G has been deleted</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/seamless-content-propagation-beyond-youtube-and-facebook-for-2024/"><u>Seamless Content Propagation Beyond YouTube and Facebook for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/oundational-steps-to-your-distinctive-marketing-voice/"><u>The Foundational Steps to Your Distinctive Marketing Voice</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/what-hidden-beats-within-facebook-are-you-overlooking-in-2024/"><u>What Hidden Beats Within Facebook Are You Overlooking, In 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Effortlessly Invert Colors in Your Digital Photos"
-date: 2024-08-23T01:45:43.346Z
-updated: 2024-08-24T01:45:43.346Z
+date: 2024-12-19T00:19:16.216Z
+updated: 2024-12-21T00:12:54.141Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/667b327336657b37d917ada8179b0c23c67339c9f
  Mar 27, 2024• Proven solutions
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make Image Negative of a Digital Photo?
 
@@ -54,9 +58,17 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
 
@@ -67,6 +79,10 @@ You can experiment with the values you assign to each of these sliders in order 
 **Compatibility:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
@@ -87,6 +103,10 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -145,8 +165,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-textual-transformations-discovering-the-best-video-effects/"><u>[New] In 2024, Textual Transformations - Discovering the Best Video Effects</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-make-your-gaming-great-not-stressful-for-2024/"><u>[New] Make Your Gaming Great, Not Stressful for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-maximizing-your-viewing-experience-top-10-ios-video-apps/"><u>[New] Maximizing Your Viewing Experience Top 10 iOS Video Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-perfecting-projects-a-deep-dive-into-youtube-studio-editor/"><u>[Updated] In 2024, Perfecting Projects A Deep Dive Into YouTube Studio Editor</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-thorough-examination-hero4-black-performance/"><u>[Updated] In 2024, Thorough Examination Hero4 Black Performance</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-rapid-shot-mastery-the-ultimate-guide-to-homemade-cinematography/"><u>[Updated] Rapid Shot Mastery The Ultimate Guide to Homemade Cinematography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/efficient-video-trimming-methods-in-windows-11/"><u>Efficient Video Trimming Methods in Windows 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/high-quality-web-resources-for-glossy-3d-letters/"><u>High-Quality Web Resources for Glossy 3D Letters</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-yt-bidirectional-navigating-the-queue-from-the-conclusion-backwards/"><u>In 2024, YT Bidirectional Navigating the Queue From the Conclusion Backwards</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/samsungs-vision-innovations-in-image-editor-software-for-2024/"><u>Samsung’s Vision Innovations in Image Editor Software for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95521140-9781633410220-tarot-for-one/"><u>Tarot for One | Free Book</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-free-sound-effects-for-final-cut-pro-a-step-by-step-guide/"><u>Updated In 2024, Free Sound Effects for Final Cut Pro A Step-by-Step Guide</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->

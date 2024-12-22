@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, China on Ice  Revelry at the 2022 Beijing Olympics\""
-date: 2024-12-05T20:16:41.217Z
-updated: 2024-12-12T19:45:45.338Z
+date: 2024-12-15T02:53:18.318Z
+updated: 2024-12-21T03:42:05.234Z
 tags: 
   - screen-recording
   - ai video
@@ -37,25 +37,13 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Nathan Chen Breaks World Record
 
 Nathan Chen of the United States set a world-record score in men's figure skating short program held at Beijing Olympics. Chen scored 113.97 at Capital Indoor Stadium in Beijing. Four years after his dreams were shattered, Chen has not only come back stronger in his performance but managed to break the world record.
 
 ![nathan chen best male skater](https://images.wondershare.com/filmora/article-images/nathan-chen-breaks-world-record.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
@@ -63,15 +51,7 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
 
@@ -87,13 +67,25 @@ Nil Van der Poel broke his own record to win the Olympic gold medal. The 25-year
 
 ![van poel breaks the world record](https://images.wondershare.com/filmora/article-images/van-poel-breaks-the-world-record.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Following the victory, he stated that he was sure to win the gold with eight laps remaining. However, he went not just for the gold but the world record with the remaining four laps. Patrick Roest from the Netherlands won the silver and the third spot went to Davide Ghittio of Italy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Yan Wengang Wins China's First Medal in Sliding Sport
 
 Yan Wengang becomes the first medalist from China in a sliding sport. In a four-run total time of 4:01.77, he secured himself a bronze medal. The gold and silver went to Christopher Grotheer and Alex Jung of Germany. With the victory of Wengwang, there was a good feat for China as the nation sent its first skeleton athlete to the Olympics only 4 years ago.
 
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
 
@@ -103,11 +95,11 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
-With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
 
@@ -118,7 +110,7 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
@@ -127,6 +119,10 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
@@ -134,6 +130,10 @@ Zhou is considering the silver win as a consolation prize but he could not showc
 Doping scandals have become a part of the Olympics and this year is no different. According to International Testing Agency, Russian skater Kamila Valieva failed the doping test. On further examination, she tested positive for a performance-enhancing banned substance. She was told that she could not train, compete and participate during the Olympic Winter Games.
 
 ![russian figure skater](https://images.wondershare.com/filmora/article-images/russian-figure-skater.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 However, due to some miscommunication, she was allowed to be a participant in the team figure skating competition. She led the team to win gold but the medal is yet to be awarded due to the big confusion regarding the timeline of her drug test, suspension order, and miscommunication. The issue has become a controversial Beijing winter Olympics highlights.
 
@@ -156,19 +156,24 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-ignite-interest-captivate-views-elevate-likes-on-your-unboxings-for-2024/"><u>[New] Ignite Interest, Captivate Views Elevate Likes on Your Unboxings for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-find-out-which-phones-make-the-best-friends-with-gear-vr/"><u>[Updated] 2024 Approved Find Out Which Phones Make the Best Friends with Gear VR</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-a-step-by-step-approach-to-enhanced-roblox-views/"><u>[Updated] A Step-by-Step Approach to Enhanced Roblox Views</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-cross-platform-iptv-capture/"><u>[Updated] In 2024, Cross-Platform IPTV Capture</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-pros-guide-to-exceptional-cameras-and-lenses-in-4k/"><u>[Updated] In 2024, The Pro's Guide to Exceptional Cameras and Lenses in 4K</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-8-iphone-accessories-elevate-your-selfies-today/"><u>[Updated] In 2024, Top 8 iPhone Accessories - Elevate Your Selfies Today</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-velvet-vaults-2022-olympic-skaters/"><u>[Updated] In 2024, Velvet Vaults 2022 Olympic Skaters</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-complete-exploration-of-sierra-icloud-documentdesktop-views/"><u>2024 Approved Complete Exploration of Sierra iCloud Document/Desktop Views</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-premier-17-software-selections-for-background-extraction/"><u>2024 Approved Premier 17 Software Selections for Background Extraction</u></a></li>
-<li><a href="https://fox-info.techidaily.com/from-startup-to-standout-10-steps-to-thriving-in-the-world-of-smm/"><u>From Startup to Standout 10 Steps to Thriving in the World of SMM</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-experience-the-magic-watching-harry-potter-films-in-chronological-order/"><u>How To Experience The Magic: Watching Harry Potter Films In Chronological Order</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/peculiar-pratfalls-memes-tailored-for-the-perfect-moment/"><u>Peculiar Pratfalls Memes Tailored for the Perfect Moment</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unleash-creativity-inshot-video-editing-on-your-pc/"><u>Unleash Creativity Inshot Video Editing on Your PC</u></a></li>
-<li><a href="https://win-lab.techidaily.com/unseen-connections-solving-undetected-usb-issues-with-yl-computings-expertise/"><u>Unseen Connections: Solving Undetected USB Issues with YL Computing's Expertise</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-a-step-by-step-manual-to-freeze-backgrounds-in-affinity-photo-for-2024/"><u>[New] A Step-by-Step Manual to Freeze Backgrounds in Affinity Photo for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-android-centric-top-downloads-for-youtube-videos-explored-for-2024/"><u>[New] Android-Centric Top Downloads for YouTube Videos Explored for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-comprehensive-guide-to-free-os-compatible-players/"><u>[New] Comprehensive Guide to Free OS Compatible Players</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-free-subtitle-services-the-ultimate-convertors-guide/"><u>[New] Free Subtitle Services The Ultimate Convertors Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-virtual-versus-vital-gears-in-the-pursuit-of-perfect-pixels/"><u>[New] In 2024, Virtual Versus Vital Gears in the Pursuit of Perfect Pixels</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-leading-gamescript-replacements-for-fbx-files-for-2024/"><u>[New] Leading Gamescript Replacements for FBX Files for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-navigating-the-world-of-giant-file-movement-between-iphone-and-macos/"><u>[Updated] 2024 Approved Navigating the World of Giant File Movement Between iPhone and macOS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-essential-distinctions-between-metaverse-and-multimeva/"><u>[Updated] 2024 Approved The Essential Distinctions Between Metaverse and Multimeva</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-how-to-add-narration-to-your-videos/"><u>[Updated] How to Add Narration to Your Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-dynamic-typography-adding-layers-to-your-illustration/"><u>[Updated] In 2024, Dynamic Typography Adding Layers to Your Illustration</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-social-media-revolution-a-side-by-side-look-at-tiktok-and-snapchats-features-for-2024/"><u>[Updated] The Social Media Revolution A Side-By-Side Look at TikTok and Snapchat's Features for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elusive-story-viewers-mobile-hacks/"><u>Elusive Story Viewers' Mobile Hacks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gps-vs-cellular-the-ultimate-guide-to-choosing-your-apple-watch/"><u>GPS Vs. Cellular: The Ultimate Guide to Choosing Your Apple Watch</u></a></li>
+<li><a href="https://win-docs.techidaily.com/guide-complet-comment-realiser-une-restauration-informatique-avec-google-drive/"><u>Guide Complet : Comment Réaliser Une Restauration Informatique Avec Google Drive</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/identifying-the-proprietor-of-chatgpt-who-holds-the-reins/"><u>Identifying the Proprietor of ChatGPT: Who Holds the Reins?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/masterful-use-of-luts-in-obs-studio-for-professional-results/"><u>Masterful Use of LUTs in OBS Studio for Professional Results</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/memories-in-motion-a-step-by-step-guide-for-digital-conversion/"><u>Memories in Motion A Step-by-Step Guide for Digital Conversion</u></a></li>
+<li><a href="https://network-issues.techidaily.com/steps-to-eliminate-black-screen-complications/"><u>Steps to Eliminate Black Screen Complications</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/through-the-fins-pro-techniques-for-taking-superior-gopro-videos-underwater-for-2024/"><u>Through the Fins Pro Techniques for Taking Superior GoPro Videos Underwater for 2024</u></a></li>
 </ul></div>
 

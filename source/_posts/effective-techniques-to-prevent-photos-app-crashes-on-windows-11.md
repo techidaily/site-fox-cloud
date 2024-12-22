@@ -1,7 +1,7 @@
 ---
 title: "Effective Techniques to Prevent Photos App Crashes on Windows 11"
-date: 2024-12-06T16:49:51.590Z
-updated: 2024-12-12T18:09:49.759Z
+date: 2024-12-14T04:48:47.785Z
+updated: 2024-12-21T10:21:23.924Z
 tags: 
   - screen-recording
   - ai video
@@ -47,10 +47,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -65,6 +61,10 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -77,10 +77,14 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -115,7 +119,7 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -125,14 +129,10 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,24 +159,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-no-fuss-podcast-streaming-handbook/"><u>[New] 2024 Approved The No-Fuss Podcast Streaming Handbook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-behind-virtual-walls-a-deep-dive-into-6-metaverse-cases/"><u>[New] In 2024, Behind Virtual Walls A Deep Dive Into 6 Metaverse Cases</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-peek-at-sonys-high-end-smartphone-the-xperia-xz-4k-reveal/"><u>[New] Peek at Sony's High-End Smartphone - The Xperia XZ 4K Reveal</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-professional-tips-top-10-text-effects/"><u>[New] Professional Tips Top 10 Text Effects</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-steps-to-acquire-free-picture-frame-videos/"><u>[New] Steps to Acquire Free Picture Frame Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-best-practices-for-filming-and-sharing-immersive-content-on-fb/"><u>[Updated] 2024 Approved Best Practices for Filming and Sharing Immersive Content on FB</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-checklist-for-solo-online-stream-success/"><u>[Updated] 2024 Approved The Ultimate Checklist for Solo Online Stream Success</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-guide-to-unlocking-a-new-vocal-identity-in-free-fire-gaming/"><u>[Updated] 2024 Approved The Ultimate Guide to Unlocking a New Vocal Identity in Free Fire Gaming</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-expert-advice-on-selecting-the-best-lenses-for-filmmaking-for-2024/"><u>[Updated] Expert Advice on Selecting The Best Lenses For Filmmaking for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-sky-high-streams-on-facebook-a-dji-drone-users-guide-for-2024/"><u>[Updated] Sky-High Streams on Facebook A DJI Drone User's Guide for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-constructing-your-own-high-definition-pc-for-immersive-video-creation/"><u>2024 Approved Constructing Your Own High-Definition PC for Immersive Video Creation</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-sony-xperia-10-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Sony Xperia 10 V | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-decoding-advanced-image-editing-the-role-of-luts-in-cs6/"><u>In 2024, Decoding Advanced Image Editing The Role of LUTs in CS6</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-apple-iphone-12-mini-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Apple iPhone 12 mini Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-motorola-moto-g13-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Motorola Moto G13</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-apple-iphone-8-plus-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 8 Plus Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mobile-streams-on-youtube-less-than-1000-subs-no-problem/"><u>Mobile Streams on YouTube Less Than 1000 Subs? No Problem</u></a></li>
-<li><a href="https://app-tips.techidaily.com/top-apk-applications-comprehensive-downloads-and-reviews-of-games-tunes-root-tools/"><u>Top APK Applications: Comprehensive Downloads & Reviews of Games, Tunes, Root Tools</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/uninterrupted-legacy-software-sync-how-microsoft-ensures-continued-back-end-services-for-office-20162019-users-ahead-of-2024-itproportal/"><u>Uninterrupted Legacy Software Sync: How Microsoft Ensures Continued Back-End Services for Office 2016/2019 Users Ahead of 2024 | ITProPortal</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-boosting-engagement-joint-video-strategies-for-growth/"><u>[New] 2024 Approved Boosting Engagement Joint Video Strategies for Growth</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-photographic-perfection-in-the-palm-of-your-hands-online-for-2024/"><u>[New] Photographic Perfection in the Palm of Your Hands Online for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-4k-resolution-reimagined-picking-the-right-vision-technology-for-2024/"><u>[Updated] 4K Resolution Reimagined Picking the Right Vision Technology for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhance-projects-no-cost-templates-for-pp-prodigies/"><u>[Updated] Enhance Projects No-Cost Templates for PP Prodigies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-whispering-winds-down-best-voices-for-sleep/"><u>[Updated] In 2024, Whispering Winds Down Best Voices for Sleep</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-maximizing-video-quality-mastering-insta-to-mp4-conversion/"><u>[Updated] Maximizing Video Quality Mastering Insta-to-MP4 Conversion</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-tricks-to-increase-viewership-on-your-tiktok-unboxing-sessions-for-2024/"><u>[Updated] Tricks to Increase Viewership on Your TikTok Unboxing Sessions for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-realme-narzo-n55-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-the-complete-guide-to-scheduling-and-recording-online-meetings-with-slack-and-filmora/"><u>2024 Approved The Complete Guide to Scheduling & Recording Online Meetings with Slack & Filmora</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/5-reasons-excluding-gpt-from-cryptographic-research/"><u>5 Reasons: Excluding GPT From Cryptographic Research</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/exclusive-insider-written-by-an-experienced-video-editor-for-2024/"><u>Exclusive Insider' Written by an Experienced Video Editor for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-nubia-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Nubia Without PUK Codes</u></a></li>
+<li><a href="https://driver-download.techidaily.com/overcome-common-challenges-with-intel-hd-graphics-630-drivers-in-windows-expert-solutions-applied-fixed/"><u>Overcome Common Challenges with Intel HD Graphics 630 Drivers in Windows - Expert Solutions Applied [FIXED]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-tracker-gauging-youtube-popularity-for-financial-insights-for-2024/"><u>The Ultimate Tracker Gauging YouTube Popularity for Financial Insights for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
 </ul></div>
 

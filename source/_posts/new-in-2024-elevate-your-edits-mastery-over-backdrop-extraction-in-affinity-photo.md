@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Elevate Your Edits  Mastery Over Backdrop Extraction in Affinity Photo\""
-date: 2024-12-10T20:30:49.587Z
-updated: 2024-12-12T21:13:37.688Z
+date: 2024-12-18T04:15:36.572Z
+updated: 2024-12-21T01:57:58.170Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ No matter you are a professional content creator or a newbie, we'll be discussin
 
 Affinity Photo is a simple and easy-to-use editing software, and you can remove a background in it under two scenarios: remove a white or a busy background.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Erase a White Background in Affinity Designer
 
 To erase a white background in Affinity Designer, do these steps:
@@ -41,10 +45,6 @@ Now access the **Pixel Persona** section in the left corner of the software scre
 
 ![accessing the pixel persona in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-pixel-persona-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and disable **"Lock."** Now right-click on your layer again, and select **"Rasterize"** to enable editing of specific parts of the image.
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
@@ -52,6 +52,10 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
 
@@ -61,13 +65,13 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Remove a Busy Background in Affinity Designer
 
@@ -106,10 +110,6 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -125,6 +125,10 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -136,10 +140,6 @@ And if you have any interests in finding free images to expand your resource, yo
 
 Hopefully, this article and video can help you create ideal images!
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -147,6 +147,10 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -163,10 +167,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -202,18 +202,16 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-exploring-advanced-video-features-on-nikon-1j5/"><u>[New] 2024 Approved Exploring Advanced Video Features on Nikon 1J5</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-secret-to-success-with-filmora-top-10-editing-traits/"><u>[New] 2024 Approved The Secret to Success with Filmora Top 10 Editing Traits</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-pixelated-panoramas-instaslideshow/"><u>[New] In 2024, Pixelated Panoramas InstaSlideShow</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-pro-tips-for-captivating-vr-videos-top-9-strategies-for-2024/"><u>[New] Pro Tips for Captivating VR Videos Top 9 Strategies for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-enthralling-aesthetics-logo-techniques-for-podcasts/"><u>[Updated] Enthralling Aesthetics Logo Techniques for Podcasts</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-financial-fortitude-for-youtubers-beyond-basic-earnings-for-2024/"><u>[Updated] Financial Fortitude for YouTubers Beyond Basic Earnings for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-mastering-your-slide-show-webcam-screen-capture-methods/"><u>[Updated] In 2024, Mastering Your Slide Show Webcam Screen Capture Methods</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-turn-your-ios-images-into-accessible-pdfs/"><u>[Updated] Step by Step Turn Your IOS Images Into Accessible PDFs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-winter-olympics-2022-precision-snowriders-in-the-spotlight-for-2024/"><u>[Updated] Winter Olympics 2022 - Precision Snowriders in the Spotlight for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-beginners-guide-to-straightforward-hdr-techniques-for-2024/"><u>The Beginner's Guide to Straightforward HDR Techniques for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/troubleshooting-automatic-windows-store-openings/"><u>Troubleshooting Automatic Windows Store Openings</u></a></li>
-<li><a href="https://driver-error.techidaily.com/universal-pc-card-drivers-for-windows-series/"><u>Universal PC Card Drivers for Windows Series</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unlocking-the-full-potential-of-video-creation-with-vida/"><u>Unlocking the Full Potential of Video Creation with Vida</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-beat-stress-away-the-ultimate-gaming-list/"><u>[New] 2024 Approved Beat Stress Away The Ultimate Gaming List</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-effective-captioning-techniques-for-video-files-in-windows-photos/"><u>[New] Effective Captioning Techniques for Video Files in Windows Photos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastering-close-up-cinematography-essential-guidelines/"><u>[New] Mastering Close-Up Cinematography Essential Guidelines</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-youtube-lives-thumbnail-code-for-2024/"><u>[New] Unlocking YouTube Live's Thumbnail Code for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-economys-choice-high-quality-360-video-capabilities/"><u>[Updated] 2024 Approved Economy's Choice High-Quality 360° Video Capabilities</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-avoiding-common-pitfalls-crafting-memes-on-9gag-successfully/"><u>[Updated] Avoiding Common Pitfalls Crafting Memes on 9GAG Successfully</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unlocking-the-best-free-screen-recorders-on-windows-10-for-2024/"><u>[Updated] Unlocking the Best Free Screen Recorders on Windows 10 for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-navigating-small-group-setups-in-zoom/"><u>2024 Approved Navigating Small Group Setups in Zoom</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mkv-files-on-galaxy-a05s-by-aiseesoft-video-converter-play-mkv-on-android/"><u>How do you play MKV files on Galaxy A05s?</u></a></li>
+<li><a href="https://games-able.techidaily.com/legends-of-the-spark-the-shiny-quest-edition-73/"><u>Legends of the Spark: The Shiny Quest Edition (73)</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/the-ultimate-resource-where-to-get-updated-mbox-2-driver-software-for-windows-pcs/"><u>The Ultimate Resource: Where to Get Updated MBox 2 Driver Software for Windows PCs</u></a></li>
 </ul></div>
 

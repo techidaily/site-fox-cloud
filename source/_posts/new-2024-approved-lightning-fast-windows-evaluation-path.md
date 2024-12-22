@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Lightning-Fast Windows Evaluation Path\""
-date: 2024-08-23T01:44:08.408Z
-updated: 2024-08-24T01:44:08.408Z
+date: 2024-12-17T02:54:43.856Z
+updated: 2024-12-21T05:38:46.995Z
 tags: 
   - screen-recording
   - ai video
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/d16299364ff8a12ac1730983e510ad0f5d0273900
 ## Lightning-Fast Windows Evaluation Path
 
 Windows operating system comes with an inbuilt file preview feature embedded in Explorer. This feature lets you preview documents and images before uploading them on apps like Skype, Facebook, and more. But what happens if you want to preview videos, audio, spreadsheets, ZIP, and more? In that case, install **QuickLook for Windows**. So, what exactly is **QuickLook for Windows 10,** and where can you get this app? For answers and more, read to the end.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Download Quick Look App on Microsoft Store
 
@@ -54,18 +58,22 @@ Step2 Scroll down and download the .msi file. After downloading the installation
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
 Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years. But are we going to see QuickLook coming to Windows 10/11 anytime soon? According to sources, plans are already underway to add this feature to Microsoft Windows and rename it Peek. After selecting a file on Explorer, simply tap the Shift + Space bar to preview the content. Like the macOS version, you can preview PDFs, Excels, Words, images, videos, audio, and pretty much anything.
@@ -75,8 +83,9 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: Frequently Asked Questions
 
 #### 1\. Which digital file formats are compatible with QuickLook?
@@ -92,8 +101,9 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 This guidepost is another testament that your PC has massive hidden abilities. With QuickLook for Windows, you can preview any document, image, or media file with a single click. And don’t forget to install the QuickLook plugins from GitHub to unlock the program’s full potential.
@@ -126,4 +136,24 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-buyers-path-to-a-top-360-camera-purchase-guide/"><u>[New] Buyer's Path to a Top 360 Camera Purchase Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-making-sense-of-typical-podcaster-profits/"><u>[New] Making Sense of Typical Podcaster Profits</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-master-the-art-of-social-media-analytics-understanding-ig-data-for-2024/"><u>[New] Master the Art of Social Media Analytics Understanding IG Data for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-streamlined-solution-for-gifs-to-videos-top-5-online-services/"><u>[New] Streamlined Solution for GIFs to Videos Top 5 Online Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-aural-alignments-pairing-sounds-and-visuals/"><u>[Updated] 2024 Approved Aural Alignments Pairing Sounds & Visuals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-enhance-pics-with-frames-top-lists-for-web-and-app-use/"><u>[Updated] 2024 Approved Enhance Pics with Frames - Top Lists for Web and App Use</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-melodic-medium-finding-the-right-film-score/"><u>[Updated] 2024 Approved Melodic Medium Finding the Right Film Score</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-sculpt-visual-jokes-adobe-memes-guide/"><u>[Updated] In 2024, Sculpt Visual Jokes Adobe Memes Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-essential-checklist-for-selecting-the-best-hdr-cameras-for-2024/"><u>[Updated] The Essential Checklist for Selecting the Best HDR Cameras for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/boost-your-win-11-typing-efficiency-8-input-lag-remedies/"><u>Boost Your Win 11 Typing Efficiency: 8 Input Lag Remedies</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/disabling-access-entry-error-in-microsoft-os/"><u>Disabling 'Access Entry' Error in Microsoft OS</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-insights-into-lg-channels-a-comprehensive-guide/"><u>Essential Insights Into LG Channels: A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/expert-guide-to-selective-focus-imaging/"><u>Expert Guide to Selective Focus Imaging</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/from-rgb-to-srgb-understanding-color-transition-for-2024/"><u>From Rgb to Srgb Understanding Color Transition for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-deskjet-2600-download-updated-drivers-for-windows-7-8-and-10-users/"><u>HP DeskJet 2600: Download Updated Drivers for Windows 7, 8 & 10 Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/sers-mastering-mp3-conversion-from-youtube-for-2024/"><u>Mac Users Mastering MP3 Conversion From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/bes-updated-strategy-for-content-creators/"><u>YouTube's Updated Strategy for Content Creators</u></a></li>
+</ul></div>
 

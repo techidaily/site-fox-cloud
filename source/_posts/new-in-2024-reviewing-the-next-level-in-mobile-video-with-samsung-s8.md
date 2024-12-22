@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Reviewing the Next Level in Mobile Video with Samsung S8"
-date: 2024-08-23T01:45:56.730Z
-updated: 2024-08-24T01:45:56.730Z
+date: 2024-12-17T17:11:12.206Z
+updated: 2024-12-21T01:57:35.569Z
 tags: 
   - screen-recording
   - ai video
@@ -48,6 +48,10 @@ The Samsung galaxy S8 offers an incredible level of performance from one of the 
 * One of the most expensive phones on the market
 * The Bixby feature is largely pointless.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Section 1: Samsung Galaxy S8 Hardware Design
 
 #### 1.Samsung Galaxy S8 Design
@@ -86,9 +90,6 @@ To make connectivity even better the S8 is equipped with Bluetooth five which im
 
 The phone comes with a very durable design that is created to be waterproof. With the full certification on waterproofing this is maybe not a device that you would use for diving but it can stand up to light rain, splashing and other situations. The majority of the device is made out of an aluminum instruction with the front of the device being constructed out of Gorilla Glass 5\. The weight and the durability of this device is not something to question as it can deliver the best in performance throughout a standard day.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ## Section 2: Samsung Galaxy S8 Features and Performance
 
 #### 1. Samsung Galaxy S8 Camera Performance
@@ -106,8 +107,9 @@ However, if you are looking for a more advanced video editing tool to make a vid
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 2. Samsung Galaxy S8 Audio Performance
 
 The inclusion of the newest Bluetooth features allows the device to easily connect with a variety of others to deliver unprecedented sound. It actually possible the connected to different Bluetooth speakers at once using the S8 to produce a stereo sound equivalent. The onboard speaker is relatively strong but it is these Bluetooth features that really improved the sound on the phone and the type of sounds that you can get watching videos, streaming content and more.
@@ -126,40 +128,40 @@ It can handle plenty of demanding applications but it's very important to use th
 
 ![samsung-s8-security-performance](https://images.wondershare.com/filmora/article-images/samsung-s8-security-performance.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The S8 has some of the most advanced biometric security available on any smart phone, it has facial recognition, iris recognition as well as a fingerprint scanner all on board. One of the only problems that comes with using these biometrics is that you can end up with a device that consistently needs your permission to unlock and access various applications. Setting up the features is relatively easy and can be done at the start during Samsung set up. Most people end up turning off the iris recognition, facial recognition and opt for fingerprint scanning only as of the much more discreet way to unlock the phone.
 
 #### 5. Samsung Galaxy S8 Compatibility
 
 ![samsung-s8-vr-compatible](https://images.wondershare.com/filmora/article-images/samsung-s8-vr-compatible.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Samsung S8 is one of the best new devices for using with the Samsung deX accessory as well as the gear 360\. For the future of Samsung VR, the screen without a bevel as well as the HD format that this device can deliver offers a considerable advantage in the market. This is a device that has been well optimized for the future of VR.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Section 3: Samsung Galaxy S8 Onboard Software
 
 The device comes with a touchwiz UI which is very similar to other Samsung application experiences. The menus are all extremely easy-to-use and the home button and menu buttons on the back really assist with navigation throughout the phone.
 
 ![samsung-s8-bixby](https://images.wondershare.com/filmora/article-images/samsung-s8-bixby.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bixby is one of the latest highlighted features which is somewhat similar to the brand voice for Samsung. Bixby is an assistant at similar to the Google Assistant, Siri and more. Currently Bixby really just delivers a number of different alerts and reminders. The one feature that is fairly interested is the Bixby vision which can examine items in a store and help you comparison shop as well as the ongoing reminders and calendar updates. The current version of Bixby is pretty light but Samsung hopes to eventually include actions like the ability for Bixby to handle uploading all of your photos to social media or even sending out texts and alerts. Currently however Bixby is a fairly light app that you won’t likely use often.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 This is currently one of the best android smart phones available on the market. Although it commands one of the highest price tags it's also one of the most beautiful from a design perspective. If you are a fan of Samsung phones and you're looking for an upgrade or you are looking for one of the best phones that you could switch over to from an iphone, this could be just the phone you are looking for.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -183,4 +185,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-dive-into-iphone-photo-magic-with-surface-mirror-tips/"><u>[New] Dive Into iPhone Photo Magic with Surface Mirror Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-for-newcomers-discover-these-essential-gopro-upgrades-for-2024/"><u>[New] For Newcomers, Discover These Essential GoPro Upgrades for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-mobile-apps-redefining-vocal-identity-2-cookie-jar/"><u>[New] Mobile Apps Redefining Vocal Identity (2 Cookie Jar</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-sharpen-your-shots-easy-cropping-methods-with-iphone-for-2024/"><u>[New] Sharpen Your Shots Easy Cropping Methods with iPhone for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-discover-hidden-gems-where-to-find-instagram-ringtones-that-shine/"><u>[Updated] 2024 Approved Discover Hidden Gems Where to Find Instagram Ringtones That Shine</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-explore-premium-4k-converters-for-flawless-recordings/"><u>[Updated] Explore Premium 4K Converters for Flawless Recordings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-10-basic-blocks-house-concepts-for-mc-players/"><u>[Updated] In 2024, 10 Basic Blocks House Concepts for MC Players</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-honorable-5-quicktime-frame-recorder/"><u>[Updated] In 2024, Honorable 5 Quicktime Frame Recorder</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-music-merging-techniques-for-premiere-pro-editors-for-2024/"><u>[Updated] Music Merging Techniques for Premiere Pro Editors for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/all-purpose-capture-software-azs-app-critiques-for-2024/"><u>All-Purpose Capture Software - AZ's App Critiques for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/comprehensive-guide-eliminating-stop-code-for-ndis-errors-on-pcs/"><u>Comprehensive Guide: Eliminating 'Stop Code' For NDIS Errors on PCs</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-tutorial-to-decompress-rar-on-mac-os-x-platforms/"><u>Comprehensive Tutorial to Decompress RAR on Mac OS X Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-how-to-design-an-eye-catching-logo-for-podcasts/"><u>In 2024, How to Design an Eye-Catching Logo for Podcasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-jungle-beat-parrots/"><u>In 2024, Jungle Beat Parrots</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-mpow-bluetooth-driver-software-updates-for-windows-11-8-and-7-free-download/"><u>Latest MPOW Bluetooth Driver Software Updates for Windows 11, 8 & 7: Free Download</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-6-strategies-for-selecting-an-ideal-selfie-stick/"><u>Top 6 Strategies for Selecting an Ideal Selfie Stick</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-samsung-galaxy-m34-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Samsung Galaxy M34 5G Device</u></a></li>
+</ul></div>
 

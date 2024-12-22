@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Digital Typography in After Effects  A Guide\""
-date: 2024-12-05T19:44:10.535Z
-updated: 2024-12-12T18:30:51.616Z
+date: 2024-12-19T23:55:34.396Z
+updated: 2024-12-21T08:03:31.721Z
 tags: 
   - screen-recording
   - ai video
@@ -42,7 +42,7 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 ![browse fonts adobe](https://images.wondershare.com/filmora/article-images/2022/07/browse-fonts-adobe.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * These fonts are classified according to several attributes such as weight, height, and contrast and are created by certified typographers. Once you have found any font that you like, click on the "Activate" button and the theme will be installed on your Adobe After Effects.
@@ -52,15 +52,15 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
 
@@ -75,7 +75,7 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 * After you are done, save the project and your text effects will be added to the final video successfully.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
@@ -112,7 +112,7 @@ These features also include adding texts and changing the fonts of those texts o
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
@@ -127,7 +127,7 @@ These features also include adding texts and changing the fonts of those texts o
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -158,21 +158,16 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-essential-mixer-streaming-tips-for-mac-users/"><u>[New] 2024 Approved Essential Mixer Streaming Tips for Mac Users</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-high-end-uavs-purchase-without-delay/"><u>[New] In 2024, High-End UAVs Purchase Without Delay</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-animation-in-instagram-stories-a-step-by-step-guide/"><u>[New] In 2024, Mastering Animation in Instagram Stories A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-revealed-top-10-powerful-fcp-plugin-tools/"><u>[New] Revealed Top 10 Powerful FCP Plugin Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-unlock-the-full-potential-of-pixiz-in-video-making/"><u>[New] Unlock the Full Potential of Pixiz in Video Making</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beyond-simplicity-exploring-the-intricacies-of-youtubes-view-count-algorithm/"><u>[Updated] 2024 Approved Beyond Simplicity Exploring the Intricacies of YouTube’s View Count Algorithm</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-7-essential-metaverse-tech-for-your-arsenal/"><u>[Updated] 2024 Approved Top 7 Essential Metaverse Tech for Your Arsenal</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-meme-crafters-playbook-building-a-library-of-laughter-gifs/"><u>[Updated] The Meme Crafter's Playbook Building a Library of Laughter (GIFs)</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-elite-circle-the-most-visited-sites-on-the-internet-today/"><u>Discover the Elite Circle: The Most Visited Sites on the Internet Today</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/elite-listing-top-10-windows-11-cam-capture-devices-for-2024/"><u>Elite Listing Top 10 Windows 11 Cam Capture Devices for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/harmonizing-with-inshot-music-integration-guide/"><u>Harmonizing with InShot Music Integration Guide</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oppo-a56s-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Oppo A56s 5G Phones with/without a PC</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-motorola-moto-g84-5g-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Motorola Moto G84 5G Fingerprint Lock</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-motorola-moto-g-stylus-5g-2023-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Motorola Moto G Stylus 5G (2023)? Try These Fixes</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-nokia-130-music-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Nokia 130 Music? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-wallet-friendly-high-definition-spherical-video-capture/"><u>[New] 2024 Approved Wallet-Friendly High-Definition Spherical Video Capture</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-leaders-list-of-gps-drones-with-precision-tracking/"><u>[New] In 2024, Leader's List of GPS Drones with Precision Tracking</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-videology-app-analysis-and-ratings/"><u>[New] Videology App Analysis & Ratings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-cutting-edge-top-20-zero-copyright-pubg-screenshots/"><u>[Updated] In 2024, Cutting-Edge Top 20 Zero-Copyright PUBG Screenshots</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-tutorial-guide-to-fade-out-music-in-premiere-pro/"><u>[Updated] In 2024, Tutorial Guide To Fade Out Music In Premiere Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/gradual-amplitude-reduction-guide/"><u>Gradual Amplitude Reduction Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/how-to-mute-google-meet-for-2024/"><u>How to Mute Google Meet for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-on-iphone-xs-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data on iPhone XS? | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/maximizing-gaming-and-productivity-which-upgrade-comes-first-cpu-or-gpu/"><u>Maximizing Gaming & Productivity: Which Upgrade Comes First, CPu or GPU?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/maximizing-win11-performance-boosters-revealed-for-2024/"><u>Maximizing Win11 Performance Boosters Revealed for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/timing-and-frequency/"><u>Timing and Frequency</u></a></li>
 </ul></div>
 

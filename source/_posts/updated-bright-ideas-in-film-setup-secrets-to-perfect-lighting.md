@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bright Ideas in Film Setup  Secrets to Perfect Lighting\""
-date: 2024-12-07T21:31:54.993Z
-updated: 2024-12-12T17:31:48.092Z
+date: 2024-12-17T17:08:25.498Z
+updated: 2024-12-20T18:31:49.366Z
 tags: 
   - screen-recording
   - ai video
@@ -26,6 +26,10 @@ Therefore, this article will give you a complete guide on how to set up your lig
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. How-to Guide
 
@@ -53,19 +57,11 @@ For this tutorial, we will use the Three-Point Lighting technique:
 
 ![set the key light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The key light is the main light that illuminates the subject. You can place it in the front and slightly to one side. For this key light, we use an LED called Aputure 300X as an example, and with a soft box called light Dome 2.
 
 ##### Step2 Set the Fill Light
 
 ![set the fill light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The fill light is used to fill in the shadows created by the key light. It is usually placed on the opposite side of the subject. For the fill light, we use an Aputure 300D with a fresnel lens attachment.
 
@@ -74,7 +70,7 @@ The fill light is used to fill in the shadows created by the key light. It is us
 ![set the backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 For this tutorial, we use Aperture 120d as the backlight and lift it up into the air with a c-stand so it can light the subject from above. It helps to separate the talent from the background and give the audience a full view of the set
@@ -85,13 +81,13 @@ Practical lights appear on the camera to add some visual flair. It can be any li
 
 ![use practical lights](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, we also have a LED ring light that shines toward the camera. The light adds even more light to the frame and gives a slight backlight to the subject.
 
 ![led ring light](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Finally, we have a few other small LED lights like this unicorn to put in the background. This lighting helps us to get even more visual flair out of our shots.
 
@@ -107,6 +103,10 @@ After setting up all the lighting above, you can take a look at the comparison b
 
 ![using key light + fill + backlight](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **_3) Pro Tips: The light setting_**
 
 We usually set the lights around 50% brightness and a color temperature of 5600K.
@@ -114,7 +114,7 @@ We usually set the lights around 50% brightness and a color temperature of 5600K
 ![the light setting](https://images.wondershare.com/filmora/article-images/2022/12/make-videos-stand-out-9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Summary
@@ -151,18 +151,19 @@ Hopefully, you learned something about lighting by taking a look at our setup. I
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-device-transcending-entry-editor-leader-of-2023-for-2024/"><u>[New] Device-Transcending Entry Editor Leader of 2023 for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-unlocking-tiktok-perfecting-siri-voice-interaction-for-2024/"><u>[New] Unlocking TikTok Perfecting Siri Voice Interaction for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-conserve-space-not-time-youtube-video-length-adjustment/"><u>[Updated] 2024 Approved Conserve Space, Not Time YouTube Video Length Adjustment</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-bandicam-revisited-a-deep-dive-into-screen-recording-for-2024/"><u>[Updated] Bandicam Revisited A Deep Dive Into Screen Recording for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-creative-video-text-top-10-edition-for-2024/"><u>[Updated] Creative Video Text Top 10 Edition for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-essentials-of-film-color-enhancement/"><u>[Updated] Essentials of Film Color Enhancement</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-personalize-your-mobile-experience-with-inshot/"><u>[Updated] In 2024, Personalize Your Mobile Experience with InShot</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/best-12-sports-streaming-sites-free-and-paid/"><u>Best 12 Sports Streaming Sites (Free & Paid)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/level-up-your-auditory-game-in-valorant-with-this-must-try-free-tool-for-2024/"><u>Level Up Your Auditory Game in Valorant with This Must-Try, Free Tool for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Honor Play 40C? | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/top-10-telegram-spy-tools-on-apple-iphone-13-for-parents-drfone-by-drfone-virtual-ios/"><u>Top 10 Telegram Spy Tools On Apple iPhone 13 for Parents | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/unlocking-doom-eternal-overcoming-launch-issues-with-easy-fixes/"><u>Unlocking DOOM Eternal: Overcoming Launch Issues with Easy Fixes</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/what-is-rcs-messaging/"><u>What Is RCS Messaging?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-discover-the-art-of-sound-modification-in-free-fire-expert-tips-and-tricks-no-charge/"><u>[New] 2024 Approved Discover the Art of Sound Modification in Free Fire Expert Tips and Tricks (No Charge!)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfecting-online-photos-the-cropping-guide/"><u>[New] 2024 Approved Perfecting Online Photos The Cropping Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-streamlined-process-step-by-step-telegram-web-guide/"><u>[New] 2024 Approved Streamlined Process Step-by-Step Telegram Web Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-how-to-add-titlestext-to-video-on-microsoft-photos-in-windows-11/"><u>[New] In 2024, How to Add Titles/Text to Video on Microsoft Photos in Windows 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-photography-gurus-guide-to-date-stamping/"><u>[New] In 2024, The Photography Guru's Guide to Date Stamping</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-inside-the-magic-box-how-does-vr-function-in-2024/"><u>[New] Inside the Magic Box How Does VR Function, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-premier-venues-fueling-youtube-visibility/"><u>[Updated] In 2024, Premier Venues Fueling YouTube Visibility</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-revolutionizing-education-through-vr-for-2024/"><u>[Updated] Revolutionizing Education Through VR for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-keep-it-steady-photo-and-video-clarity/"><u>2024 Approved Keep It Steady Photo & Video Clarity</u></a></li>
+<li><a href="https://fox-access.techidaily.com/easy-access-to-12-exclusive-livestreams-daily/"><u>Easy Access to 12 Exclusive Livestreams Daily</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-honor-magic-5-pro-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Honor Magic 5 Pro Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-assessment-of-various-camera-types-for-videos/"><u>In 2024, Assessment of Various Camera Types for Videos</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-cut-slice-and-dice-mastering-video-splitting-in-windows-live-movie-maker/"><u>New Cut, Slice, and Dice Mastering Video Splitting in Windows Live Movie Maker</u></a></li>
+<li><a href="https://techtrends.techidaily.com/speculations-surrounding-the-new-pixel-fold-2-price-estimates-expected-arrival-date-and-comprehensive-tech-details/"><u>Speculations Surrounding the New Pixel Fold 2: Price Estimates, Expected Arrival Date & Comprehensive Tech Details</u></a></li>
 </ul></div>
 
