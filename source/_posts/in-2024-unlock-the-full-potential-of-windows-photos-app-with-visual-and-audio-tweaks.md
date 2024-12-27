@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unlock the Full Potential of Windows Photos App with Visual & Audio Tweaks"
-date: 2024-08-15T18:15:05.705Z
-updated: 2024-08-16T18:15:05.705Z
+date: 2024-12-22T18:41:54.144Z
+updated: 2024-12-27T18:09:28.208Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -45,17 +49,22 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5**: Just select one you like. Preview it and then click Done.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -67,45 +76,26 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 **Step 3**: Now, hit the ‘Create’ button from the top-right followed by dragging the video to Photos timeline. Later, hit on ‘Auio’ at top right.
 
 ![ add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-music-to-video-photos-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Pick ‘Your music’ so that you can set up a custom track. There are over 20 music you can choose. You can also sync music to video's beat. You can visit ‘Recommended’ section for adding default ones.
 
 ![add music on windows 10 photos app](https://images.wondershare.com/filmora/article-images/choose-music-to-video-photos-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 5**: Hit the ‘Done’ button.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -130,4 +120,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-craft-perfection-transforming-your-vhs-graphics-online/"><u>[New] 2024 Approved Craft Perfection Transforming Your VHS Graphics Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-farewell-frameworks-free-to-subscription-options-here/"><u>[New] 2024 Approved Farewell Frameworks Free to Subscription Options Here</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-key-features-of-mozillas-innovative-popup-window/"><u>[New] 2024 Approved Key Features of Mozilla's Innovative Popup Window</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapchats-secret-crafting-boomerang-masterpieces/"><u>[New] 2024 Approved SnapChat's Secret Crafting Boomerang Masterpieces</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-viewers-verdict-on-scopes/"><u>[New] 2024 Approved Viewer's Verdict on Scopes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-samsungs-rival-the-leading-cameras-to-match-your-gear-360-needs-for-2024/"><u>[New] Samsung’s Rival The Leading Cameras to Match Your Gear 360 Needs for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-smartest-3d-apps-available-on-android/"><u>[New] Smartest 3D Apps Available on Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-6-hdmi-21-tvs-spec-by-spec-comparison-guide-for-2024/"><u>[New] Top 6 HDMI 2.1 TVs Spec-by-Spec Comparison Guide for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unlimited-verbal-input-processing-for-free-for-2024/"><u>[New] Unlimited Verbal Input Processing for Free for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-clear-up-your-photos-best-10-online-image-enhancers-revealed/"><u>[Updated] Clear Up Your Photos Best 10 Online Image Enhancers Revealed</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-grading-and-correcting-with-ease-top-11-video-editing-tips/"><u>[Updated] Grading and Correcting with Ease Top 11 Video Editing Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-essential-guide-to-speedy-windows-inspecting/"><u>[Updated] In 2024, The Essential Guide to Speedy Windows Inspecting</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/dvditunes/"><u>DVD動画をスムーズにiTunesへ移行するためのシンプルワークフロー</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-correctly-update-or-repair-hp-monitor-drivers-for-windows-7810-users/"><u>How to Correctly Update or Repair HP Monitor Drivers for Windows 7/8/10 Users</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-realme-note-50-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/secure-your-discounted-apple-watch-series-10-now-exclusive-pre-order-offer-starting-at-just-99-with-best-buy-detailed-guide-zdnet/"><u>Secure Your Discounted Apple Watch Series 10 Now: Exclusive Pre-Order Offer Starting At Just $99 with Best Buy – Detailed Guide | ZDNet</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/solo-sound-setback-fix-it-now-for-2024/"><u>Solo Sound Setback Fix It Now for 2024</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/ultimate-guide-to-fixing-bitlocker-lockouts-on-various-windows-versions-including-windows-10-8-7-and-11/"><u>Ultimate Guide to Fixing BitLocker Lockouts on Various Windows Versions Including Windows 10, 8, 7 & 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/unlocking-apples-audio-world-a-download-guide-for-ios-users/"><u>Unlocking Apple's Audio World A Download Guide for iOS Users</u></a></li>
+</ul></div>
 

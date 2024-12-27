@@ -1,7 +1,7 @@
 ---
 title: "\"Video to Image  Easily Separate and Save Pics From Movies (Windows 10) for 2024\""
-date: 2024-12-19T03:15:36.117Z
-updated: 2024-12-21T16:04:57.597Z
+date: 2024-12-20T16:39:12.756Z
+updated: 2024-12-27T18:45:53.220Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to save photo from Windows 10 Photos app
@@ -56,6 +56,10 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -64,10 +68,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 * Hit the ‘slider’ for manually adjusting the frames > tap ‘Save a photo’ for a desired frame you need to save.
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
@@ -78,7 +78,7 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -88,10 +88,6 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -105,11 +101,15 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -143,19 +143,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-leveraging-azures-voice-recognition-for-advanced-solutions-for-2024/"><u>[New] Leveraging Azure's Voice Recognition for Advanced Solutions for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-unlocking-the-power-of-music-in-engaging-video-content-for-2024/"><u>[New] Unlocking the Power of Music in Engaging Video Content for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-lightroom-guide-creating-and-merging-stunning-hdr-images/"><u>[Updated] In 2024, Lightroom Guide Creating & Merging Stunning HDR Images</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-tales-on-the-silver-screen-writing-for-cinema-for-2024/"><u>[Updated] Tales on the Silver Screen Writing for Cinema for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/apex-productions-audit-studio-25-breakdown-2023-for-2024/"><u>Apex Productions Audit Studio 25 Breakdown, 2023 for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/command-attention-on-instagram-nine-paths-to-social-media-glory-for-2024/"><u>Command Attention on Instagram Nine Paths to Social Media Glory for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/expanding-your-conversation-realm-with-messenger/"><u>Expanding Your Conversation Realm with Messenger</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-all-you-need-to-know-about-downloading-wm6/"><u>In 2024, All You Need to Know About Downloading WM6</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-essential-iphoneandroid-apps-for-aspiring-creators/"><u>In 2024, Essential iPhone/Android Apps for Aspiring Creators</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-vivo-y100a-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Vivo Y100A</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/phantom-pitches-is-this-magical-talker-an-illusion-or-reality-explore-more-options/"><u>Phantom Pitches Is This Magical Talker an Illusion or Reality? Explore More Options</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/transformative-tips-for-engaging-with-comics-on-win11/"><u>Transformative Tips for Engaging with Comics on Win11</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-a-frozen-xbox-app-in-windows-10/"><u>Unlocking a Frozen Xbox App in Windows 10</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-a-beginners-manual-to-windows-8-film-creation/"><u>[New] A Beginner's Manual to Windows 8 Film Creation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-essential-zoom-techniques-for-chromebook-proficiency-for-2024/"><u>[New] Essential Zoom Techniques for Chromebook Proficiency for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-stepwise-blend-integrating-obs-and-zoom/"><u>[New] In 2024, Stepwise Blend Integrating OBS and Zoom</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-fine-tuning-release-timings-for-podcasts/"><u>[Updated] Fine-Tuning Release Timings for Podcasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-expert-advice-on-iphone-ringtones-and-customization/"><u>[Updated] In 2024, Expert Advice on iPhone Ringtones & Customization</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-transform-ordinary-moments-into-extraordinary-art-creating-slow-motion-video-from-still-images-online-for-2024/"><u>[Updated] Transform Ordinary Moments Into Extraordinary Art Creating Slow Motion Video From Still Images Online for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavi-mpeg-4-avi/"><u>利用 Movavi: 在線免費 MPEG-4 拓展成AVI格式</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/best-solutions-for-itel-network-unlock-by-drfone-android/"><u>Best Solutions for Itel Network Unlock</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-help.techidaily.com/1726030539233-m1vmp4/"><u>M1VファイルからMP4への変換ガイド</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-xiaomi-redmi-note-12t-pro-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Xiaomi Redmi Note 12T Pro Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

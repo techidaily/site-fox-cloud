@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Key Features of Mozilla's Innovative Popup Window\""
-date: 2024-12-18T01:49:41.001Z
-updated: 2024-12-21T21:17:11.783Z
+date: 2024-12-21T16:09:50.597Z
+updated: 2024-12-27T17:53:37.008Z
 tags: 
   - screen-recording
   - ai video
@@ -28,10 +28,6 @@ This feature is an important tool to help you multitask by dragging videos from 
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. How Picture-in-Picture Mode Works
 
@@ -63,14 +59,14 @@ Here's how to activate picture-in-picture video control in Firefox**:**
 
 ![choose the options/settings]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Scroll down in the General mode to locate the **Browsing** settings option.
 2. Here, you will see a list of browsing settings; click to select the '**Enable picture in picture video controls'**, and check the box.
 
 ![a list of browsing settings]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Following the above procedure, you may now see the Firefox Picture-in-Picture symbol in the video streaming player. Whenever you visit a streaming site, a symbol for pip mode appears as an overlay on the video screen.
 
@@ -86,10 +82,14 @@ You can load only a single video using the above guideline. Suppose you want to 
 
 ![the new video above the first]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 By following these steps, videos appear on the screen at the same time. For all tabs containing open videos, the main Firefox window shows a "play" symbol. Even if you dismiss Firefox, numerous videos will continue to play in other programs or on your desktop.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3\. How to Disable the Picture-in-Picture Mode
@@ -99,7 +99,7 @@ Sometimes, the PiP mode can disturb necessary research or task that needs your f
 ![click the following icon]( https://images.wondershare.com/filmora/article-images/2022/07/the-firefox-picture-in-picture-mode-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4\. Other tips about Picture-in-Picture Mode in Firefox
@@ -107,6 +107,10 @@ Sometimes, the PiP mode can disturb necessary research or task that needs your f
 ### 4.1 Picture-in-Picture extension in Firefox
 
 Another mode of having your picture-in-picture mode on Firefox is using the available add-on features. You can access several add-on extensions available on Firefox by tapping the **Menu** button. Locate the [add-on menu item](https://addons.mozilla.org/en-US/firefox/) and click it. Once it loads, you can use the search bar at the top right corner to select your preferred picture-in-picture add-on.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4.2 Keyboard shortcuts about Picture-in-Picture in Firefox
 
@@ -121,16 +125,12 @@ It is also possible to enable and disable the picture-in-picture mode using keyb
 After opening the tab, drag the application up, then scroll down to the bottom right corner to select the desk pin. Finally, click on the tab opened with the pin cursor, and it will be on top always.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why is picture-in-picture in Firefox not working?
 
 On Firefox, this mode is always on by default, but when the picture-in-picture feature is not working; follow the step-by-step guideline explained above to enable it manually. Once you perform these procedures using the keyboard shortcut or settings mode, it will start working.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How do I resize the picture-in-picture window in Firefox?
 
@@ -170,17 +170,16 @@ Picture-in-Picture is a nice feature that helps you increase productivity while 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-best-in-class-top-drone-gimbals-compared/"><u>[New] 2024 Approved Best in Class Top Drone Gimbals Compared</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-from-online-video-beats-to-your-phones-ringtones-a-simple-guide/"><u>[New] 2024 Approved From Online Video Beats to Your Phone's Ringtones A Simple Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dissecting-the-capabilities-of-magixs-photo-manager/"><u>[New] In 2024, Dissecting the Capabilities of MAGIX's Photo Manager</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unveiling-natures-digital-canvas-a-novices-starter-on-green-screen-technology/"><u>[New] In 2024, Unveiling Nature's Digital Canvas A Novice's Starter on Green Screen Technology</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-navigating-through-motion-perception-systems/"><u>[Updated] 2024 Approved Navigating Through Motion Perception Systems</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-achieve-the-perfect-selfie-with-top-8-gear/"><u>[Updated] In 2024, Achieve the Perfect Selfie with Top 8 Gear</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-avoiding-the-blank-thumbnail-scenario-in-shorts/"><u>[Updated] In 2024, Avoiding the Blank Thumbnail Scenario in Shorts</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/a-top-contender-in-versatility-the-highly-praised-laptop-that-impresses-with-its-robust-hardware-techspot/"><u>A Top Contender in Versatility: The Highly Praised Laptop That Impresses With Its Robust Hardware | TechSpot</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/convertir-audio-desde-mp4-a-wav-por-internet-gratuito-e-inmediato-guia-paso-a-paso/"><u>Convertir Audio Desde MP4 a WAV Por Internet Gratuito E Inmediato: Guía Paso a Paso</u></a></li>
-<li><a href="https://fox-that.techidaily.com/essential-fixes-navigating-through-15-widespread-iphone-problems-and-their-resolutions/"><u>Essential Fixes: Navigating Through 15 Widespread iPhone Problems and Their Resolutions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/pro-level-streaming-tech-innovations-you-need-for-2024/"><u>Pro-Level Streaming Tech Innovations You Need for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-17-websites-offering-complimentary-downloads-of-classic-and-contemporary-literature/"><u>Top 17 Websites Offering Complimentary Downloads of Classic & Contemporary Literature</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-avoid-delays-swift-time-lapse-recording-on-iphone/"><u>[New] Avoid Delays Swift Time-Lapse Recording on iPhone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-boosting-viewer-interest-with-optimal-video-thumbnail-sizes/"><u>[New] In 2024, Boosting Viewer Interest with Optimal Video Thumbnail Sizes</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pictorial-synthesis-pro-online-blender-deluxe/"><u>[New] In 2024, Pictorial Synthesis Pro Online Blender Deluxe</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ive-streamer-audience-metrics/"><u>[New] Live Streamer Audience Metrics</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-djis-game-changing-innovation-mavic-air-and-spark-face-off/"><u>[Updated] DJI’s Game-Changing Innovation Mavic Air and Spark Face Off</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-xiaomi-redmi-12-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Xiaomi Redmi 12 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/flawless-blend-incorporating-linktree-into-your-tiktok-about-section-for-2024/"><u>Flawless Blend Incorporating Linktree Into Your TikTok About Section for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-visual-tech-top-7-screen-options-for-image-experts/"><u>In 2024, Innovative Visual Tech - Top 7 Screen Options for Image Experts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/personalizing-client-workouts-using-chatgpt-insights-for-gym-trainers/"><u>Personalizing Client Workouts Using ChatGPT: Insights for Gym Trainers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/top-5-multifaceted-antivirus-scanners-expert-reviews-and-comparisons/"><u>Top 5 Multifaceted Antivirus Scanners: Expert Reviews and Comparisons</u></a></li>
 </ul></div>
 

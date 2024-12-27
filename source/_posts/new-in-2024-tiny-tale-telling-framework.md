@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Tiny Tale Telling Framework"
-date: 2024-12-18T01:45:49.272Z
-updated: 2024-12-21T17:20:51.597Z
+date: 2024-12-22T16:29:41.437Z
+updated: 2024-12-27T18:50:30.761Z
 tags: 
   - screen-recording
   - ai video
@@ -27,25 +27,21 @@ Today, we look at seven important aspects of a great short film script and how y
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. 7 tips for improving short film scripts
 
 There's never been a better time to learn the craft of writing short film scripts. Interest and access to creating and viewing short films and series episodes have exploded worldwide, both on television and on the web. A great short film can also open doors for you into the film industry, as Barry Jenkins discovered with his great screenplay for the short film My Josephine, which I wrote in my screenwriting class at Florida State University.
 
 But writing a successful short script is not easy. It requires the craft and concentration of a medieval artist carving scenes into walnut. So here are seven tips for creating a short script.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Storyline
 
 This is always, always, the number one problem for my screenwriting students. They come up with big story ideas, often feature screenplay ideas, but quickly find that their idea doesn't fit or work in short form. The result is what I call "narrative cramming." The story can't breathe. So, you need an idea that is small, specific, and significant to your main character.
 
 **_My Josephine_** was inspired by "an image of two people's legs hanging over a table in my head," according to Barry Jenkins. I saw them, young and intimate, working the night shift in a 24-hour laundry." Even with this small, simple, and significant image as a starting point for a short script, Barry struggled to find a story in six pages that he could tell well. He attempted to include the murder in the Laundromat at one point, which resulted in, yes, narrative cramming. Barry rewrote the script a year later and "made it as simple as I could as a writer," he told me. I was so moved by his transcript that I only wrote three words in the script – “Beautiful and gentle”. Just like his beautiful film.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Characterization
 
@@ -80,7 +76,7 @@ Scenes are the **"church of drama"**, as William Gibson also brilliantly says. S
 I got it, really got it, as a young playwright when the Actors Theater of Louisville commissioned me to write a ten-minute play. And I did—in six scenes that I hit late and left early, each with a small but significant moment of change that moved the story into the next scene. “A tender and effortless glissando that gracefully stretches from moment to wistful moment,” as The Los Angeles Times put it in my all-time favorite review.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. Ending
@@ -99,19 +95,11 @@ Have you ever stored various videos and photos on a memory card or on a computer
 
 Below, we will show you have to use this easy movie maker to create a video with Filmora in clicks.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Import your files and arrange the order
 
 Open Wondershare Filmora, click the "Import" button, and use the navigation import panel to load media files. You can also directly drag and drop your media files into the program. Then, trim or cut the video clips in the timeline with options in the Toolbox
 
 ![import files and arrange order](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Making stunning short films with various Effects & Filters
 
@@ -126,7 +114,7 @@ To add text to the video, click the "Text" button, choose a text type, and drag 
 * More features to discover can be found by clicking [**Extraordinary Features of Filmora**](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3.Save the video in the format of your choice
@@ -145,6 +133,10 @@ Don't be afraid to start writing your next (or first) short film! It might seem 
 
 </article
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Characterization
 
 Writing compelling short scripts requires what Thornton Wilder called "shortcuts to the imagination." And knowing what your main character wants in your story is the most important shortcut to understanding and discovering who your main character is. So, give your main character a desire or yearning for something that matters deeply to her. Then let your story flow from your character's efforts to achieve that wish. The best stories, short or long, are about the human heart.
@@ -154,10 +146,6 @@ Writing compelling short scripts requires what Thornton Wilder called "shortcuts
 It's also a useful way to think of the script as an energy system, as William Gibson brilliantly says in Shakespeare's play. An energy system begins with an Inciting Incident - a significant event/discovery that unleashes the energy system - and ends with a Climax - the moment when the story's outcome is known, and the energy system ends. Given the limited number of pages available in your short script, it's essential that your inciting incident appears on the first page.
 
 ![an independent story](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Conflict
 
@@ -169,15 +157,15 @@ Instead, screenwriters are tasked with presenting the conflict on screen through
 
 ![conflict](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Turning Point
 
 It's helpful to think of a screenplay as a pattern of significant human change that you create at specific moments of change—the discoveries and decisions your main character makes that change the character and move the story forward. What your character wants and is trying to achieve in your short is the surface action – the events we see on screen. And how these events forever change a character's inner landscape is deep action—your character arc.
 
 If you want to see a well-crafted surface and deep action/character arc in a fifteen-page script, read Chapter 17 _"Killer Kart"_ in the book Making Short Scripts That Connect 5e, and screen the movie on the book's website. It's no surprise that the film is the most screened film ever made at the FSU Film School.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Sublimation
 
@@ -194,7 +182,7 @@ The end of a script is often more important than the 90 pages that preceded it. 
 ![example script defining](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to edit your short film?
@@ -205,6 +193,10 @@ Have you ever stored various videos and photos on a memory card or on a computer
 
 Below, we will show you have to use this easy movie maker to create a video with Filmora in clicks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Import your files and arrange the order
 
 Open Wondershare Filmora, click the "Import" button, and use the navigation import panel to load media files. You can also directly drag and drop your media files into the program. Then, trim or cut the video clips in the timeline with options in the Toolbox
@@ -212,7 +204,11 @@ Open Wondershare Filmora, click the "Import" button, and use the navigation impo
 ![import files and arrange order](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Making stunning short films with various Effects & Filters
@@ -232,6 +228,10 @@ To add text to the video, click the "Text" button, choose a text type, and drag 
 When everything is done, hit the “Create” button, and you'll see several options: save it as a video file, convert it for viewing on your mobile phone or tablet, directly upload to your YouTube or Facebook account and burn to DVD. Choose an output method as you like and click “Create”. After a few seconds, a folder with the newly reformatted video will open automatically.
 
 ![save the video](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -265,18 +265,22 @@ Don't be afraid to start writing your next (or first) short film! It might seem 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-master-techniques-for-longevity-in-gopro-batteries-for-2024/"><u>[New] Master Techniques for Longevity in GoPro Batteries for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-integrate-and-play-srt-files-on-windowsmacos/"><u>[Updated] 2024 Approved Integrate and Play SRT Files on Windows/macOS</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-advanced-mobiles-for-crafting-perfect-dji-videos-for-2024/"><u>[Updated] Advanced Mobiles for Crafting Perfect DJi Videos for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-beginners-checklist-8-key-slip-ups-in-youtube-creation/"><u>[Updated] The Beginner's Checklist 8 Key Slip-Ups in YouTube Creation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-ultimate-high-performance-desktop-pcs/"><u>2024 Approved Ultimate High-Performance Desktop PCs</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-glimpse-at-the-best-curating-a-list-of-5-exceptional-book-tts-for-2024/"><u>A Glimpse at the Best Curating a List of 5 Exceptional Book TTs for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/fire-range-evolves-with-amds-zen-5-chips-preserving-fl1-design-upcoming-laptops-could-boost-performance-with-rtx-series-gpu-integration/"><u>Fire Range Evolves with AMD’s Zen 5 Chips Preserving FL1 Design; Upcoming Laptops Could Boost Performance with RTX-Series GPU Integration</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-infinix-note-30-vip-by-drfone-android/"><u>How to Bypass FRP from Infinix Note 30 VIP?</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/hps-ultimate-savings-event-discounts-up-to-71-on-monitors-and-laptops-exclusive-deals/"><u>HP's Ultimate Savings Event: Discounts up to 71% on Monitors and Laptops – Exclusive Deals !</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-harness-the-power-of-color-grading-a-guide-to-luts-in-photoshop-cs6/"><u>In 2024, Harness the Power of Color Grading A Guide to LUTs in Photoshop CS6</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/tranquil-tracks-easy-volume-diminution-via-garageband/"><u>Tranquil Tracks Easy Volume Diminution via Garageband</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-and-solving-the-0x80070490-error-on-your-windows-system/"><u>Troubleshooting and Solving the 0X80070490 Error on Your Windows System</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/winxvideo-ai-the-ultimate-solution-for-high-quality-screenshots-webcam-footage-and-audio-capture/"><u>Winxvideo AI: The Ultimate Solution for High-Quality Screenshots, Webcam Footage, and Audio Capture</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-decoding-the-mysteries-of-effective-youtube-keywords/"><u>[New] 2024 Approved Decoding the Mysteries of Effective YouTube Keywords</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-flip-shift-and-merge-videos-for-professional-android-results-for-2024/"><u>[New] Flip, Shift & Merge Videos for Professional Android Results for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-exclusive-list-best-4k-laptops-for-playing-games/"><u>[New] In 2024, Exclusive List Best 4K Laptops for Playing Games</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-innovative-volume-dissipation-methods-within-audacity-tools/"><u>[New] In 2024, Innovative Volume Dissipation Methods Within Audacity Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-phantom-replay-masterclass-for-2024/"><u>[New] Phantom Replay Masterclass for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-rapid-photo-reader-for-windows-users/"><u>[New] Rapid Photo Reader for Windows Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-tier-templates-for-zooid-introduction-for-2024/"><u>[New] Top-Tier Templates for Zooid Introduction for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unveiling-top-8-collaborative-video-collage-android-apps-freepremium/"><u>[Updated] 2024 Approved Unveiling Top 8 Collaborative Video Collage Android Apps (Free/Premium)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-10-free-youtube-thumbnail-downloaderssavers-online/"><u>[Updated] In 2024, 10 Free YouTube Thumbnail Downloaders/Savers Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-must-visit-websites-for-obtaining-desired-youtube-ringtones/"><u>[Updated] In 2024, Must-Visit Websites for Obtaining Desired YouTube Ringtones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-foundations-selecting-the-right-equipment/"><u>2024 Approved YouTube Foundations Selecting the Right Equipment</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-seamlessly-integrate-a-logitech-mouse-with-your-pc-or-mac/"><u>How To Seamlessly Integrate A Logitech Mouse With Your PC or Mac</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-unveiling-the-world-in-a-whole-view-video-edition/"><u>In 2024, Unveiling the World in a Whole View Video Edition</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-keyboard-issues-spacebar-malfunction-on-microsofts-latest-operating-system/"><u>Resolving Keyboard Issues - Spacebar Malfunction on Microsoft's Latest Operating System</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/seaside-shots-comparison-gopro-hero5-and-sjcam-sj7/"><u>Seaside Shots Comparison GoPro Hero5 & SJCAM SJ7</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-the-puzzle-of-sudden-computer-turnoffs-a-comprehensive-guide-based-on-personal-experience/"><u>Troubleshooting the Puzzle of Sudden Computer Turnoffs - A Comprehensive Guide Based on Personal Experience</u></a></li>
 </ul></div>
 

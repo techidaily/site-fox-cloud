@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Quick Guide  Integrating Titles Into Videos Within Windows Photos for 2024\""
-date: 2024-08-15T18:11:30.407Z
-updated: 2024-08-16T18:11:30.407Z
+date: 2024-12-24T17:36:33.902Z
+updated: 2024-12-27T17:56:34.345Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,10 @@ Adding the titles/text to video is a great way to explain the people about a cer
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
 
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
@@ -47,13 +51,14 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -64,39 +69,36 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * On the right, find the effects sidebar and select any effect that you find suitable for your video text
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -121,4 +123,19 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-uncovering-the-value-of-true-representations-in-insta-selfies/"><u>[New] In 2024, Uncovering the Value of True Representations in Insta-Selfies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-the-maze-of-zoom-broadcasting-tools/"><u>[New] Navigating the Maze of Zoom Broadcasting Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlock-your-reddit-potential-practical-tips-for-mastery/"><u>[Updated] 2024 Approved Unlock Your Reddit Potential - Practical Tips for Mastery</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-bringing-imagery-elements-into-harmony-for-2024/"><u>[Updated] Bringing Imagery Elements Into Harmony for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-globe-spin-technology-in-lenses-versus-depth-perception-tech/"><u>[Updated] Globe-Spin Technology in Lenses versus Depth Perception Tech</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-mastering-visuals-and-audio-top-5-video-creators-guide/"><u>[Updated] In 2024, Mastering Visuals and Audio Top 5 Video Creators' Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-top-pick-screen-capture-tools-for-apple-devices/"><u>[Updated] In 2024, Top Pick Screen Capture Tools for Apple Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-guide-to-2023s-top-value-zero-cost-live-broadcasting-tools/"><u>[Updated] Ultimate Guide to 2023'S Top Value, Zero-Cost Live Broadcasting Tools</u></a></li>
+<li><a href="https://win11.techidaily.com/boosting-media-stream-efficiency-taming-vlc-lags/"><u>Boosting Media Stream Efficiency: Taming VLC Lags</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/exclusive-dj-design-samples-high-quality-downloads-ready-for-2024/"><u>Exclusive DJ Design Samples High-Quality Downloads Ready for 2024</u></a></li>
+<li><a href="https://win-tips.techidaily.com/mountpoint-integration-with-amazon-s3-a-comprehensive-tutorial-on-secure-installation-and-usage/"><u>Mountpoint Integration with Amazon S3: A Comprehensive Tutorial on Secure Installation and Usage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-up-your-devices-with-the-beatit-bt-d11-portable-charger-in-depth-analysis/"><u>Power Up Your Devices with the Beatit BT-D11 Portable Charger - In Depth Analysis</u></a></li>
+</ul></div>
 

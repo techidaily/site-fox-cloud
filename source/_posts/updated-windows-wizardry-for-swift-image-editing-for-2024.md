@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Window's Wizardry for Swift Image Editing for 2024"
-date: 2024-12-15T18:11:44.819Z
-updated: 2024-12-21T18:07:40.759Z
+date: 2024-12-21T18:06:09.830Z
+updated: 2024-12-27T17:03:19.081Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ The Photos app in Windows 10 is one of the best and with the addition of the dra
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Draw On Photos App in Windows 10
 
 When you can add a personal touch to your videos and photos, it becomes all the way more special. Many times, it becomes essential to add a note to explain a video in a better way. Here are the steps to draw on photos in Windows 10 –
@@ -45,14 +49,14 @@ When you can add a personal touch to your videos and photos, it becomes all the 
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/draw-on-photos-in-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You can see a Windows Ink Toolbar, select your preferred pen from the options available
 * Select the size and color of the fonts you wish to use from a range of palette
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/start-drawing-on-photos-in-windows-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Draw on the images and videos effortlessly
 * You can also find an eraser tool with various sizes of erasers that allows you to erase your entire drawing or a part of it as per your choice when required
@@ -71,7 +75,7 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Select the color from the range of palette available
@@ -81,7 +85,7 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
@@ -93,14 +97,10 @@ The Photos app has an interface that is restructured with dark theme options and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,24 +127,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-introducing-the-apple-m1-max-clip/"><u>[New] 2024 Approved Introducing the Apple M1 Max Clip</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-free-logo-blueprints-to-refine-and-personalize-your-symbol-for-2024/"><u>[New] Free Logo Blueprints to Refine and Personalize Your Symbol for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-from-gaming-to-adventure-the-power-of-the-new-polaroid-xs-100i/"><u>[New] From Gaming to Adventure, the Power of the New Polaroid XS 100I</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-depth-analyzing-lgs-4k-wuhd-hdr-performance/"><u>[New] In Depth Analyzing LG's 4K WUHD HDR Performance</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-choice-5-image-background-adjuster-apps-ios/"><u>[New] Top Choice 5 Image Background Adjuster Apps (iOS)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-exploring-color-enhancement-with-lut-tools-in-pscc/"><u>[Updated] 2024 Approved Exploring Color Enhancement with LUT Tools in PSCC</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unveiling-the-perfect-process-iphones-podcast-downloading-technique/"><u>[Updated] In 2024, Unveiling the Perfect Process IPhone's Podcast Downloading Technique</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/10-superior-approaches-to-live-cricket-broadcasting/"><u>10 Superior Approaches to Live Cricket Broadcasting</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-unveiling-10-cost-effective-virtual-communication-tools/"><u>2024 Approved Unveiling 10 Cost-Effective Virtual Communication Tools</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/affordable-upgrade-swap-your-apple-vision-pro-and-meta-quest-3-for-enhanced-xr-gear-at-a-fraction-of-the-cost/"><u>Affordable Upgrade: Swap Your Apple Vision Pro & Meta Quest 3 for Enhanced XR Gear at a Fraction of the Cost</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/amplify-your-brands-impact-with-a-strategic-approach-to-smm-excellence/"><u>Amplify Your Brand's Impact with a Strategic Approach to SMM Excellence</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/finding-the-perfect-windows-11-match-for-you-home-or-pro/"><u>Finding the Perfect Windows 11 Match for You: Home or Pro?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-youtube-mastery-applying-time-stamps-effectively/"><u>In 2024, YouTube Mastery Applying Time Stamps Effectively</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/tailoring-personal-fitness-chatgpts-guide-to-objectives/"><u>Tailoring Personal Fitness: ChatGPT's Guide to Objectives</u></a></li>
-<li><a href="https://article-posts.techidaily.com/the-creme-de-la-creme-live-streaming-services/"><u>The Crème De La Créme Live Streaming Services</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-unboxing-game-crafting-winning-strategies-for-2024/"><u>The Unboxing Game Crafting Winning Strategies for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unparalleled-audio-experience-premiere-wired-headphones-of-2024/"><u>Unparalleled Audio Experience: Premiere Wired Headphones of 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-the-power-of-googles-notebooklm-engage-in-conversations-about-your-notes-today/"><u>Unveiling the Power of Google's NotebookLM: Engage in Conversations About Your Notes Today!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-do-creators-receive-payment-for-reviews-in-2024/"><u>[New] Do Creators Receive Payment for Reviews, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-explore-exceptional-economically-priced-asmr-gear/"><u>[New] Explore Exceptional, Economically-Priced ASMR Gear</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-greatest-copyright-free-pubg-image-anthology-for-2024/"><u>[New] Greatest Copyright-Free PUBG Image Anthology for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-enhancing-video-production-quality-top-5-strategies-for-obs-users/"><u>[New] In 2024, Enhancing Video Production Quality Top 5 Strategies for OBS Users</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-pinnacle-of-1980s-movie-magic-in-editing/"><u>[New] Pinnacle of 1980S Movie Magic in Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-sprinting-into-the-digital-age-picks-on-vr-treadmills/"><u>[Updated] 2024 Approved Sprinting Into the Digital Age Picks on VR Treadmills</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-advanced-editing-with-magix-vpx-features-on-steroids-for-2024/"><u>[Updated] Advanced Editing with Magix VPX Features on Steroids for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-essential-tips-for-engaging-with-youtube-comments/"><u>[Updated] Essential Tips for Engaging with YouTube Comments</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-expert-studio-walkthrough-xstudio-reviewed/"><u>[Updated] Expert Studio Walkthrough XStudio Reviewed</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-highest-quality-capture-options/"><u>[Updated] Highest Quality Capture Options</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-master-the-art-of-archiving-with-these-13-key-techniques/"><u>[Updated] Master the Art of Archiving with These 13 Key Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gifmovavippm/"><u>「コストフリーGIFへの変換機能が充実したMovaviのオンラインPPM編集ツール」</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-find-the-finest-websites-with-free-game-of-thrones-audio/"><u>2024 Approved Find the Finest Websites with Free Game of Thrones Audio</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/competing-visions-of-virtual-space-google-against-samsung/"><u>Competing Visions of Virtual Space Google Against Samsung</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-the-most-significant-tech-milestones-post-morse-code-era-since-1844/"><u>Discover the Most Significant Tech Milestones Post-Morse Code Era (Since 1844)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevating-your-photography-hdr-strategies-for-ps/"><u>Elevating Your Photography HDR Strategies for PS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-realme-12-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Realme 12 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/location-love-your-ultimate-poi-assistant-for-timely-tips-and-tricks-for-2024/"><u>Location Love Your Ultimate POI Assistant for Timely Tips and Tricks for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Smart 7 | Dr.fone</u></a></li>
 </ul></div>
 

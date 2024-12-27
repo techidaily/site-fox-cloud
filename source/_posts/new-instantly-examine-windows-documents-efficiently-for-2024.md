@@ -1,7 +1,7 @@
 ---
 title: "[New] Instantly Examine Windows Documents Efficiently for 2024"
-date: 2024-12-19T17:12:28.862Z
-updated: 2024-12-22T05:13:00.516Z
+date: 2024-12-26T16:17:32.190Z
+updated: 2024-12-27T16:46:25.994Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Step1 Open Microsoft Store and search for QuickLook. Make sure you select the op
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
@@ -47,10 +47,14 @@ Step3 After successfully installing QuickLook, head to File Explorer and select 
 
 ![preview video on quicklook for windows](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Unfortunately, you won’t preview the content inside the document file. Instead, you’ll only see details like the file type/format, size, image name, and more. You can also directly choose the opening app. As for videos and audio, the media file will automatically play on the QuickLook media player. But don’t fret because the following section will teach you to read your documents, presentations, PDFs, and other files on QuickLook without opening the file.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Get the App on GitHub
@@ -63,21 +67,17 @@ Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and
 
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
@@ -106,7 +106,7 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -143,16 +143,21 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-grit-vs-glory-hitbox-versus-twitch-titans-for-2024/"><u>[New] Grit vs Glory Hitbox Versus Twitch Titans for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-maximizing-video-playback-speed-on-facebook/"><u>[New] In 2024, Maximizing Video Playback Speed on Facebook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-art-of-straightening-correcting-fisheye-in-gopro-footage/"><u>[Updated] 2024 Approved The Art of Straightening Correcting Fisheye in GoPro Footage</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-action-camera-showdown-unmatched-seventh-lineup-wetproof/"><u>[Updated] In 2024, Action Camera Showdown Unmatched Seventh Lineup Wetproof</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-is-inshot-a-game-changer-in-video-editing-tools-in-2024/"><u>[Updated] Is InShot a Game Changer in Video Editing Tools, In 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-higher-youtube-viewership/"><u>[Updated] The Ultimate Guide to Higher YouTube Viewership</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-comprehensive-directory-of-premium-tamil-ringtone-downloads/"><u>2024 Approved Comprehensive Directory of Premium Tamil Ringtone Downloads</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/constructing-cinema-stories/"><u>Constructing Cinema Stories</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-poco-x5-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Poco X5 Phones</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1723808125928-kodinerds-repository-how-to-install-kodinerds-repo-on-kodi/"><u>KodiNerds Repository - How to Install KodiNerds Repo on Kodi</u></a></li>
-<li><a href="https://program-issues.techidaily.com/step-by-step-fix-for-the-infamous-crossbow-glitch-in-minecraft/"><u>Step-by-Step Fix for the Infamous Crossbow Glitch in Minecraft</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-start-small-livestreaming-on-youtube-with-fewer-than-1k-followers/"><u>[New] 2024 Approved Start Small Livestreaming on YouTube with Fewer Than 1K Followers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-effective-strategies-for-premiere-sound-transitioning-for-2024/"><u>[New] Effective Strategies for Premiere Sound-Transitioning for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-windows-11-evolution-in-focus/"><u>[New] Windows 11 Evolution in Focus</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-top-pick-top-10-android-and-ios-wedding-countdown-clock-apps-of-the-year/"><u>[Updated] 2024 Approved The Top Pick Top 10 Android and iOS Wedding Countdown Clock Apps of the Year</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-efficient-content-curation-multiple-photosvideos-to-instagram-storyboard/"><u>[Updated] In 2024, Efficient Content Curation Multiple Photos/Videos to Instagram Storyboard</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-funimate-video-maker-login-to-sign-up-guide/"><u>[Updated] In 2024, Funimate Video Maker Login to Sign up Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-reinstate-your-airdrop-linkages-simple-fixes-for-iosmacos-issues/"><u>[Updated] In 2024, Reinstate Your AirDrop Linkages Simple Fixes for iOS/macOS Issues</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-seamless-integration-of-phone-and-pc-timelines-with-zoom-meetings/"><u>[Updated] In 2024, Seamless Integration of Phone & PC Timelines with Zoom Meetings</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-scheduling-zoom-conferences-for-android-users-for-2024/"><u>[Updated] Scheduling Zoom Conferences for Android Users for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-foundations-in-digital-visual-narratives/"><u>2024 Approved Foundations in Digital Visual Narratives</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721475280220-cant-connect-iphone-with-itunesfinder-try-these-proven-fixing-tips/"><u>Can't Connect iPhone with iTunes/Finder? Try These Proven Fixing Tips!</u></a></li>
+<li><a href="https://games-able.techidaily.com/favorite-variety-games-for-multitasking-broadcasters/"><u>Favorite Variety Games for Multitasking Broadcasters</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/free-downloads-from-medquestreviews-explore-top-educational-videos-on-medicine-and-healthcare/"><u>Free Downloads From MedQuestReviews: Explore Top Educational Videos on Medicine and Healthcare</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-iphone-11-pro-by-drfone-ios/"><u>How to Fix Locked Apple ID on iPhone 11 Pro</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/mastering-tech-picks-the-ultimate-source-for-hardware-advice-toms-resource/"><u>Mastering Tech Picks: The Ultimate Source for Hardware Advice - Tom's Resource</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unleash-zooms-full-potential-with-essential-3-methods/"><u>Unleash Zoom's Full Potential with Essential 3 Methods</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Diving Into Drones? Syma X5C Review  Beginner's Dream UAV for 2024\""
-date: 2024-08-15T18:10:20.171Z
-updated: 2024-08-16T18:10:20.171Z
+date: 2024-12-23T18:07:58.147Z
+updated: 2024-12-27T18:24:16.545Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/e0931ca8ae70302ccf65495c157857813d9635f22
 
 **You may also like:** [Drone racing: Things You need to Know and Top 5 best FPV racing drones >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons of Syma X5C
 
 **Pros:**
@@ -61,8 +65,9 @@ thumbnail: https://thmb.techidaily.com/e0931ca8ae70302ccf65495c157857813d9635f22
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -93,32 +98,31 @@ thumbnail: https://thmb.techidaily.com/e0931ca8ae70302ccf65495c157857813d9635f22
 #### 5. Control Range
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  Syma's X5C can be included in the list of must buy product for beginners due to its all incredible features. If you are a beginner and are just going to learn about flight basics then this advanced camera unit can serve you best with all impressive controls. Its sleek design along with feature rich platform offers lots of things to explore in air. You will definitely love to enjoy its regular and expert mode settings with unique flight experiences.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -144,4 +148,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-from-cluttered-to-clear-a-canva-guide-for-borders-removal/"><u>[New] From Cluttered to Clear A Canva Guide for Borders Removal</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-2023-ultimate-guide-sj7s-4k-star-cam-reviews/"><u>[New] In 2024, 2023 Ultimate Guide SJ7's 4K Star Cam Reviews</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dive-into-films-at-zero-price-versatile-vob-player-software/"><u>[New] In 2024, Dive Into Films at Zero Price Versatile VOB PLAYER Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-speaking-into-the-future-iphone-recordings/"><u>[New] Speaking Into the Future - iPhone Recordings</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-tunefab-vs-competitors-screen-recorder-showdown-for-2024/"><u>[New] Tunefab vs Competitors Screen Recorder Showdown for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-analysis-of-fb-video-proportions/"><u>[Updated] 2024 Approved Analysis of FB Video Proportions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fluxvideoart-compile-and-display-on-macos-sierra/"><u>[Updated] FluxVideoArt Compile & Display on macOS Sierra</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-subtle-shadows-perfectly-blurred-iphone-photos-explained/"><u>2024 Approved Subtle Shadows Perfectly Blurred iPhone Photos Explained</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-revived-adventures-of-spyro-tiny-dragon-mighty-savings-explored/"><u>Evaluating the Revived Adventures of Spyro: Tiny Dragon, Mighty Savings Explored</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-exclusive-round-up-premium-vr-tools/"><u>In 2024, Exclusive Round-Up Premium VR Tools</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/les-meilleurs-alternatifs-aux-machines-a-temps-pour-les-utilisateurs-de-windows-versions-111087/"><u>Les Meilleurs Alternatifs Aux Machines À Temps Pour Les Utilisateurs De Windows (Versions 11/10/8/7)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Harnessing the Power of Depth Perception  IPhone X's Advantage for 2024\""
-date: 2024-12-18T02:46:37.496Z
-updated: 2024-12-22T02:14:21.396Z
+date: 2024-12-21T18:27:42.465Z
+updated: 2024-12-27T18:53:31.330Z
 tags: 
   - screen-recording
   - ai video
@@ -38,16 +38,12 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
@@ -55,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
  With previous versions of the iPhone Plus, the depth maps were only used to blur backgrounds and make subjects pop against them. However, the iPhone X takes the depth information from the two lenses as well as the efficiency of the A11 Bionic chip to offer outstanding new special effects.
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
 
@@ -75,7 +75,11 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -83,10 +87,6 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,22 +127,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-eliminating-an-obsolete-linkedin-identity-stepwise-guide/"><u>[New] Eliminating an Obsolete LinkedIn Identity Stepwise Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-behind-the-scenes-of-effective-online-streaming/"><u>[Updated] In 2024, Behind the Scenes of Effective Online Streaming</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-low-cost-options-for-acquiring-gopro-cameras/"><u>[Updated] Low-Cost Options for Acquiring GoPro Cameras</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-pro-iphones-capturing-perfect-silhouettes-for-2024/"><u>[Updated] Pro iPhones Capturing Perfect Silhouettes for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-state-of-the-art-devices-for-online-live-shows-for-2024/"><u>[Updated] State-of-the-Art Devices for Online Live Shows for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-top-8-srt-conversion-websites-without-a-cost-for-2024/"><u>[Updated] Top 8 SRT Conversion Websites Without a Cost for 2024</u></a></li>
-<li><a href="https://solve-help.techidaily.com/copy-and-convert-your-dvds-effortlessly-with-winx-dvd-ripper-pro-for-windows-10-users/"><u>Copy & Convert Your DVDs Effortlessly with WinX DVD Ripper Pro for Windows 10 Users</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/crafting-captivating-titles-with-ae/"><u>Crafting Captivating Titles with AE</u></a></li>
-<li><a href="https://win-blog.techidaily.com/elevate-your-battle-ultimate-fixes-for-low-fps-troubleshooting-in-valheim-2024-guide/"><u>Elevate Your Battle: Ultimate Fixes for Low FPS Troubleshooting in Valheim - 2024 Guide</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-fix-windows-10-may-update-version-1903-installation-problems-a-comprehensive-guide/"><u>How to Fix Windows 10 May Update (Version 1903) Installation Problems: A Comprehensive Guide</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Google Pixel 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-perfecting-your-srt-file-dispatch-for-maximum-social-exposure/"><u>In 2024, Perfecting Your SRT File Dispatch for Maximum Social Exposure</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-snappy-movement-capturing-blur-with-iphone-photos/"><u>In 2024, Snappy Movement Capturing Blur with iPhone Photos</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-asus-rog-phone-8-pro-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Asus ROG Phone 8 Pro.</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Nokia C210? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-data-from-motorola-moto-g04-by-fonelab-android-recover-data/"><u>Undelete lost data from Motorola Moto G04</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unveiling-the-superior-video-compression-in-av1/"><u>Unveiling the Superior Video Compression in AV1</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-prime-unlimited-space-service-catalogue/"><u>[New] Prime Unlimited Space Service Catalogue</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-selection-7-superior-fps-games-for-2024/"><u>[Updated] Elite Selection 7 Superior FPS Games for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/breaking-through-with-stunning-hdr-portrait-shots-for-2024/"><u>Breaking Through with Stunning HDR Portrait Shots for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effective-strategies-to-insert-text-overlays-in-videos-learn-the-best-approaches/"><u>Effective Strategies to Insert Text Overlays in Videos - Learn the Best Approaches!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/extended-iphone-lock-screen-time-find-out-why-and-quick-fixes/"><u>Extended iPhone Lock Screen Time - Find Out Why and Quick Fixes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-apple-iphone-xr-by-drfone-ios/"><u>How to jailbreak iCloud locked Apple iPhone XR</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-realme-gt-neo-5-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Realme GT Neo 5 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-cinemas-craftsmanship-the-best-camera-tricks-and-techniques-24-edition/"><u>In 2024, Cinema's Craftsmanship The Best Camera Tricks & Techniques - '24 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-how-to-smoothly-manipulate-video-speed-in-snapchat/"><u>In 2024, How to Smoothly Manipulate Video Speed in Snapchat</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagrowth-hack-secrets-for-scaling-to-1000month-fans/"><u>In 2024, InstaGrowth Hack Secrets for Scaling to 1,000/Month Fans</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-note-50frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme Note 50FRP Lock</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/d-screen-craftsman/"><u>Second-Screen Craftsman</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-disconnecting-your-subscription-from-apple-music-without-using-itunes-tips-and-tricks/"><u>Step-by-Step Guide: Disconnecting Your Subscription From Apple Music Without Using iTunes - Tips & Tricks</u></a></li>
 </ul></div>
 

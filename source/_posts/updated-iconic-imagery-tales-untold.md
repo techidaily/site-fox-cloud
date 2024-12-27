@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Iconic Imagery  Tales Untold\""
-date: 2024-12-17T19:42:19.688Z
-updated: 2024-12-21T16:40:12.642Z
+date: 2024-12-21T17:45:23.505Z
+updated: 2024-12-27T16:43:27.142Z
 tags: 
   - screen-recording
   - ai video
@@ -31,10 +31,6 @@ So, what are the most popular stock photo memes, and how did they reach this sta
 
 ![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Since 2011, Hide the Pain Harold continues to rank as one of the world's most popular stock photo memes. Here are some numbers to show you how popular the meme is.
 
 * It also features on stock image sites such as Imgur, where user “someshitbag” has a gallery post titled Hide-the-pain-Harold. In addition, the page received over 880 thousand views during the first three weeks. Furthermore, it won Imgur's meme of the decade title in 2020 by receiving 10,954 votes (about 20%) of the 54,768 votes cast by Imgurians.
@@ -53,7 +49,7 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part2: Distracted Boyfriend
@@ -67,7 +63,7 @@ The original photo is the work of Antonio Guillem, who uploaded it on iStock in 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
@@ -83,6 +79,10 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
 ## Part3: I Bet He's Thinking About Other Women
@@ -94,10 +94,6 @@ The meme features a couple in bed with the stock photo meme guy in contemplation
 However, subsequent memes feature satirical themes. Here are some of the most popular versions and their popularity.
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
@@ -113,14 +109,10 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part4: Bonjour Bear
@@ -135,6 +127,10 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
 * Others use the meme as a reaction to when your relatives visit. The captions indicate your parent informing you that your uncle and aunt are visiting and they have brought presents.
@@ -145,7 +141,7 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 ## Part5: FAQs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
@@ -153,6 +149,10 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
 
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Does copyright law protect memes?
 
@@ -194,16 +194,15 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-crafting-a-cinematic-short-blending-images-and-melodies/"><u>[New] 2024 Approved Crafting a Cinematic Short Blending Images and Melodies</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-easy-steps-to-mastering-audio-in-windows-11/"><u>[New] 2024 Approved Easy Steps to Mastering Audio in Windows 11</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-investigating-the-power-of-4-second-youtube-subscriptions/"><u>[New] In 2024, Investigating the Power of 4-Second YouTube Subscriptions</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-cutting-corners-not-with-quality-square-video-creation-techniques/"><u>[Updated] 2024 Approved Cutting Corners? Not with Quality Square Video Creation Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-expert-guide-to-enhancing-video-subtitles-through-web-apps-for-2024/"><u>[Updated] Expert Guide to Enhancing Video Subtitles Through Web Apps for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-gopros-latest-camera-face-off/"><u>[Updated] GoPro's Latest Camera Face-Off</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-inside-the-tech-what-is-virtual-reality-gear/"><u>[Updated] Inside the Tech What Is Virtual Reality Gear?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/androids-role-in-virtual-reality-content-consumption-for-2024/"><u>Android's Role in Virtual Reality Content Consumption for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/choisissez-les-meilleurs-programmes-de-gravure-en-ligne-gratuits-pour-windows-versions-10-8-and-7/"><u>Choisissez Les Meilleurs Programmes De Gravure en Ligne Gratuits Pour Windows (Versions 10, 8 & 7)</u></a></li>
-<li><a href="https://driver-install.techidaily.com/install-newest-pcie-controller-drivers-in-windows-10/"><u>Install Newest PCIe Controller Drivers in Windows 10</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/proven-ways-to-capture-and-preserve-your-favorite-discord-sessions-for-2024/"><u>Proven Ways to Capture and Preserve Your Favorite Discord Sessions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-straightforward-route-scrolling-through-popular-youtube-feedbacks/"><u>[New] The Straightforward Route Scrolling Through Popular YouTube Feedbacks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-m1-advantages-in-high-quality-video-production-workstations-for-2024/"><u>[Updated] M1 Advantages in High-Quality Video Production Workstations for 2024</u></a></li>
+<li><a href="https://win-special.techidaily.com/asf-swf-online/"><u>ASF 프리미우스를 SWF로 무료 변환 - Online 코드 전환</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/boosting-engagement-learning-to-modify-account-numbers-for-2024/"><u>Boosting Engagement Learning to Modify Account Numbers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elite-selection-6-unmatched-tools-for-pristine-signature-edits-for-2024/"><u>Elite Selection - 6 Unmatched Tools for Pristine Signature Edits for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/identify-missing-or-malfunctioning-your-drivers-with-windows-device-manager-on-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Identify missing or malfunctioning your drivers with Windows Device Manager on Windows 11 & 10 & 7</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-realme-c55-by-drfone-android/"><u>In 2024, How to Bypass FRP on Realme C55?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-nokia-c300-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Nokia C300 Phones</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-ultimate-trick-to-resetting-your-iphone-without-itunes-dependency/"><u>The Ultimate Trick to Resetting Your iPhone Without iTunes Dependency</u></a></li>
 </ul></div>
 

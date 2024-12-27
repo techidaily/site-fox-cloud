@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Secrets  The Battle of Biometric Systems in Phones\""
-date: 2024-12-19T21:34:57.496Z
-updated: 2024-12-22T02:59:38.342Z
+date: 2024-12-23T16:25:41.568Z
+updated: 2024-12-27T16:12:24.074Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How does it work?
 
  This section will cover how the face recognition technology works for both the devices. Check out the process.
@@ -59,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 ![Samsung](https://images.wondershare.com/filmora/article-images/Samsung-Galaxy-S8-Face-Unlock.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Which one is more Accuracy?
@@ -69,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 ![iPhone X accuracy](https://images.wondershare.com/filmora/article-images/iphone-x-accuracy.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: The Common Inconvenience
@@ -82,6 +78,14 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 
 ![face ID incovenience](https://images.wondershare.com/filmora/article-images/face-incovenience.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Safety Issue
 
  Ensuring safety is one of the main concern people have and the face recognition technology in both the devices has done pretty well. Apple uses the TrueDepth camera system which includes flood illuminator, IR camera as well as dot projector to make the face recognized in all possible ways. It has been claimed by the company that the possibility of unlocking the device by a random person’s face is 1 in 1,000,000\. Besides this, Apple had made sure to let people try only 5 face attempts after which they will require to enter the passcode. The probability though doesn’t work same for twins and the family members who resemble you. Also, the children who are less than 13 are able to trick you since they don’t have fully developed facial features.
@@ -93,16 +97,12 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 ![face ID issue](https://images.wondershare.com/filmora/article-images/face-id-issue.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  On the other hand, Samsung also doesn’t lag behind when it comes to safety and security with face recognition feature. Samsung is the first Android device company to introduce face recognition technology that brought iris scanning technology with its Galaxy Note 7\. The technology does it job by detecting the iris’ pattern of your eyes. As far as security is concerned, the technology gets 10 on 10 since each person possesses unique iris pattern and it becomes difficult to replicate. The devices by Samsung having face recognition technology are designed with infrared diode which is capable
 
  All in all, both the companies have put extra effort in justifying the safety with trending face recognition technology. However, we are not certain for full reliability of them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -135,18 +135,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-synching-iphone-vids-with-ease-and-precision/"><u>[New] 2024 Approved Synching iPhone Vids with Ease and Precision</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-ultimate-screen-recorder-companion-for-windows-10/"><u>[New] 2024 Approved Ultimate Screen Recorder Companion for Windows 10</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-boost-your-photo-workflow-in-windows-11-for-2024/"><u>[New] Boost Your Photo Workflow in Windows 11 for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-quickly-stop-live-feed-capture-with-quicktime/"><u>[New] In 2024, Quickly Stop Live Feed Capture with QuickTime</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-keypads-your-guide-to-buying-youtube-ringtone-vids-for-2024/"><u>[New] Keypads Your Guide to Buying YouTube Ringtone Vids for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-storing-24-hour-movies-estimating-gb-usage-for-2024/"><u>[New] Storing 24-Hour Movies Estimating GB Usage for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-complete-guide-to-voiced-ppt-mastery/"><u>[Updated] 2024 Approved The Complete Guide to Voiced PPT Mastery</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-from-basics-to-expertise-3d-lut-creation/"><u>[Updated] In 2024, From Basics to Expertise 3D LUT Creation</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-tactical-steps-to-obtain-top-notch-pictorial-content/"><u>[Updated] In 2024, Tactical Steps to Obtain Top-Notch Pictorial Content</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/essential-guide-to-playing-yakuza-like-a-dragon-the-ultimate-jrpg/"><u>Essential Guide to Playing Yakuza: Like a Dragon – The Ultimate JRPG</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-online-for-docx-document-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Create a Digital Signature Online for .docx document</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-setting-the-price-for-higher-youtube-engagement/"><u>In 2024, Setting the Price for Higher YouTube Engagement</u></a></li>
-<li><a href="https://some-tips.techidaily.com/techniques-simples-pour-transformer-un-fichier-m4v-en-format-3gp-gratuitement-a-laide-de-logiciels-en-ligne-guide-decortigue/"><u>Techniques Simples Pour Transformer Un Fichier M4V en Format 3GP Gratuitement À L'Aide De Logiciels en Ligne - Guide Décortigué</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-masterclass-guide-15-tripods-perfect-for-gopro/"><u>[New] 2024 Approved Masterclass Guide 15 Tripods Perfect for GoPro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-exclusive-12-live-views-at-your-fingertips/"><u>[New] Exclusive 12 Live Views at Your Fingertips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-fabulous-review-and-diverse-options/"><u>[New] Fabulous Review & Diverse Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-direct-to-streamer-content-twitch-versus-youtube-explored/"><u>[New] In 2024, Direct-to-Streamer Content Twitch Versus YouTube Explored</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastering-effective-interview-techniques-for-2024/"><u>[New] Mastering Effective Interview Techniques for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-beijings-ice-arena-olympic-moments-2022/"><u>[Updated] 2024 Approved Beijing's Ice Arena Olympic Moments, 2022</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-optimizing-video-flow-for-social-networks/"><u>[Updated] 2024 Approved Optimizing Video Flow for Social Networks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-culinary-mastery-the-top-7-tips-to-elevate-your-kitchen-filmography/"><u>[Updated] In 2024, Culinary Mastery The Top 7 Tips to Elevate Your Kitchen Filmography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-logic-pros-approach-to-softening-audio-tracks-gradually/"><u>[Updated] In 2024, Logic Pro's Approach to Softening Audio Tracks Gradually</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-skyrocket-sales-traffic-with-the-15-cutting-edge-facebook-gadgets-for-2024/"><u>[Updated] Skyrocket Sales Traffic with the 15 Cutting-Edge Facebook Gadgets for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-strategic-steps-for-pinpointing-a-list-film-creators/"><u>[Updated] Strategic Steps for Pinpointing A-List Film Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-financial-frontier-youtubes-pay-structure-at-the-1m-mark/"><u>[Updated] The Financial Frontier Youtube's Pay Structure at the 1M Mark</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/10-secret-windows-11-tips-and-tricks-you-may-not-know-for-2024/"><u>10 Secret Windows 11 Tips and Tricks You May Not Know for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-hp-accelerometer-issue-in-windows/"><u>How to Fix HP Accelerometer Issue in Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-honor-magic-6-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Honor Magic 6?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ideal-ai-applications-boosting-academic-note-taking/"><u>Ideal AI Applications Boosting Academic Note Taking</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/m4a-to-mpeg-konvertisseur-online-bonusgratis-betreffend-movavi/"><u>M4A-to-MPEG Konvertisseur Online Bonusgratis - Betreffend Movavi</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-for-overcoming-windows-service-error-1053/"><u>Strategies for Overcoming Windows Service Error 1053</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/transcription-and-task-execution-on-the-go-fee-free-for-2024/"><u>Transcription and Task Execution on the Go – Fee-Free for 2024</u></a></li>
 </ul></div>
 

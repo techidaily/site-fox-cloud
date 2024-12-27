@@ -1,7 +1,7 @@
 ---
 title: "\"Exploring Hues  From Textbooks to Canvas for 2024\""
-date: 2024-12-18T19:20:50.811Z
-updated: 2024-12-22T00:02:45.904Z
+date: 2024-12-25T18:11:48.915Z
+updated: 2024-12-27T17:45:37.206Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ If you are more selective with your colors in your videos or imagery the viewer 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What Is Color Theory
@@ -38,7 +38,7 @@ Color theory consists of many elements that could fill a library on its own but 
 There are many color wheels out there and all require understanding and research into that particular color arrangement but for this guide I will be focusing on the more widely used RGB which derives from the primary colors red green and blue, If you're thinking why red green and blue not red yellow and blue then you are observant, while RYB is taught as the three primary colors we will be using what is known as additive primary colors of light meaning the more you add of these colors the closer to white you get, the reason we will be using this combination is due to the fact RYB misses a lot of hues around the violet area and the blue-greens meaning we achieve a higher range of color to pick from. With this in mind let's start.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Color Wheel
@@ -47,11 +47,11 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 ![colcor wheel](https://images.wondershare.com/filmora/article-images/2024/color-wheel.jpg)
 
-As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
 ## Color Harmony
 
@@ -67,15 +67,15 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
@@ -86,7 +86,7 @@ As you can see from this example the base color for the scene is a dark blue/pur
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -123,19 +123,20 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-from-zero-to-hero-making-your-instagram-videos-go-wild/"><u>[New] 2024 Approved From Zero to Hero Making Your Instagram Videos Go Wild</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-mastering-fb-video-downloads-on-linux-and-macos/"><u>[New] In 2024, Mastering FB Video Downloads on Linux & macOS</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-seamless-spinning-and-stitching-an-android-videographers-handbook/"><u>[New] In 2024, Seamless Spinning & Stitching An Android Videographer's Handbook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-secure-your-privacy-with-easy-to-follow-picscanner-methods-for-2024/"><u>[New] Secure Your Privacy with Easy-to-Follow PicScanner Methods for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-find-your-digital-companion-the-top-6-youtube-personality-puzzles/"><u>[Updated] 2024 Approved Find Your Digital Companion The Top 6 YouTube Personality Puzzles</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-mastering-the-art-of-google-podcast-upload/"><u>[Updated] In 2024, Mastering the Art of Google Podcast Upload</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-mastering-desktopiosandroid-zoom-with-a-virtual-board/"><u>[Updated] Mastering Desktop/iOS/Android Zoom with a Virtual Board</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-optimal-assistance-premier-tone-designers-for-iphones-for-2024/"><u>[Updated] Optimal Assistance Premier Tone Designers for iPhones for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-darkest-hours-meet-brightest-blessings/"><u>2024 Approved Darkest Hours Meet Brightest Blessings</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-with-film-learned-vernaculars/"><u>Bridging Cultures with Film-Learned Vernaculars</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-can-i-recover-corrupted-excel-file-2000-stellar-by-stellar-guide/"><u>How Can I Recover Corrupted Excel File 2000 | Stellar</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-stop-glitchy-sounds-on-bluetooth-headsets-in-windows-pcs-tips-and-tricks/"><u>How to Stop Glitchy Sounds on Bluetooth Headsets in Windows PCs (Tips & Tricks)</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/new-guide-how-to-check-icloud-activation-lock-status-on-your-iphone-7-by-drfone-ios/"><u>New Guide How To Check iCloud Activation Lock Status On Your iPhone 7</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-brainpower-of-moto-z2-detailed-insights-for-2024/"><u>The Brainpower of Moto Z2 Detailed Insights for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-your-online-potential-with-these-top-tips-on-free-youtube-transcripts/"><u>[New] Unlock Your Online Potential with These Top Tips on FREE YouTube Transcripts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discover-best-8-3d-realms-with-glossy-text-effects/"><u>[Updated] Discover Best 8 3D Realms with Glossy Text Effects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-examining-the-economics-pewdiepies-annual-income/"><u>[Updated] Examining the Economics PewDiePie's Annual Income</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-experts-insight-downloading-audio-on-apple-gadgets-for-2024/"><u>[Updated] Expert's Insight Downloading Audio on Apple Gadgets for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-halt-and-rewind-mastering-live-streams-on-twitch-for-2024/"><u>[Updated] Halt & Rewind Mastering Live Streams on Twitch for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-superior-vistas-for-digital-viewership/"><u>[Updated] In 2024, Superior Vistas for Digital Viewership</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-master-the-art-of-editing-on-zero-budget-discover-these-apps/"><u>[Updated] Master the Art of Editing on Zero Budget Discover These Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pixelprankspro-humorhexagonhub/"><u>[Updated] PixelPranksPro HumorHexagonHub</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-professional-opinions-best-9-digital-microphone-capture-gear/"><u>[Updated] Professional Opinions Best 9 Digital Microphone Capture Gear</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/embark-on-digital-explorations-vr-tour-basics/"><u>Embark on Digital Explorations VR Tour Basics</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-tips-on-reactivating-voice-chat-functionality-in-bungies-destiny-2/"><u>Expert Tips on Reactivating Voice Chat Functionality in Bungie's Destiny 2</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-get-and-activate-hp-scanning-programs-on-a-windows-machine/"><u>How to Get and Activate HP Scanning Programs on a Windows Machine</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-innovative-use-of-multimedia-in-modern-classrooms/"><u>In 2024, Innovative Use of Multimedia in Modern Classrooms</u></a></li>
+<li><a href="https://program-issues.techidaily.com/why-isnt-my-cortana-active-expert-tips-to-restore-its-functionality/"><u>Why Isn't My Cortana Active? Expert Tips to Restore Its Functionality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-introduction-guide-2-approaches-explored/"><u>YouTube Introduction Guide - 2 Approaches Explored</u></a></li>
 </ul></div>
 

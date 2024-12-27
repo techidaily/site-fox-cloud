@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Leveraging LUTs for Rich Color Grading in AR Apps\""
-date: 2024-08-15T18:10:57.373Z
-updated: 2024-08-16T18:10:57.373Z
+date: 2024-12-24T17:18:56.193Z
+updated: 2024-12-27T17:29:56.159Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,10 @@ thumbnail: https://thmb.techidaily.com/c07f3ef9154ad0c617bd9bd6a2a32146d7b51b27c
 
 Color LUTs (Lookup Textures) are tables of RGB color values. In Spark AR, you can use color LUTs to quickly create color gradation effects throughout the scene. Go through the article and create your color LUT effect.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. What are Luts in Spark AR used for?
 
 To create a color filter effect in [Spark AR](https://sparkar.facebook.com/ar-studio/), you need a color LUT in Spark AR.
@@ -28,9 +32,6 @@ To develop AR effects for mobile cameras, you can use the Mac and Windows augmen
 
 ![create a color gradient effect](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2\. How to use LUTs in Spark AR?
 
 **How to apply a color LUT to the whole scene in Spark AR:**
@@ -50,18 +51,12 @@ When you import a color LUT, compression is always set to None, and filtering is
 A patch graph is automatically set that applies a color LUT to the entire scene.
 
 ![apply to the whole scene](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 **The color LUT patch graph**
 
 The patch graph that renders the color gradation effect looks like this:
 
 ![color lut patch graph](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-3.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 
 **To create the effect:**
 
@@ -70,21 +65,22 @@ The patch graph that renders the color gradation effect looks like this:
 * Finally, the Screen Output patch renders the green color.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3\. Free LUTs resource for Spark AR
 
 Here are the best free LUTs resources for Spark AR:
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. [Frost Zombie (Technical Showcase)](https://we.tl/t-1uj4wJKluG)
 
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Fur
 
@@ -105,31 +101,38 @@ Even while using large image sequences is frequently discouraged, you can still 
 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Transition Curves
 
 There are 11 distinct animation curves included with Spark AR in the Transition patch. Here is a helpful visual aid because it might be challenging to distinguish between a quartic and a quintic when working on a project. With the SDF circle doubled (to sharpen the edge) and inserted into the Patch Pack's alpha channel, the circles are likewise straightforward rectangles. Since RGB values are three times one, the object is white.
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Realistic Smoke
 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
 
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Rainbow Glitter
 
 Given how beautifully Glitter Rain was received, I believed it would be fitting to broaden the potential with an HDR setting. While Glitter Rain made use of two different colors, this technique makes use of an entirely colorless substance and gets its color information via HDR.
 
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
+
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Closing Thoughts
@@ -164,4 +167,16 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-30-video-concepts-for-engaging-audiences/"><u>[New] 2024 Approved Top 30 Video Concepts for Engaging Audiences</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-canvas-hidden-power-ups-for-stunning-visuals/"><u>2024 Approved Canva's Hidden Power-Ups for Stunning Visuals</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-earnings-expertise-for-youtube-creators-fb-insights-and-tactics/"><u>2024 Approved Earnings Expertise for YouTube Creators FB Insights and Tactics</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/breaking-through-with-stunning-hdr-portrait-shots-for-2024/"><u>Breaking Through with Stunning HDR Portrait Shots for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/brother-printer-drivers-download-easily-and-quickly/"><u>Brother Printer Drivers Download Easily & Quickly</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/complete-troubleshooting-steps-resolving-non-responsive-xbox-one-controller-issues/"><u>Complete Troubleshooting Steps: Resolving Non-Responsive Xbox One Controller Issues</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-to-follow-tutorial-on-utilizing-the-advanced-photo-cutouts-functionality-in-ios-16-iphones/"><u>Easy-to-Follow Tutorial on Utilizing the Advanced Photo Cutouts Functionality in iOS 16 iPhones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-cinemas-craftsmanship-the-best-camera-tricks-and-techniques-24-edition/"><u>In 2024, Cinema's Craftsmanship The Best Camera Tricks & Techniques - '24 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-how-to-smoothly-manipulate-video-speed-in-snapchat/"><u>In 2024, How to Smoothly Manipulate Video Speed in Snapchat</u></a></li>
+</ul></div>
 

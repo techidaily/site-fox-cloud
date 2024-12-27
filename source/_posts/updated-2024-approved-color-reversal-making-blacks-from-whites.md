@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Color Reversal  Making Blacks From Whites\""
-date: 2024-08-15T18:16:24.055Z
-updated: 2024-08-16T18:16:24.055Z
+date: 2024-12-23T18:04:21.879Z
+updated: 2024-12-27T17:42:48.955Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/e7857315bad256fdc5741086fa363d0007b6f6fca
 
 During the age of analog photography, the image negative was one of the most important artifacts for photographers, because it enabled them to reproduce a picture as many times as they wanted. Years later photographers invert colors in photos for mostly aesthetical reasons since only a small number of photographers still take photos with analog cameras. Regardless of the type of camera you’re using, inverting colors in a photo is a straightforward process that doesn’t require too much effort. In this article, we are going to take you through some of the best options on Mac and PC computers, as well as Android phones and iPhones that let you invert colors in just a few easy steps. So, let’s dive in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Make Image Negative of a Digital Photo?
 
 The Invert option is commonly used to invert a scanned film negative to color, but this doesn’t’ mean that you can’t use this effect in very different contexts. However, the extensive and unselective use of this effect can ruin a perfect photo. Here’s how you can invert colors in your photos.
@@ -39,6 +43,10 @@ The Invert option is commonly used to invert a scanned film negative to color, b
 **Compatibility:** Windows
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/ms-paint-invert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Open the photo you’d like to invert with MS Paint, and then choose the **Select All option** from the **Select Menu**. **Right-click** on the picture and click on the **Invert Color** option. The colors in the image will be automatically inverted, so you can then head over to the **Save As submenu** in the **File menu** to select the file format of the new photo.
 
@@ -78,6 +86,10 @@ The platform’s homepage contains a number of categories of tools such as **Col
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
 
 #### 5. Using [Adobe Photoshop](https://www.adobe.com/products/photoshop.html)’s Invert Option
@@ -87,6 +99,10 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -113,6 +129,10 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 **Compatibility:** iOS
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
 
@@ -145,8 +165,19 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-apex-creators-video-giants-in-the-making-for-2024/"><u>[New] Apex Creators Video Giants in the Making for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-cutting-edge-tools-for-intro-edits-on-devices/"><u>[New] Best Cutting-Edge Tools for Intro Edits on Devices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-imovie-magic-ranking-the-best-8-free-and-paid-film-apps/"><u>[New] IMovie Magic Ranking the Best 8 Free and Paid Film Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-harness-the-power-of-combining-zoom-with-facebook-live-features/"><u>[New] In 2024, Harness the Power of Combining Zoom with Facebook Live Features</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pros-and-tips-building-realistic-3d-text-in-photos/"><u>[New] In 2024, Pros and Tips Building Realistic 3D Text in PHOTOS</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-from-bland-to-breathtaking-add-flare-with-stunning-icon-graphics-on-instagram/"><u>2024 Approved From Bland to Breathtaking Add Flare with Stunning Icon Graphics on Instagram</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/effective-techniques-for-chapterizing-your-mp4-videos/"><u>Effective Techniques for Chapterizing Your MP4 Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/fast-and-easy-winx-free-dvd-ripper-tool-for-windows-10-convert-dvds-to-mp4-format/"><u>Fast & Easy WinX Free DVD Ripper Tool for Windows 10 - Convert DVDs to MP4 Format</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/improve-your-artistic-workflow-download-the-updated-wacom-cintiq-13hd-driver/"><u>Improve Your Artistic Workflow - Download the Updated Wacom Cintiq 13HD Driver</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-pro-max-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 Pro Max with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209680342-9781507212356-the-astrological-guide-to-self-care/"><u>The Astrological Guide to Self-Care | Free Book</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210539279-9781446549483-witchcraft-and-witchcraft-trials-in-orkney-and-shetland-folklore-history-series/"><u>Witchcraft and Witchcraft Trials in Orkney and Shetland (Folklore History Series) | Free Book</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->

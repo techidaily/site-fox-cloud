@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Virtual Frontiers  Current Trends in VR Tech\""
-date: 2024-08-15T18:11:33.708Z
-updated: 2024-08-16T18:11:33.708Z
+date: 2024-12-21T16:59:14.415Z
+updated: 2024-12-27T16:12:53.392Z
 tags: 
   - screen-recording
   - ai video
@@ -36,15 +36,17 @@ thumbnail: https://thmb.techidaily.com/40d4b8ee7a20cbf9725c025acb55ef566e92109bc
  )
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The VR gaming development is truly rising then
 
  Is it really the right time to make comment like virtual reality is really uprising as a gaming platform? If you take the year of year survey report, yes the result shows a significant uptick for the interest of this platform. If we look back at the last year’s survey, it revealed that only 33.4 percent of the developers were interested to develop games for VR platforms. If you consider in terms of interest, VR was placed behind the PC/Mac, PlayStation 4, smartphones or tablets. But, considering this year’s data, we can see more advancement in the interest for the VR platform! More and more European developers are now getting interested to develop games for VR platforms that the smartphones or tablets.
 
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
@@ -52,15 +54,17 @@ thumbnail: https://thmb.techidaily.com/40d4b8ee7a20cbf9725c025acb55ef566e92109bc
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## About the European VR game makers and their funding
 
  Funding for the games has always remained one of the prime concerns for the game developers and publishers. You know that it takes large amounts to be invested for the games. When it comes to the funding policies for the European game developers, most of them are covering the entire expenses using their own funds. Take a look at what the survey report has to say about that. Asking about the sources of the fund for the games 57.8 percent said that their funds come from the company’s existing fund while contrary to this, 32.9 percent game developers said that they manage their own fund from their personal accounts.
 
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -68,8 +72,9 @@ thumbnail: https://thmb.techidaily.com/40d4b8ee7a20cbf9725c025acb55ef566e92109bc
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -95,4 +100,21 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-resolution-revelation-best-4k-monitors-for-visual-editing/"><u>[New] 2024 Approved Resolution Revelation Best 4K Monitors for Visual Editing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-complete-instruction-manual-for-telegram-desktop/"><u>[New] Complete Instruction Manual for Telegram Desktop</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-the-zoom-interface-for-effective-fb-lives/"><u>[New] Navigating the Zoom Interface for Effective FB Lives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-prime-online-collections-for-3d-typography/"><u>[New] Prime Online Collections for 3D Typography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-dive-into-video-directing-with-powerdirector-full-review-2024-suite/"><u>[Updated] Dive Into Video Directing with PowerDirector - Full Review (2024 Suite)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-gourmet-giants-culinary-stars-you-must-subscribe-to-for-2024/"><u>[Updated] Gourmet Giants Culinary Stars You Must Subscribe To for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-hardware-insights-with-toms-technology-hub/"><u>Exploring Hardware Insights with Tom’s Technology Hub</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-itel-p55-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Itel P55 5G Phone that is Locked?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-oppo-a78-5gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Oppo A78 5Gwith/without a PC</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-6-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes On iPhone 6?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/jumpstart-earnings-a-novice-written-guide/"><u>Jumpstart Earnings A Novice’ Written Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/snag-the-discounted-hp-victus-n15-gaming-laptop-at-just-515-during-best-buys-exclusive-prime-day-offer-detailed-review-on-zdnet/"><u>Snag the Discounted HP Victus N15 Gaming Laptop at Just $515 During Best Buy's Exclusive Prime Day Offer - Detailed Review on ZDNet</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-transition-the-evolution-of-cars-into-electric-vehicles/"><u>Unveiling the Transition: The Evolution of Cars Into Electric Vehicles</u></a></li>
+<li><a href="https://games-able.techidaily.com/why-shell-out-5-key-factors-supporting-premium-gaming-apps/"><u>Why Shell Out? 5 Key Factors Supporting Premium Gaming Apps</u></a></li>
+</ul></div>
 

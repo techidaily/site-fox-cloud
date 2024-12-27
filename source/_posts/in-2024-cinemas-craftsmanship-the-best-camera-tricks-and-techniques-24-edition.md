@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Cinema's Craftsmanship  The Best Camera Tricks & Techniques - '24 Edition\""
-date: 2024-12-18T22:43:21.809Z
-updated: 2024-12-21T23:42:38.761Z
+date: 2024-12-24T17:14:02.220Z
+updated: 2024-12-27T16:46:05.217Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ You can use common household items to uplift the quality of your videos. But how
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tip 1\. Smooth Camera Movement
 
 Smooth camera movement is the most basic and vital part of the video-making process. Expensive equipment is used to get smooth camera movements on a professional level.
@@ -39,15 +43,19 @@ Step 1 Attach your phone to the side of a door using duct tape or any strong tap
 
 ![smooth camera movement](https://images.wondershare.com/filmora/article-images/2022/12/smooth-camera-movement.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2 Now open and close the door to get smooth camera movement.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tip 2\. DIY Light Focus and Control
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### DIY LED Panel
 
@@ -66,14 +74,6 @@ Step 4 Plug in the LED strip and use this LED Panel for a broader light source.
 Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### DIY Light Flag
 
@@ -94,11 +94,7 @@ Let us see how it looks;
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Black Wrap
@@ -124,7 +120,7 @@ Here is a GIF attached for a better understanding of the steps.
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Light Reflector
@@ -167,6 +163,10 @@ For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
@@ -188,10 +188,6 @@ Step 4 Locking mode is best for recording reveal movement shots.
 Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 180° Presentation Movement
 
@@ -235,6 +231,10 @@ The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Final Words
 
 No doubt, professional cinematography requires expensive equipment, but if you are low on budget, you can use different household items to create cinematic effects. You are using everyday gadgets for creating videos significantly reduces the cost.
@@ -271,18 +271,24 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-dive-deep-accessing-facebooks-story-vault/"><u>[New] Dive Deep Accessing Facebook's Story Vault</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-master-your-craft-best-drawing-tools-on-the-chromebook-spectrum/"><u>[New] Master Your Craft Best Drawing Tools on the Chromebook Spectrum</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-unveiling-the-secrets-of-valheim-crop-cultivation-for-2024/"><u>[New] Unveiling the Secrets of Valheim Crop Cultivation for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-conquering-low-light-with-iphones-advanced-hdr-techniques/"><u>[Updated] 2024 Approved Conquering Low Light with iPhone’s Advanced HDR Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ultimate-pcmobile-mkv-viewer/"><u>[Updated] 2024 Approved Ultimate PC/Mobile MKV Viewer</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-art-of-labeling-images-adding-captions-to-photos-in-the-microsoft-suite-for-2024/"><u>[Updated] The Art of Labeling Images Adding Captions to Photos in the Microsoft Suite for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/get-ready-new-features-are-now-available-on-chatgpt-to-improve-your-experience/"><u>Get Ready! New Features Are Now Available on ChatGPT to Improve Your Experience</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-samsung-galaxy-z-fold-5-by-drfone-android/"><u>How to Bypass FRP on Samsung Galaxy Z Fold 5?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-honor-x50iplus-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Honor X50i+ FRP</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/leveraging-ai-writing-assistant-chatgpt-for-mac-enthusiasts/"><u>Leveraging AI Writing Assistant ChatGPT for Mac Enthusiasts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/simple-windows-11-techniques-for-video-editing-for-2024/"><u>Simple Windows 11 Techniques for Video Editing for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Samsung Galaxy F04 | Dr.fone</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/ultimate-guide-to-transforming-mov-files-seamlessly-switch-between-mp4-avi-wmv-on-any-device/"><u>Ultimate Guide to Transforming MOV Files: Seamlessly Switch Between MP4, AVI, WMV on Any Device</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-elite-video-capturing-technology-for-podcasts/"><u>[New] 2024 Approved Elite Video Capturing Technology for Podcasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-epic-retrospect-swiftly-undoing-iphone-videos/"><u>[New] Epic Retrospect Swiftly Undoing iPhone Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-from-zero-to-hero-making-your-instagram-videos-go-wild-for-2024/"><u>[New] From Zero to Hero Making Your Instagram Videos Go Wild for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-humor-weaver-androids-in-chains/"><u>[New] Humor Weaver Androids in Chains</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-top-10-best-4k-monitors/"><u>[New] In 2024, Top 10 Best 4K Monitors</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-live-recording-analyzer/"><u>[New] Live Recording Analyzer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-notch-apps-to-refine-your-iphone-and-android-gopro-videos/"><u>[New] Top-Notch Apps to Refine Your iPhone & Android GoPro Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-an-android-enthusiasts-dream-customizing-your-phone-alerts-with-style-and-personality/"><u>[Updated] 2024 Approved An Android Enthusiast’s Dream Customizing Your Phone Alerts with Style and Personality</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlock-the-power-of-product-placements-a-comprehensive-guide-for-youtubers/"><u>[Updated] 2024 Approved Unlock the Power of Product Placements A Comprehensive Guide for YouTubers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-digital-space-for-every-need-the-best-free-services-offering-massive-storage/"><u>[Updated] Digital Space for Every Need - The Best Free Services Offering Massive Storage</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unveiling-the-magic-in-haul-video-creation/"><u>[Updated] In 2024, Unveiling the Magic in Haul Video Creation</u></a></li>
+<li><a href="https://win-news.techidaily.com/1728502328468-outlook4/"><u>「Outlookでメールが投稿できない時、解決するための4つの方法」</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-6-effective-ways-to-add-live-facebook-content-online/"><u>2024 Approved 6 Effective Ways to Add Live Facebook Content Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/discover-the-best-practices-for-streaming-archive-podcasts-for-2024/"><u>Discover the Best Practices for Streaming Archive Podcasts for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-comprehensive-overview-of-final-cut-pro-techniques/"><u>In 2024, Comprehensive Overview of Final Cut Pro Techniques</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-507-unique-instagram-post-texts/"><u>Top 507 Unique Instagram Post Texts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/upgrading-internal-storage-on-your-laptop-screen-companion/"><u>Upgrading Internal Storage on Your Laptop Screen Companion</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726026656740-dvd5/"><u>シンプルなDVDからのオーディオ取り出し！ベストな無料ツール5選をご紹介</u></a></li>
 </ul></div>
 

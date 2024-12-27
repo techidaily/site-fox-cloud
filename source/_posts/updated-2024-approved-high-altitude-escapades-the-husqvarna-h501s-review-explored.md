@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  High Altitude Escapades - The Husqvarna H501S Review Explored\""
-date: 2024-08-15T18:16:25.130Z
-updated: 2024-08-16T18:16:25.130Z
+date: 2024-12-26T16:15:06.989Z
+updated: 2024-12-27T16:38:27.450Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 [Check at Amazon](https://www.amazon.com/gp/product/B019FHMZD8/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B019FHMZD8&linkId=9d34fd5276ff2e7909e54006b25f45fa
 )
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and Cons
 
  **Pros:**
@@ -58,9 +62,6 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 
  Hubsan H105S X4 is one of the best drone unit with reasonable price range. It is simply the best package with all advanced features including built in GPS. Even if you are a beginner then you will find this drone a good starter.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ## Complete Review for Hubsan H501S X4
 
 #### 1. Basic Specs info
@@ -110,8 +111,9 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 #### 5. Transmitter
 
 ![hubsan h501S x4 controller](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4-controller.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The Hubsan H501S X4 controller is designed with 4.3 LCD screen and it helps users to enjoy FPV camera operation with ease. This LCD screen can display all telemetry data for flights. It works on 5.8 GHz range to send video signals into MicroSD card whereas the controller itself works on 2.4 GHz frequency range.
@@ -119,8 +121,9 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 #### 6. Brushless Motors
 
 ![hubsan h501s x4 brushless motor](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-motor.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Here is one interesting thing to know about Hubsan H501S, that is its brushless motor design. This motor is powerful enough with durable design so that users can enjoy uninterrupted flights for longer run.
@@ -128,8 +131,9 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 #### 7. Camera
 
 ![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  If you are in search of a drone with great camera setup then you will be impressed with Hubsan X4 results. It captures stills with 1080p resolution and live videos need 5.8 GHz frequency from controller and you can view them directly on 4.3” built in screen of controller unit. All photos and videos are directly saved into MicroSD card.
@@ -139,8 +143,9 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
  Wide range of impressive features have been covered in Hubsan H501S X4 review above so that buyers can make best decision about whether it fits their needs or not. Are you a beginner in the drone world? Then you may need to learn few tactics before arranging your first flight. This specially designed drone unit can also be a good choice for gift to someone you really love. Update your opinion so that we can have discussions about what drones are suitable for your general needs. Also, prefer to bookmark our page so that you can easily go through regular updates about drones and their flying tips. Have a great time with your new drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -166,4 +171,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-rhythm-route-redistribution-your-playlist-anywhere-for-2024/"><u>[New] Rhythm Route Redistribution Your Playlist, Anywhere for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nleash-the-potential-of-your-video-with-best-thumbnail-fonts-for-2024/"><u>[New] Unleash the Potential of Your Video with Best Thumbnail Fonts for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-can-a-64gb-drive-manage-large-video-files/"><u>[Updated] Can a 64GB Drive Manage Large Video Files?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-dissecting-apples-revolutionary-m1-chip/"><u>[Updated] Dissecting Apple’s Revolutionary M1 Chip</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-aerial-artistry-in-motion-examining-gopro-karma-performance/"><u>[Updated] In 2024, Aerial Artistry in Motion Examining GoPro Karma Performance</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-ultimate-guide-to-adding-a-link-in-your-tiktok-bio/"><u>[Updated] In 2024, The Ultimate Guide to Adding a Link in Your TikTok Bio</u></a></li>
+<li><a href="https://driver-error.techidaily.com/asus-pc-backlight-malfunctioning/"><u>Asus PC Backlight Malfunctioning</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/expert-tips-to-triumph-in-spotifys-ad-marketplace/"><u>Expert Tips to Triumph in Spotify's Ad Marketplace</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-8-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>In 2024, iPhone 8 Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-cutting-edge-imaging-a-shoppers-selection-process/"><u>In 2024, Navigating Cutting-Edge Imaging A Shopper's Selection Process</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-superior-titles-for-live-game-broadcasting/"><u>In 2024, Superior Titles for Live Game Broadcasting</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-user-interface-and-functionality-app-checkup/"><u>In 2024, User Interface & Functionality App Checkup</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/rectified-xbox-series-graphics-bug/"><u>Rectified Xbox Series Graphics Bug</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/step-by-step-process-on-restoring-information-from-locked-out-hard-drives/"><u>Step-by-Step Process on Restoring Information From Locked Out Hard Drives</u></a></li>
+</ul></div>
 

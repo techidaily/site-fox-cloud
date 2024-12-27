@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Bringing Still Images to Life  A Step-by-Step Guide for Slow-Motion Videos with Photos for 2024\""
-date: 2024-08-15T18:15:45.642Z
-updated: 2024-08-16T18:15:45.642Z
+date: 2024-12-26T18:09:28.498Z
+updated: 2024-12-27T16:07:26.309Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ While the [Photos app in Windows 10](https://www.microsoft.com/en-us/p/microsoft
 * [**Part2: Customizing the Slow Motion Effect**](#part2)
 * [**Part3: How to Edit in Slow Motion Online**](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1：How to Use Slow Motion in Windows 10
 
 There is no need to spend hundreds of dollars on a video program if you need to perform some basic editing and effects on your videos. For instance, you can add the slow motion effect using the Photos app that comes pre-installed on Windows 10 computers.
@@ -42,9 +46,6 @@ Navigate to the folder where your video file is located and right click on it. Y
 
 If you do not see the option anywhere on your Photos app, there is a chance you are running an outdated version of Windows 10 on your computer. All you need to do is navigate to Windows Update through your system menu. When all the updates install, you will have the latest Photos app with this feature.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2：Customizing the Slow Motion Effect
 
 When you are using the Photos app to add a slow motion effect to your videos, you can tweak it to your liking. You will be able to select the speed using a slider, which lets you get the precise slow motion effect that you desire.
@@ -54,8 +55,9 @@ There is also the handy option of being able to select the portion of your video
 Now you can select the beginning and end point using the bottom slider on the Photos app. Choose the precise starting and ending of the slow motion effect, and then watch through your video to ensure it is exactly as you want.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/make-slow-motion-microsoft-photos.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 We recommend that you save your video file under a new name when you are done making your desired changes. It ensures that you still have the original copy of the video saved on your computer or external hard drive.
@@ -64,9 +66,6 @@ You can even create multiple versions of the file with the slow motion effect ap
 
 **You may also like:** [How to Use Story Remix to Edit a Video in Windows 10 Photos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: How to Edit in Slow Motion Online
 
 If you are not able to access a Windows computer, you may want a solution that can be used online. The good news is that you can use some [online video speed changers](https://tools.techidaily.com/wondershare/filmora/download/)to add a slow motion effect to your content.
@@ -82,8 +81,9 @@ You can choose a file from your computer to add it onto the site, before you wil
 Click on the “upload video” button so that it can be added into the database. You will be limited to videos that are less than 100MB. If your video is larger, you may want to use a separate program to reduce its size before adding it to EZGif.com.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/ezgif-change-videos-speed-import.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Output**
@@ -91,22 +91,9 @@ Click on the “upload video” button so that it can be added into the database
 The program will let you adjust the video speed to your liking. Then you will get a URL for the output video, which will have been slowed down according to your settings. There is even an option to keep the audio track at the same speed, but you can slow down the audio at the same rate as the video if you want.
 
 ![slow motion video microsoft photos](https://images.wondershare.com/filmora/article-images/change-video-speed-ezgif-edit.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -114,8 +101,9 @@ Key features:
 Now that you have understood how to add the effect of slow motion in Windows 10 Photos, you will be able to tweak your videos even more. The Photos application has many other features that you may want to check out, which will help you edit images and videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,4 +129,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-ensuring-data-privacy-while-transforming-youtube-video-audio-to-mp3/"><u>[New] In 2024, Ensuring Data Privacy While Transforming YouTube Video Audio to MP3</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-superior-online-sound-devices-ranked-for-recording-2023-for-2024/"><u>[New] Superior Online Sound Devices Ranked for Recording 2023 for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-basics-of-kinetic-illustration-mastery/"><u>[Updated] 2024 Approved Basics of Kinetic Illustration Mastery</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-expert-pick-prime-drone-gimbals-for-2024/"><u>[Updated] Expert Pick Prime Drone Gimbals for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fading-flourishes-invisible-audio-adjustments-in-garageband/"><u>[Updated] Fading Flourishes Invisible Audio Adjustments in Garageband</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-free-mindset-audio-selection/"><u>[Updated] In 2024, Free Mindset Audio Selection</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/becoming-a-pro-in-video-enhancement-vce-22-guide-for-2024/"><u>Becoming a Pro in Video Enhancement - VCE 2.2 Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/celebrating-18-years-digiartys-exclusive-commemorative-project/"><u>Celebrating 18 Years: Digiarty's Exclusive Commemorative Project</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-a-computer-that-wont-start-solutions-worked/"><u>How to Fix a Computer That Won't Start - Solutions Worked</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-birthstones-and-emojis-tailoring-your-whatsapp-profile-by-sign/"><u>In 2024, Birthstones and Emojis Tailoring Your WhatsApp Profile by Sign</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-bridging-the-gap-from-rgb-to-standardized-srgb/"><u>In 2024, Bridging the Gap From Rgb to Standardized Srgb</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-through-excellent-hdr-cam-choices-for-2024/"><u>Navigating Through Excellent HDR Cam Choices for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/overcoming-the-chaos-how-apple-can-transform-the-ios-18-photos-app-experience/"><u>Overcoming the Chaos: How Apple Can Transform the iOS 18 Photos App Experience</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-granblue-fantasys-relinking-issues-in-pc-version/"><u>Solving Granblue Fantasy's Relinking Issues in PC Version</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnet-critique-unveiling-the-truth-about-microsoft-surface-laptop-n-a-balanced-review-beyond-madness/"><u>ZDNET Critique: Unveiling the Truth About Microsoft Surface Laptop N – A Balanced Review Beyond Madness</u></a></li>
+</ul></div>
 

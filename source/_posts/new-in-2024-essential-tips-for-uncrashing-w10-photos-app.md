@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Essential Tips for Uncrashing W10 Photos App"
-date: 2024-08-15T18:11:52.608Z
-updated: 2024-08-16T18:11:52.608Z
+date: 2024-12-22T17:53:51.967Z
+updated: 2024-12-27T17:06:22.880Z
 tags: 
   - screen-recording
   - ai video
@@ -43,8 +43,9 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -56,12 +57,13 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -72,15 +74,17 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
    4. Tap ‘Restore Defaults’ from the bottom-right portion of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -91,9 +95,6 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -117,8 +118,9 @@ Here is how to reinstall the Windows 10 Photos App –
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -150,4 +152,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-behind-the-scenes-unpacking-instagram-stories/"><u>[New] Behind the Scenes Unpacking Instagram Stories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ultimate-guide-to-top-8-gold-text-in-3d-realms/"><u>[New] In 2024, Ultimate Guide to Top 8 Gold Text in 3D Realms</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ultimate-playlist-for-bike-enthusiasts/"><u>[New] In 2024, Ultimate Playlist for Bike Enthusiasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastering-azure-speech-to-text-a-step-by-step-guide/"><u>[New] Mastering Azure Speech-to-Text A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-peakquality-resizer-cross-platform-edition/"><u>[New] PeakQuality Resizer – Cross-Platform Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-dive-into-drone-flying-with-the-syma-x5c-review-for-starters/"><u>[Updated] 2024 Approved Dive Into Drone Flying with the Syma X5C Review for Starters</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-enhancing-gaming-the-ultimate-xbox-screen-recorders-guide/"><u>[Updated] Enhancing Gaming The Ultimate Xbox Screen Recorder's Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-expert-insights-into-micro-photography-and-film-production/"><u>[Updated] Expert Insights Into Micro Photography and Film Production</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-sony-bdp-s3700-review-updated/"><u>[Updated] In 2024, Sony BDP- S3700 Review - Updated</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-splurging-less-with-low-cost-vr-technology-china-for-2024/"><u>[Updated] Splurging Less with Low-Cost VR Technology (China) for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-resource-powerdirector-users/"><u>2024 Approved The Ultimate Resource PowerDirector Users</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/hear-the-difference-with-airpods-pro-2s-new-hearing-aid-feature-at-an-unbeatable-price-save-24-now-special-deal/"><u>Hear the Difference with AirPods Pro 2'S New Hearing Aid Feature at an Unbeatable Price: Save 24% Now Special Deal!</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-retail-marketing-through-vr-technology/"><u>In 2024, Retail Marketing Through VR Technology</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-sketch-spectacular-top-10-bare-essentials-for-mac-illustrators/"><u>In 2024, Sketch Spectacular Top 10 Bare Essentials for Mac Illustrators</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/minimalist-approach-to-podcast-livestream/"><u>Minimalist Approach to Podcast Livestream</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/noise-reduction-mastery-tips-and-tricks-for-final-cut-pro-x-users/"><u>Noise Reduction Mastery Tips and Tricks for Final Cut Pro X Users</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/prime-time-top-10-methods-for-flawless-cricket-broadcasts-for-2024/"><u>Prime Time Top 10 Methods for Flawless Cricket Broadcasts for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Behind Stock Image Memes  Stories That Stood the Test\""
-date: 2024-12-16T02:03:22.858Z
-updated: 2024-12-22T00:07:19.534Z
+date: 2024-12-25T18:32:34.189Z
+updated: 2024-12-27T17:31:31.958Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ Since 2011, Hide the Pain Harold continues to rank as one of the world's most po
 
 ![meme appears on social media](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * A text-to-speech YouTube video on the meme has over 492,000 views since going live in September 2015.
 * The stock photo meme guy conducted a TEDx talk in his native Ukraine in September 2018\. During the talk, Mr. Andras Arato, a 73-year-old retired electrical engineer, speaks on his fame as a meme-personality and his profession. Currently, the video has nearly 7.87 million views on TEDx's official YouTube channel.
 * Finally, you can view all Hide the Pain Harold memes from its dedicated website.
@@ -47,7 +51,7 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 ![do stock image modeling](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
@@ -59,7 +63,7 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
@@ -81,10 +85,6 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part3: I Bet He's Thinking About Other Women
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
@@ -101,10 +101,6 @@ A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
 * The meme also appears in a 2017 tweet by @NFLRT, an NFL fan account, where the man questions when Colin Kaepernick will be signed.
@@ -113,19 +109,15 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -144,6 +136,10 @@ The photo is available on most stock photo websites, such as Adobe and Tumblr. F
 
 ## Part5: FAQs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Can you use stock photos for memes?
 
 Yes, you can use stock photos for memes. However, you need to obtain them from royalty-free stock photo providers such as Shutterstock and Pexels. In addition, ensure you understand the license requirements before using the photo.
@@ -151,12 +147,16 @@ Yes, you can use stock photos for memes. However, you need to obtain them from r
 This is because not all stock photo providers offer their images with a creative commons license. For example, the Unsplash license allows you to use their stock images for personal or commercial use after making adjustments to the original.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -194,14 +194,24 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-channel-your-inner-narrative-impactful-life-stories-yt/"><u>[New] In 2024, Channel Your Inner Narrative Impactful Life Stories YT</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-master-your-craft-best-drawing-tools-on-the-chromebook-spectrum/"><u>[New] In 2024, Master Your Craft Best Drawing Tools on the Chromebook Spectrum</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nveiling-the-most-innovative-free-video-editors-for-idevices/"><u>[New] Unveiling the Most Innovative Free Video Editors for iDevices</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-strategic-placement-sites-for-video-marketing/"><u>[Updated] In 2024, Strategic Placement Sites for Video Marketing</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-future-of-home-entertainment-tv-or-projection-for-4k/"><u>[Updated] The Future of Home Entertainment TV or Projection for 4K?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-12-mini-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone 12 mini Password? Learn the Best Methods To Unlock</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-progopro-sessions-four-meets-five/"><u>In 2024, ProGoPro Sessions Four Meets Five</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-the-virtual-meeting-room-key-strategies-for-a-winning-skype-interview-2024-edition/"><u>Mastering the Virtual Meeting Room: Key Strategies for a Winning Skype Interview, 2024 Edition</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/pulling-puzzled-listeners-intros-that-involve-for-2024/"><u>Pulling Puzzled Listeners Intros That Involve for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cool-climates-cozy-cinematics-selecting-winter-backgrounds/"><u>[New] 2024 Approved Cool Climates, Cozy Cinematics Selecting Winter Backgrounds</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-premium-data-recorder-compatible-with-sony-a7s/"><u>[New] 2024 Approved Premium Data Recorder Compatible with Sony A7S</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-unlock-full-potential-advanced-tips-for-zooming-images-in-snapchat/"><u>[New] 2024 Approved Unlock Full Potential Advanced Tips for Zooming Images in Snapchat</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-your-next-best-source-for-world-exploration/"><u>[New] 2024 Approved Your Next-Best Source for World Exploration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-brand-trust-through-video-praise/"><u>[Updated] 2024 Approved Brand Trust Through Video Praise</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-discover-ultimate-sites-for-stunning-sky-photos/"><u>[Updated] 2024 Approved Discover Ultimate Sites for Stunning Sky Photos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-discovering-the-superiority-of-m1-max-clip-design/"><u>[Updated] 2024 Approved Discovering the Superiority of M1 Max Clip Design</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-comprehensive-guide-to-mastering-zoom-win10-for-2024/"><u>[Updated] A Comprehensive Guide to Mastering Zoom (Win10) for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-bringing-life-to-slides-adding-audio-effectively-powerpoint/"><u>[Updated] Bringing Life to Slides Adding Audio Effectively (PowerPoint)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-manufacture-mirthful-animations-on-giphy/"><u>[Updated] In 2024, Manufacture Mirthful Animations on Giphy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-5-best-full-hd-action-cameras-below-100/"><u>[Updated] In 2024, Top 5 Best Full HD Action Cameras Below $100</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-sky-high-security-for-your-photos-explore-free-and-paid-options-for-2024/"><u>[Updated] Sky-High Security for Your Photos Explore Free and Paid Options for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-slicephoto-inspection/"><u>[Updated] SlicePhoto Inspection</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/demystifying-apple-watch-face-id-customization-learn-how-to-swap-looks-with-ease/"><u>Demystifying Apple Watch Face ID Customization: Learn How to Swap Looks with Ease!</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/dissecting-why-photobooth-video-playback-fails/"><u>Dissecting Why Photobooth Video Playback Fails</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-the-renewed-classic-ratchet-and-clank/"><u>In-Depth Analysis of the Renewed Classic: Ratchet & Clank</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-from-blurry-to-brilliant-video-quality-improvement-solutions-for-2024/"><u>New From Blurry to Brilliant Video Quality Improvement Solutions for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/resolved-disneyplus-streaming-issues-fixed-on-roku-devices-overcome-error-codes-42-and/"><u>Resolved: Disney+ Streaming Issues Fixed on Roku Devices - Overcome Error Codes 42 And</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unveiling-the-art-of-flipping-photo-shades/"><u>Unveiling the Art of Flipping Photo Shades</u></a></li>
 </ul></div>
 

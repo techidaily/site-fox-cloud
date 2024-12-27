@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Foundations of Fluid Graphics  A Primer\""
-date: 2024-12-18T19:41:23.154Z
-updated: 2024-12-21T22:55:19.401Z
+date: 2024-12-26T17:02:22.305Z
+updated: 2024-12-27T17:32:56.657Z
 tags: 
   - screen-recording
   - ai video
@@ -26,7 +26,7 @@ If you're thinking, "What is motion graphics?" let me explain that they are a pa
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is Motion Graphics
@@ -36,7 +36,7 @@ Motion graphics is a fantastic tool for presenting stories and mixing animation 
 Stunning motion graphics animation for brand apps and web platforms conveys a lot of information in a short, straightforward, aesthetically appealing film while showcasing complex images, thoughts, and concepts. As a result, it aids in quickly delivering a message and effortlessly grabbing and holding the audience's attention. Any field you choose, including business, marketing, IT solutions, the film industry, education, healthcare, social networks, or entertainment, can benefit from excellent animation design.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## When to use Motion Graphics?
@@ -44,7 +44,7 @@ Stunning motion graphics animation for brand apps and web platforms conveys a lo
 The most pleasing motion graphics outline or emphasize information while demonstrating a point. When a narrative or plot is not required, motion graphics are employed. Motion graphic videos may simplify and make unforgettable your complicated services or goods. Motion graphics are mostly visual aids; hence they are excellent at explaining complex concepts through imagery.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to make Motion Graphics?
@@ -59,7 +59,7 @@ Motion graphics may be used in various situations to add life and humor to a pre
 4. Telling a Story \- you can use motion graphics to create a music video. Like other music videos, the illustrations tell a story that complements the song. It's an exciting concept highlighting the different contexts motion graphics can use. You can use them to create an advertisement or even make a short film.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Benefits of Motion Graphics
@@ -69,7 +69,7 @@ Motion graphics may be used in various situations to add life and humor to a pre
 * Brand recognition is increased. Viewers may readily understand if complex images, concepts, and statistics are presented clearly, and excitingly.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The use of Motion Graphics
@@ -132,19 +132,19 @@ Keep in mind that there is a lot of overlap between motion graphics and other fo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-the-art-of-closeup-essential-filmmaking-tips-for-2024/"><u>[New] Mastering the Art of Closeup Essential Filmmaking Tips for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-optic-oasis-discover-the-top-10-lenses/"><u>[New] Optic Oasis Discover the Top 10 Lenses</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-fresh-look-at-sonys-ultra-hd-player-s3700/"><u>[Updated] 2024 Approved Fresh Look at Sony's Ultra HD PLAYER S3700</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-dive-into-the-positive-side-of-asmr/"><u>[Updated] Dive Into The Positive Side Of ASMR</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-how-to-duplicate-your-instagram-posts-for-2024/"><u>[Updated] How to Duplicate Your Instagram Posts for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-simulate-hand-held-camera-effects-in-photoshop/"><u>[Updated] Simulate Hand-Held Camera Effects in Photoshop</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-windows-11-simplified-video-cutting-tips-and-tricks/"><u>[Updated] Windows 11 Simplified Video Cutting Tips & Tricks</u></a></li>
-<li><a href="https://games-able.techidaily.com/closing-the-virtual-marketplaces-refund-backdoor/"><u>Closing the Virtual Marketplace’s Refund Backdoor</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-linguistics-a-turk-korean-odyssey/"><u>Comparative Linguistics: A Turk-Korean Odyssey</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/ensuring-compatibility-updating-your-windows-system-with-samsung-960-evo-driver/"><u>Ensuring Compatibility: Updating Your Windows System with Samsung 960 EVO Driver</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/harmonizing-sounds-first-lessons-on-fades-with-audition/"><u>Harmonizing Sounds First Lessons on Fades with Audition</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-itel-s23-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Itel S23 FRP</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-best-recommendations-for-music-video-editors-for-2024/"><u>New Best Recommendations for Music Video Editors for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/ultimate-guide-to-top-9-online-microphone-recorder-choices/"><u>Ultimate Guide to Top 9 Online Microphone Recorder Choices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-exclusive-selections-best-virtual-reality-titles-for-cardboard-for-2024/"><u>[New] Exclusive Selections Best Virtual Reality Titles for Cardboard for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-affordable-panoramic-cameras-revolutionizing-media-production/"><u>[Updated] Affordable Panoramic Cameras Revolutionizing Media Production</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-apex-cameras-capturing-sporting-triumphs/"><u>[Updated] Apex Cameras Capturing Sporting Triumphs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-dissecting-apples-revolutionary-m1-chip/"><u>[Updated] Dissecting Apple’s Revolutionary M1 Chip</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-guide-on-downloading-processing-and-saving-twitter-vids-as-mp3s/"><u>[Updated] Guide on Downloading, Processing, and Saving Twitter Vids as MP3s</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-samsungs-image-crafting-app-benefits-and-insights/"><u>[Updated] Samsung's Image Crafting App Benefits & Insights</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-ultimate-guide-to-digitizing-and-saving-faded-frames/"><u>2024 Approved The Ultimate Guide to Digitizing and Saving Faded Frames</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/all-day-all-night-sports-entertainment-now-available-on-roku-platforms/"><u>All-Day, All-Night Sports Entertainment Now Available on Roku Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/expert-tips-to-triumph-in-spotifys-ad-marketplace/"><u>Expert Tips to Triumph in Spotify's Ad Marketplace</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/hddssdwindows-1011pc/"><u>HDDからSSDへの交換：Windows 10/11ノートPCで実践的なセキュリティによる方法</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-7-key-tools-to-convert-youtube-videos-easily/"><u>In 2024, 7 Key Tools to Convert YouTube Videos Easily</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Poco M6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-mastering-tv-broadcasts-repeating-youtube-videos-effortlessly/"><u>In 2024, Mastering TV Broadcasts Repeating YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/strategize-and-succeed-a-stepwise-approach-to-impactful-reddit-sharing/"><u>Strategize & Succeed A Stepwise Approach to Impactful Reddit Sharing</u></a></li>
 </ul></div>
 

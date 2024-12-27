@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Effortless Text Labeling on Video in Windows Photos\""
-date: 2024-12-20T21:19:10.762Z
-updated: 2024-12-21T20:45:02.753Z
+date: 2024-12-21T18:01:55.772Z
+updated: 2024-12-27T16:40:04.482Z
 tags: 
   - screen-recording
   - ai video
@@ -47,22 +47,22 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
@@ -75,10 +75,6 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -86,17 +82,21 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -130,20 +130,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-aerial-robotics-simplified-how-drones-fly-talk-and-work/"><u>[New] Aerial Robotics Simplified How Drones Fly, Talk & Work</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-essential-cameras-of-the-year-top-10-reviewed-for-2024/"><u>[New] Essential Cameras of the Year - Top 10 Reviewed for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-exclusive-guide-best-10-cost-free-transformers-for-jpg-to-gif/"><u>[New] In 2024, Exclusive Guide Best 10 Cost-Free Transformers for JPG to GIF</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-premiere-pros-art-of-audio-transitioning/"><u>[New] Premiere Pro’s Art of Audio Transitioning</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unpacked-strategies-for-optimal-viewing-of-live-videos-for-2024/"><u>[New] Unpacked Strategies for Optimal Viewing of Live Videos for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-a-world-in-motion-discover-14-text-animation-creations-for-2024/"><u>[Updated] A World in Motion Discover 14 Text Animation Creations for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-best-5-headsets-a-youtube-gamers-guide-for-2024/"><u>[Updated] Best 5 Headsets A YouTube Gamer's Guide for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-art-of-media-manipulation-from-text-formats-to-srts/"><u>[Updated] In 2024, The Art of Media Manipulation From Text Formats to SRTs</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-seamlessly-saving-your-screen-premium-choices-on-pc-and-mac/"><u>2024 Approved Seamlessly Saving Your Screen Premium Choices on PC & Mac</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-uncovering-key-differences-in-panoramic-and-vr-filmmaking/"><u>2024 Approved Uncovering Key Differences in Panoramic & VR Filmmaking</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/a-compreenhensive-guide-to-everyones-gpt-4/"><u>A Compreenhensive Guide to Everyone's GPT-4</u></a></li>
-<li><a href="https://win-able.techidaily.com/immediate-fixes-to-resolve-palworld-not-opening-correctly/"><u>Immediate Fixes to Resolve Palworld Not Opening Correctly</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-efficiency-incorporating-zoom-into-your-gmail-routine/"><u>In 2024, Unlocking Efficiency Incorporating Zoom Into Your Gmail Routine</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/mastering-money-making-the-ultimate-13-beginners-guide-to-reddit/"><u>Mastering Money-Making The Ultimate 13 Beginner's Guide to Reddit</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/on-demand-video-compression-service-zero-cost-no-hassle-video-reduction-solutions/"><u>On-Demand Video Compression Service: Zero Cost, No Hassle Video Reduction Solutions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-your-way-through-vr-headset-selection-is-the-mobile-experience-more-attractive-than-tethered-tech-in-2024/"><u>[New] Navigating Your Way Through VR Headset Selection Is the Mobile Experience More Attractive Than Tethered Tech, In 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-slide-into-style-instagrams-secrets-to-upside-down-visual-content-for-2024/"><u>[New] Slide Into Style Instagram's Secrets to Upside-Down Visual Content for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-igtv-success-guide-three-methods-to-convert-and-share-videos/"><u>[Updated] 2024 Approved IGTV Success Guide Three Methods to Convert and Share Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ultimate-guide-to-economical-high-performance-asmr-microphones-for-2024/"><u>[Updated] Ultimate Guide to Economical, High-Performance ASMR Microphones for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-motorola-edge-40-pro-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-round-the-clock-insight-detailed-look-at-google-podcast/"><u>In 2024, Round-the-Clock Insight Detailed Look at Google Podcast</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-nokia-105-classic-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Nokia 105 Classic? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premium-15-ultra-mobile-video-devices/"><u>Premium 15 Ultra-Mobile Video Devices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionizing-ai-apples-progress-and-areas-needing-improvement-insights/"><u>Revolutionizing AI: Apple's Progress and Areas Needing Improvement - Insights</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210429239-9780593420713-the-way-of-the-goddess/"><u>The Way of the Goddess | Free Book</u></a></li>
 </ul></div>
 
