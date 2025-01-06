@@ -1,7 +1,7 @@
 ---
 title: "[New] Extracting Images From Movies Using Windows 10 Photos App"
-date: 2024-12-26T17:41:59.105Z
-updated: 2024-12-27T19:05:21.070Z
+date: 2025-01-03T18:53:55.056Z
+updated: 2025-01-05T21:36:20.038Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to save photo from Windows 10 Photos app
@@ -56,10 +56,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -71,6 +67,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
@@ -78,7 +78,7 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 We are explaining the solutions here –
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Check the update
@@ -86,7 +86,7 @@ We are explaining the solutions here –
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Sign in a different account in Microsoft Store
@@ -106,7 +106,7 @@ Here comes the guide –
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
@@ -143,24 +143,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-personalized-content-sharing-on-vimeo-basic-plus-and-pro-explained/"><u>[New] 2024 Approved Personalized Content Sharing on Vimeo Basic, Plus & Pro Explained</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/1718607730488-new-2024-approved-photography-tutorial-how-to-shoot-and-create-impressive-hdr-portraits/"><u>[New] 2024 Approved Photography Tutorial_ How to Shoot and Create Impressive HDR Portraits</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-perfect-pixels-in-a-tap-iphone-and-androids-best-skin-editors/"><u>[New] Perfect Pixels in a Tap IPhone & Android's Best Skin Editors</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-iphone-playlist-podcast-tips/"><u>[Updated] The Ultimate iPhone Playlist Podcast Tips</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-a-list-mobile-camera-utilities-for-iphone/"><u>2024 Approved A-List Mobile Camera Utilities for iPhone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-boosting-your-channels-viewer-loyalty-essential-tactics-unveiled/"><u>2024 Approved Boosting Your Channels' Viewer Loyalty Essential Tactics Unveiled</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-cutting-edge-templates-for-memetic-art/"><u>2024 Approved Cutting-Edge Templates for Memetic Art</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-harmony-hub-innovations-showcased/"><u>2024 Approved Harmony Hub Innovations Showcased</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-innovating-with-technology-advanced-gopro-4k-editing-techniques/"><u>2024 Approved Innovating with Technology Advanced GoPro 4K Editing Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-quick-assembly-of-stunning-google-collages/"><u>2024 Approved Quick Assembly of Stunning Google Collages</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-seamless-media-conversion-from-avis-to-striking-gif-images-via-filmora-software-windowsmacos/"><u>2024 Approved Seamless Media Conversion From AVIs to Striking GIF Images via Filmora Software (Windows/macOS)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-sj7s-bold-step-forward-with-its-ultra-hd-4k-action-cam-review/"><u>2024 Approved SJ7's Bold Step Forward with Its Ultra HD 4K Action Cam Review</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-smart-shopping-tips-economical-gopro-cameras/"><u>2024 Approved Smart Shopping Tips Economical GoPro Cameras</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-ultimate-list-for-first-time-film-makers-35mm-to-pands/"><u>2024 Approved The Ultimate List for First-Time Film Makers (35Mm to P&S)</u></a></li>
-<li><a href="https://techtrends.techidaily.com/easy-steps-to-create-and-share-iphone-voice-notes/"><u>Easy Steps to Create and Share iPhone Voice Notes</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-unearthing-the-obscured-videotapes/"><u>In 2024, YouTube Unearthing the Obscured Videotapes</u></a></li>
-<li><a href="https://program-issues.techidaily.com/overcoming-obstacles-in-call-of-duty-black-ops-cold-war-coding-error-0xc0000005-solutions/"><u>Overcoming Obstacles in Call of Duty: Black Ops Cold War - Coding Error 0Xc0000005 Solutions</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-how-to-fix-the-windows-update-error-code-0x802n401c-on-windows-10-and-11/"><u>Resolved: How to Fix the Windows Update Error Code 0X802n401c on Windows 10 and 11</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-picks-ultimate-online-sales-events-for-computers-and-accessories-black-friday-cyber-monday-and-prime-day-of-2024/"><u>Top Picks: Ultimate Online Sales Events for Computers and Accessories - Black Friday, Cyber Monday & Prime Day of 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-leading-websites-for-digital-3d-text-with-a-golden-accent/"><u>[New] 2024 Approved Leading Websites for Digital 3D Text with a Golden Accent</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-dive-into-sound-design-focus-on-auditions-fade-in/"><u>[Updated] Dive Into Sound Design Focus on Audition's Fade In</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-find-your-got-ringtone-leading-online-retailers/"><u>2024 Approved Find Your GoT Ringtone - Leading Online Retailers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/best-free-worldwide-video-chat-solutions-our-picks/"><u>Best Free Worldwide Video Chat Solutions - Our Picks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/demystifying-the-hidden-addresses-of-installed-pc-apps/"><u>Demystifying the Hidden Addresses of Installed PC Apps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-xiaomi-mix-fold-3-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Xiaomi Mix Fold 3 Device</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/master-vob-file-transformation-explore-the-most-effective-online-and-local-converters-for-home-theater-bliss/"><u>Master VOB File Transformation: Explore the Most Effective Online and Local Converters for Home Theater Bliss</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/total-review-demystifying-googles-podcast-app/"><u>Total Review Demystifying Google's Podcast App</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/unveiling-androids-screen-recording-capabilities-for-2024/"><u>Unveiling Android's Screen Recording Capabilities for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unveiling-the-power-of-srt-in-broadcasting-for-2024/"><u>Unveiling the Power of SRT in Broadcasting for 2024</u></a></li>
 </ul></div>
 

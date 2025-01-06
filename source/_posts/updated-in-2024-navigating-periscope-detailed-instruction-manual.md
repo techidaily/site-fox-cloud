@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Navigating Periscope  Detailed Instruction Manual\""
-date: 2024-08-08T10:43:28.170Z
-updated: 2024-08-09T10:43:28.170Z
+date: 2025-01-05T01:07:55.377Z
+updated: 2025-01-06T06:35:43.492Z
 tags: 
   - screen-recording
   - ai video
@@ -26,10 +26,6 @@ thumbnail: https://thmb.techidaily.com/033e16fe59890bceeadfe993413908bd7b5cc9fe4
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Knowing the functions and settings
 
  Periscope is a Twitter special application for live streaming needs and the best part is it works on mobile platforms. Viewers can add comments on videos and they can also forward “hearts” to streamers as a token of appreciation for their impressive work. The app is actually very interaction with four major tabs:
@@ -44,25 +40,28 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  2\. **The second tab** on application is used to display list of public broadcasts on global level and users are free to join all of them. They are developed on the basis of your geographical location.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![use-periscope-2 ](https://images.wondershare.com/filmora/article-images/use-periscope-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  3\. **The third tab** again contains the information about list of live public broadcasts in list format.
 
 ![use-periscope-3 ](https://images.wondershare.com/filmora/article-images/use-periscope-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4\. **The fourth tab** is designed to assist users with easy search for followers. It also displays settings for your own profile and allows users to make basic adjustments for followers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![use-periscope-4 ](https://images.wondershare.com/filmora/article-images/use-periscope-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to watch Periscope Video?
 
  If you want to enjoy a live broadcast on Periscope then you can either try the list format or go for the map version on global broadcast tab; simply touch over the ongoing event that seems interesting to you. It also allows real time interactions with the broadcasters as well as other users that are connected during a particular live event.
@@ -78,17 +77,15 @@ DbSchema database designer for all databases, schema design in the team, schema 
 ![use-periscope-5 ](https://images.wondershare.com/filmora/article-images/use-periscope-5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Broadcast on Periscope?
 
  As per the default setting, broadcasts stay public that means anyone can watch what you have uploaded. But in case if you want to prioritize your audience then Periscope application offers easy personalization. Use private broadcast feature to invite selected audience on your broadcasts. This broadcast setting icon is actually a small camera like shape that can be used from first as well as second tab easily.
 
  During your very first visit to broadcast screen, you will find a permission required pop up. Here you have to hit on allow permissions option. Now enable all three options that appear on screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![use-periscope-6 ](https://images.wondershare.com/filmora/article-images/use-periscope-6.jpg)
 
  Now you are at broadcast screen where you have to enter name or title of your broadcast event. Users can adjust their location preferences while converting broadcasts from private to public or vice versa view. Adjust the chat options and finally you will reach at your Twitter link. If you want to capture feeds from webcam then it can be switched easily by simply double tapping on device screen. Once all these controls have been adjusted then your app provides an event summery, you can approve it or edit before making your post live. It will also provide you details about how many hearts you have received from viewers.
@@ -98,6 +95,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
  Once your broadcast becomes live then it will stay online for next 24 hours and all viewers and followers will be able to replay, watch as well as share the information with other users. The collection of hearts as viewer’s response may go on.
 
 ![use-periscope-8 ](https://images.wondershare.com/filmora/article-images/use-periscope-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tips to get more followers or viewers on Periscope
 
@@ -117,9 +118,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  7\. Try to build a strong community and always share a valuable content as per interest of your viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -145,4 +143,24 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-enhancing-your-media-production-skills-with-easy-to-follow-guides-for-windows-8-movie-maker/"><u>[New] 2024 Approved Enhancing Your Media Production Skills with Easy-to-Follow Guides for Windows 8 Movie Maker</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-elite-5-fpv-hmds-for-high-speed-aerial-sports/"><u>[New] Elite 5 FPV HMDs for High-Speed Aerial Sports</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-expert-techniques-for-manipulating-iphone-photos-for-2024/"><u>[New] Expert Techniques for Manipulating iPhone Photos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-soundtrack-strategy-amplifying-unboxing-content-for-2024/"><u>[New] The Soundtrack Strategy Amplifying Unboxing Content for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-physical-prowess-meets-online-opinions/"><u>[Updated] In 2024, Physical Prowess Meets Online Opinions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pioneering-cloud-innovation-the-best-providers-of-2024/"><u>[Updated] Pioneering Cloud Innovation The Best Providers of 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-windows-movie-maker-6-a-download-primer/"><u>[Updated] Windows Movie Maker 6 A Download Primer</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-a-comprehensive-guide-to-previewing-facebooks-hidden-activities/"><u>2024 Approved A Comprehensive Guide to Previewing Facebook's Hidden Activities</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/androidiphone-mastery-discover-the-ultimate-top-8-app-set/"><u>Android/iPhone Mastery Discover the Ultimate Top 8 App Set</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/banish-pixel-shadows-from-your-display-with-these-quick-fixes/"><u>Banish Pixel Shadows From Your Display with These Quick Fixes</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-s23-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from S23</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-cutting-edge-tech-the-toms-hardware-showcase/"><u>Discover Cutting-Edge Tech: The Tom's Hardware Showcase</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-12-live-video-streaming-app-for-watching-and-streaming-videos/"><u>In 2024, 12 Live Video Streaming App for Watching and Streaming Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-ethereal-moment-capture-tech/"><u>In 2024, Ethereal Moment Capture Tech</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-photobooth-glitch-unraveling-video-lags/"><u>In 2024, Photobooth Glitch Unraveling Video Lags</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-rated-security-keys-industry-experts-seal-of-approval-zdnet/"><u>Top-Rated Security Keys : Industry Experts' Seal of Approval - ZDNet</u></a></li>
+</ul></div>
 

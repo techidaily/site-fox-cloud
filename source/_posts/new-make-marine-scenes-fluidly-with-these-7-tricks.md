@@ -1,7 +1,7 @@
 ---
 title: "[New] Make Marine Scenes Fluidly with These 7 Tricks"
-date: 2024-12-25T16:26:02.034Z
-updated: 2024-12-27T17:41:11.571Z
+date: 2024-12-30T05:41:48.037Z
+updated: 2025-01-05T22:38:45.231Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 
 ![frame shot](https://images.wondershare.com/filmora/article-images/frame-shot.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\. Get closer
 
  You need to get as close to your subject as you possibly can. It may take several attempts to get it right, especially if you’ve just about got the shot you want but your subject inevitably floats or swims away.
@@ -60,7 +56,7 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Lighting is important
@@ -72,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
  You can instead make use of natural sunlight, which should help you get the excellence you require even when you’re shooting at more than 30 metres depth. Deeper white balancing can be helpful during cloudy days.
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. Stay steady
 
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
@@ -106,7 +106,7 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit your footage
@@ -121,11 +121,11 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
 
@@ -152,18 +152,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-expert-picks-11-easy-waterproof-kids-camcorders-for-vlogging/"><u>[New] Expert Picks 11 Easy, Waterproof Kids' Camcorders For Vlogging</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-surprise-uncovered-secrets-to-take-your-window-11-experience-up-a-notch/"><u>[New] In 2024, Surprise! Uncovered Secrets to Take Your WINDOW 11 Experience Up a Notch</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-android-gaming-experience-kinemaster-reviewed-for-2024/"><u>[New] The Ultimate Android Gaming Experience - KineMaster Reviewed for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-top-secret-instagram-stories-viewer-apps-for-2024/"><u>[New] Top Secret Instagram Stories Viewer Apps for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-uncovering-the-invisible-how-to-inspect-facebooks-data-trails/"><u>[New] Uncovering the Invisible How to Inspect Facebook's Data Trails</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/easy-safe-and-cost-free-the-leaders-guide-to-downloading-pins/"><u>Easy, Safe, and Cost-Free The Leader's Guide to Downloading Pins</u></a></li>
-<li><a href="https://techtrends.techidaily.com/los-peligros-de-copiar-un-dvd-al-disco-duro-sin-rehacerlo-por-que-evitar-esta-practica/"><u>Los Peligros De Copiar Un DVD Al Disco Duro Sin Rehacerlo: Por Qué Evitar Esta Práctica</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/marvelous-evaluation-and-replacement-insight/"><u>Marvelous Evaluation & Replacement Insight</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/pioneering-artistry-on-screen-top-15-stop-motion-marvels/"><u>Pioneering Artistry on Screen Top 15 Stop-Motion Marvels</u></a></li>
-<li><a href="https://games-able.techidaily.com/pokemon-gameplay-tips-for-iphoneipad-users/"><u>Pokémon Gameplay Tips for iPhone/iPad Users</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/premier-paint-shop-pro-tricks-for-2024/"><u>Premier Paint Shop Pro Tricks for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/transformer-gratuitement-un-fichier-mp2-en-flac-en-ligne-convertissez-sans-frais-avec-movavi/"><u>Transformer Gratuitement Un Fichier MP2 en FLAC en Ligne - Convertissez Sans Frais Avec Movavi</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unveiling-top-7-factors-why-you-shouldnt-upgrade-from-win10-to-win11/"><u>Unveiling Top 7 Factors: Why You Shouldn't Upgrade From Win10 to Win11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-convert-spoken-words-into-written-content-using-ms-words-in-built-tools/"><u>[New] 2024 Approved Convert Spoken Words Into Written Content Using MS Word's In-Built Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-ultimate-review-of-wirecast-and-similar-programs/"><u>[New] In 2024, The Ultimate Review of WireCast & Similar Programs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-jokejuxtaposer-quickly-craft-memes-for-all-occasions-for-2024/"><u>[Updated] JokeJuxtaposer Quickly Craft Memes for All Occasions for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amd-neglects-critical-security-fixes-on-vulnerable-chipsets-sinkclose-bug-remains-in-legacy-ryzen-cpus/"><u>AMD Neglects Critical Security Fixes on Vulnerable Chipsets; 'Sinkclose' Bug Remains in Legacy Ryzen CPUs</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-honor-x9b-device-sim-by-drfone-android/"><u>Easily Unlock Your Honor X9b Device SIM</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-windows-update-error-code-80t7000e-instantly-a-step-by-step-guide/"><u>Fix Windows Update Error Code 80T7000E Instantly: A Step-by-Step Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-s17-pro-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo S17 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-lava-blaze-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Lava Blaze Pro 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo S18 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/master-the-art-of-filming-at-home-top-5-efficient-tricks-for-2024/"><u>Master the Art of Filming at Home – Top 5 Efficient Tricks for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-running-a-no-barriers-chatgpt-lookalike-on-windows-with-freedomgpt/"><u>Step-by-Step Guide: Running a No-Barriers ChatGPT Lookalike on Windows with FreedomGPT</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/the-impact-of-tweaking-the-registry-on-your-pcs-health-expert-advice-by-yl-software-experts/"><u>The Impact of Tweaking the Registry on Your PC's Health - Expert Advice by YL Software Experts</u></a></li>
 </ul></div>
 

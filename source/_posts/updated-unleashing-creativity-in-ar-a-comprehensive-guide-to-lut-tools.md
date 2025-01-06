@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unleashing Creativity in AR  A Comprehensive Guide to LUT Tools\""
-date: 2024-12-24T17:44:00.312Z
-updated: 2024-12-27T17:37:54.277Z
+date: 2025-01-05T00:12:08.299Z
+updated: 2025-01-05T17:47:03.059Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ Color LUTs (Lookup Textures) are tables of RGB color values. In Spark AR, you ca
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. What are Luts in Spark AR used for?
 
 To create a color filter effect in [Spark AR](https://sparkar.facebook.com/ar-studio/), you need a color LUT in Spark AR.
@@ -34,7 +38,7 @@ To develop AR effects for mobile cameras, you can use the Mac and Windows augmen
 ![create a color gradient effect](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to use LUTs in Spark AR?
@@ -58,7 +62,7 @@ A patch graph is automatically set that applies a color LUT to the entire scene.
 ![apply to the whole scene](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The color LUT patch graph**
@@ -66,10 +70,6 @@ A patch graph is automatically set that applies a color LUT to the entire scene.
 The patch graph that renders the color gradation effect looks like this:
 
 ![color lut patch graph](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **To create the effect:**
 
@@ -81,10 +81,6 @@ The patch graph that renders the color gradation effect looks like this:
 
 Here are the best free LUTs resources for Spark AR:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. [Frost Zombie (Technical Showcase)](https://we.tl/t-1uj4wJKluG)
 
 Client filter pieces occasionally end up on the scrap heap. It was a poor Frost Zombie in this instance. Since this is one of my simpler filters, I felt it was okay to publish the build information. Four objects make up much of the scene: an EyeColor block, a custom canvas segmentation, a face mesh, and an emitter for the breath mist (my personal favorite). To show the layers used in generating the primary zombie texture, I also moved to Substance Painter. This is a demonstration of my methods rather than a step-by-step manual.
@@ -92,7 +88,7 @@ Client filter pieces occasionally end up on the scrap heap. It was a poor Frost 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Fur
@@ -115,7 +111,7 @@ Even while using large image sequences is frequently discouraged, you can still 
 ![shockwave](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Transition Curves
@@ -125,7 +121,7 @@ There are 11 distinct animation curves included with Spark AR in the Transition 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. Realistic Smoke
@@ -133,6 +129,10 @@ There are 11 distinct animation curves included with Spark AR in the Transition 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
 
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Rainbow Glitter
 
@@ -174,22 +174,16 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-explore-movies-for-free-simple-video-player-software/"><u>[New] 2024 Approved Explore Movies for Free Simple VIDEO Player Software</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-avoiding-darkness-with-lightrooms-dynamic-range-technique-for-2024/"><u>[New] Avoiding Darkness with Lightroom’s Dynamic Range Technique for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-enhancing-package-revelation-7-ways/"><u>[New] Enhancing Package Revelation 7 Ways</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-easyshadecleanse-professionally-crafted-erase-software/"><u>[New] In 2024, EasyShadeCleanse Professionally Crafted Erase Software</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-infusing-fun-in-feeds-animating-instagram-text-on-stories/"><u>[New] In 2024, Infusing Fun in Feeds Animating Instagram Text on Stories</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-unleash-creativity-fast-windows-10-photo-edits-made-simple/"><u>[New] In 2024, Unleash Creativity Fast Windows 10 Photo Edits Made Simple</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-wheres-the-magic-explore-real-world-hidden-gems-through-location-services/"><u>[Updated] 2024 Approved Where's the Magic? Explore Real-World Hidden Gems Through Location Services</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-boost-your-snaps-to-new-heights-with-expert-snapchat-tips-for-2024/"><u>[Updated] Boost Your Snaps to New Heights with Expert Snapchat Tips for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-dissecting-the-marketplace-does-inshot-dominate-editing-for-2024/"><u>[Updated] Dissecting the Marketplace Does InShot Dominate Editing for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-harnessing-hashtags-elevating-your-youtube-gaming-series/"><u>[Updated] Harnessing Hashtags Elevating Your YouTube Gaming Series</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-live-stream-pioneers-top-10-sites-ranked/"><u>[Updated] In 2024, Live Stream Pioneers Top 10 Sites Ranked</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-navigating-the-digital-space-with-impactful-fb-giveaway-posts/"><u>[Updated] Navigating the Digital Space with Impactful FB Giveaway Posts</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-ultimate-mac-hd-capture-and-sound-recording-tool/"><u>[Updated] Ultimate Mac HD Capture & Sound Recording Tool</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-what-is-the-best-mp4-cutter-for-youtubers-on-mac/"><u>2024 Approved What Is the Best MP4 Cutter for YouTubers On Mac?</u></a></li>
-<li><a href="https://windows11.techidaily.com/conquering-frequent-anydesk-windows-complications/"><u>Conquering Frequent AnyDesk Windows Complications</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/expert-tips-to-address-and-correct-logitech-c615-hardware-drivers-quickly/"><u>Expert Tips to Address and Correct Logitech C615 Hardware Drivers Quickly</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/money-saving-drones-reviewed-top-5-under-100-models/"><u>Money-Saving Drones Reviewed Top 5 Under $100 Models</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ultimate-energy-kits-for-hero5-official-and-alternative-products/"><u>[New] In 2024, Ultimate Energy Kits for Hero5 - Official & Alternative Products</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-iphones-ultimate-strategy-for-seamless-podcast-downloading-for-2024/"><u>[New] IPhone's Ultimate Strategy for Seamless Podcast Downloading for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-cost-breakdown-for-youtube-ads-for-2024/"><u>[Updated] Cost Breakdown for YouTube Ads for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-selection-of-compact-on-the-move-players-for-2024/"><u>[Updated] The Ultimate Selection of Compact, On-The-Move Players for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-solve-the-there-was-an-issue-when-restoring-your-pc-error-in-windows-11/"><u>How to Solve the There Was an Issue When Restoring Your PC Error in Windows 11</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Poco Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensive-overview-utilizing-googles-automatic-transcription-service/"><u>In 2024, Comprehensive Overview Utilizing Google's Automatic Transcription Service</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-expert-advice-on-chromebooks-and-zoom/"><u>In 2024, Expert Advice on Chromebooks and Zoom</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/iphone-tutorial-snap-and-stream-simultaneously/"><u>IPhone Tutorial Snap and Stream Simultaneously</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/optimizing-your-imovie-content-for-vimeo-display-for-2024/"><u>Optimizing Your iMovie Content for Vimeo Display for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/winkweb-meme-magic-at-your-fingertips/"><u>WinkWeb Meme Magic at Your Fingertips</u></a></li>
 </ul></div>
 

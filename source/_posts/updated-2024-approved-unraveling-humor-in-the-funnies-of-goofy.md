@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unraveling Humor in 'The Funnies of Goofy'\""
-date: 2024-12-26T17:04:49.945Z
-updated: 2024-12-27T16:10:02.643Z
+date: 2024-12-30T06:51:10.830Z
+updated: 2025-01-05T22:54:13.632Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ The movie brings joy and laughter to viewers of all ages. It teaches us that lov
 
 ![goofy movie poster](https://images.wondershare.com/filmora/article-images/2023/goofy-vhs-movie-poster.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Add VHS Effect to Video**
 
 Simply add video effects on Video with [Filmora Video Effect Editor](https://tools.techidaily.com/wondershare/filmora/download/)! Experience the magic of cool yet outstanding video effects, where your videos come to life in beautiful visuals.
@@ -50,7 +54,7 @@ Simply add video effects on Video with [Filmora Video Effect Editor](https://too
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How Was VHS Technology Used in Old Movies?
@@ -82,7 +86,7 @@ As the VHS market grew, movie distributors released special editions and collect
 Such tapes became a valuable resource for film education and study. Film schools, universities, and film enthusiasts would compile these tapes for research purposes. It allows students and researchers to study and analyze films at their own pace. Similarly, it provided a medium for referencing and studying specific scenes or films in detail.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Wondershare Filmora: The New Age VHS Technology Video Editor
@@ -111,10 +115,6 @@ Drag and drop the "VHS Rewind" effect from the same tab onto the timeline. Furth
 
 ![add rewind and glitch](https://images.wondershare.com/filmora/article-images/2023/add-rewind-and-glitch.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step 3Apply the Chromatic Aberration and VCR Distortion Effect
 
 Continue to drag and place the "Chromatic Aberration" effect over the previous layer. Set the parameters of Fade and Alpha, 0.05 and 60, respectively. Go to "Effects" and type "distortion" in the search bar and find the "VCR Distortion" effect. Then, drag the effect onto the timeline, place it over the previous layer, and change the alpha value to 25.
@@ -127,6 +127,10 @@ Proceed to drag and drop the "Glitch Distortion" effect and place it over the pr
 
 ![add glitch distortion to preset](https://images.wondershare.com/filmora/article-images/2023/add-glitch-distortion-to-preset.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 5Export Your Edited Video
 
 After finishing your editing, click on the Export button and export your video with the VHS effect to your desired format. By following these steps in Wondershare Filmora, you can easily add **an extreme Goofy movie VHS effect** to your video.
@@ -134,7 +138,7 @@ After finishing your editing, click on the Export button and export your video w
 ![export entire vhs preset](https://images.wondershare.com/filmora/article-images/2023/export-entire-vhs-preset.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -145,16 +149,12 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How Was VHS Technology Used in Old Movies?
@@ -195,10 +195,6 @@ Such tapes became a valuable resource for film education and study. Film schools
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you don't feel like applying in-built overlays from the 100+ collection of [VHS video effects](https://tools.techidaily.com/wondershare/filmora/download/), then don't because you can create your own. In this portion, you will learn how a movie, like VHS preset, can be created using this tool. These steps will properly explain to you step by step how to create a VHS look effect.
@@ -214,6 +210,10 @@ Launch Wondershare Filmora and open the “Stock Media” tab. Locate “Solid C
 Drag and drop the "VHS Rewind" effect from the same tab onto the timeline. Further, place the effect over the previous layer and change its alpha value to 10\. Next, place the "Strong Glitch" effect over the previous layer, adjust its alpha value to 25, and click "OK."
 
 ![add rewind and glitch](https://images.wondershare.com/filmora/article-images/2023/add-rewind-and-glitch.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step 3Apply the Chromatic Aberration and VCR Distortion Effect
 
@@ -234,7 +234,7 @@ After finishing your editing, click on the Export button and export your video w
 ![export entire vhs preset](https://images.wondershare.com/filmora/article-images/2023/export-entire-vhs-preset.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -265,17 +265,21 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-premium-components-for-next-gen-streaming/"><u>[New] 2024 Approved Premium Components for Next-Gen Streaming</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-comprehensive-guide-to-capturing-perfect-instagram-covers/"><u>[New] 2024 Approved The Comprehensive Guide to Capturing Perfect Instagram Covers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-elevate-live-streaming-on-mac-a-guide-to-1-5-tools/"><u>2024 Approved Elevate Live Streaming on Mac A Guide to #1-5 Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-idealized-panzoid-blueprints-collection/"><u>2024 Approved Idealized Panzoid Blueprints Collection</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-seamless-video-editing-on-windows-11-platform/"><u>2024 Approved Seamless Video Editing on Windows 11 Platform</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-streamline-your-projects-expert-techniques-for-mac-dvd-creation/"><u>2024 Approved Streamline Your Projects Expert Techniques for Mac DVD Creation</u></a></li>
-<li><a href="https://win-dash.techidaily.com/acer-predator-helios-300-newest-graphics-drivers-for-optimal-gaming-performance/"><u>Acer Predator Helios 300 - Newest Graphics Drivers for Optimal Gaming Performance</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/expert-techniques-for-restoring-corrupted-data-on-pcs-yl-softwares-proven-solutions/"><u>Expert Techniques for Restoring Corrupted Data on PCs: YL Software's Proven Solutions</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/fresh-footage-first-episode-insight/"><u>Fresh Footage First-Episode Insight</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolved-how-to-fix-continuous-crashes-of-fuser-application-on-windows/"><u>Resolved: How to Fix Continuous Crashes of Fuser Application on Windows</u></a></li>
-<li><a href="https://techtrends.techidaily.com/savor-these-10-amazing-foodie-programs-on-netflix/"><u>Savor These 10 Amazing Foodie Programs on Netflix</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-by-step-guide-to-perfecting-slow-motion-on-your-android-device-for-2024/"><u>Step-by-Step Guide to Perfecting Slow Motion on Your Android Device for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-symphony-of-sounds-in-every-snapchat-story/"><u>[New] In 2024, Symphony of Sounds in Every Snapchat Story</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-transferring-facebook-videos-seamlessly-across-oses/"><u>[New] Transferring Facebook Videos Seamlessly Across OSes</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-cropping-and-styling-tips-for-standout-instagram-videos/"><u>[Updated] Cropping and Styling Tips for Standout Instagram Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-superior-mp4-streamer-to-fb/"><u>2024 Approved Superior MP4 Streamer to FB</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-flood-resistant-cams-reviewed-7-edition/"><u>2024 Approved Top Flood-Resistant Cams Reviewed – #7 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-transform-typography-in-after-effects-with-premium-plug-ins/"><u>2024 Approved Transform Typography in After Effects With Premium Plug-Ins</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unleash-power-with-apples-m1-max-clip/"><u>2024 Approved Unleash Power with Apple's M1 Max Clip</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-win-like-a-pro-with-this-no-cost-high-impact-voice-changer-for-valorant/"><u>2024 Approved Win Like a Pro with This No-Cost, High-Impact Voice Changer for Valorant</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/a-deep-dive-into-selecting-tiktok-screenshots-for-2024/"><u>A Deep Dive Into Selecting TikTok Screenshots for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/avoiding-pitfalls-in-submitting-to-apple/"><u>Avoiding Pitfalls in Submitting to Apple</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/behind-the-scenes-mastering-cinematic-techniques-in-24/"><u>Behind the Scenes Mastering Cinematic Techniques in '24</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/deciphering-leaks-insights-on-samsung-galaxy-s2es-predicted-price-release-and-features/"><u>Deciphering Leaks: Insights on Samsung Galaxy S2e’s Predicted Price, Release & Features</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/high-gear-comparison-gopros-best-match-ghost-s-drift-for-2024/"><u>High Gear Comparison GoPro's Best Match? Ghost-S Drift for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-streamlined-transcoding-xml-and-ttml-into-professional-srt/"><u>In 2024, Streamlined Transcoding XML & TTML Into Professional SRT</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-mastering-color-consistency-a-step-by-step-guide-to-final-cut-pro-for-2024/"><u>New Mastering Color Consistency A Step-by-Step Guide to Final Cut Pro for 2024</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/windows-7-zu-windows-11-migrieren-kostenlose-moglichkeit-mit-garantie-auf-datensicherheit/"><u>Windows 7 Zu Windows 11 Migrieren: Kostenlose Möglichkeit Mit Garantie Auf Datensicherheit</u></a></li>
 </ul></div>
 
