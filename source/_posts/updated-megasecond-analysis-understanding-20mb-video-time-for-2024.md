@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] MegaSecond Analysis  Understanding 20Mb Video Time for 2024\""
-date: 2024-08-08T10:41:19.330Z
-updated: 2024-08-09T10:41:19.330Z
+date: 2025-01-07T21:53:47.982Z
+updated: 2025-01-12T19:07:39.099Z
 tags: 
   - screen-recording
   - ai video
@@ -72,10 +72,6 @@ Filmora can be used to change the bitrate of video files. It has a user-friendly
 
 * **Import Video -Bring the video files in.**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-1.jpg)
 
 Run Video Editor after installing it. Then, on your computer, click the "Import" button to locate the file you want to change the bitrate on, and then "Open." Drag and drop files into Video Editor from the Windows Explorer window
@@ -84,87 +80,6 @@ Run Video Editor after installing it. Then, on your computer, click the "Import"
 
 * **Choose a video to watch.**
 
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-2.jpg)
-
-Then, on the Video or Audio timeline, drag and drop your video or audio file. Select your preferred video or audio format by clicking EXPORT. Click the Device tab and select the right device from the list of presets if you want to play the completed file on a mobile device like an iPhone, iPad, iPad, or Zune.
-
-* **Change the video or audio file's bitrate.**
-
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-3.jpg)
-
-After that, select SETTINGS. You can modify audio settings like encoder, sample rate, channel, and bitrate, as well as video parameters like encoder, frame rate, resolution, and bitrate, in the new window that appears. Simply select the needed value from the bitrate list to change the bitrate.
-
-Take note that Lowering the bitrate can help you compress your media files. The quality will differ. As a result, it is important to get a difference between size and quality .
-
-**Three Tools to edit video and make it longer or shorter (desktop, phone, online)**
-
-* Magisto ( Supports IOS, Android, Online )
-
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-4.jpg)
-
-Magisto, which is owned by Vimeo, allows you to create amazing videos in three simple steps: You'll start by selecting your video editing style (the type of story you want to tell), then the photos and video clips you want to include, and finally, music from Magisto's built-in library.
-
-This user-friendly app uses artificial intelligence (AI) to organize your footage into a video that best conveys your message.
-
-* ActivePresenter ( Supports Windows, Mac )
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-5.jpg)
-
-ActivePresenter is a watermark-free screen recorder and video editor. Screencast movies, manuals, presentations, documentation, and interactive training demonstrations are all possible with it. The software's full-featured editor allows you to edit audio and video, change the look and feel of content, and choose branched situations simply and effectively. Because ActivePresenter supports HTML5 and can interact with Learning Management Systems, the content developed with it may be sent to any device and platform.
-
-* Openshot ( Supports Windows, Mac )
-
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-6.jpg)
-
-OpenShot is a free and versatile video editing and creation program. You may use the software to create professional-looking movies out of your photos, videos, and music files. Subtitles, special effects, and transitions can all be readily added. The videos that are made can be exported to DVD, Xbox 360, Vimeo, YouTube, and a variety of other formats.
-
-OpenShot comes with a slew of amazing capabilities, like video sorting and trimming, transition effects between video files, audio level adjustments, chroma key or green-screen effects, and more. The most prevalent codecs and formats are also supported by the software.
-
-OpenShot has a clean, easy-to-use interface that makes video creation and editing a breeze. The program also allows you to build 3D animated title sequences that will wow your audience.
-
-FAQs
-
-* How long of a video is 25 MB?
-
-200 megabits equal 25 MB. 1800 seconds equals 30 minutes; as a result, the video file must be under 200 megabits / 1800 seconds = 111 kbps, or less than half the bitrate of YouTube's 144p video.
-
-* The best way to send a video that is more than 25 megabytes?
-
-A minute of mpeg1 video is about 1 megabyte. Thus, 10 minutes would be 10 megabytes; better videos have fewer minutes.
-
-* What is the size of a one-minute video in megabytes?
-
-A minute of mpeg1 video is about 1 megabyte. Therefore 10 minutes is 10 megabytes; better videos have fewer minutes.
-
-* What is the size of a 1-minute video in GB?
-
-How many video minutes are there per gigabyte? One GB of digital storage may hold between 1.8 and 3.6 minutes of video. This is based on 2.7K to 4K video resolution. 24-
-
-* How long does 25MB last?
-
-200 megabits equals 25 megabytes. 1800 seconds equals 30 minutes.
-
-* How long does 100MB of video last?
-
-How many minutes of video is 100 megabytes of data used? A YouTube video that lasts 20 minutes uses about 100MB.
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-1.jpg)
-
-Run Video Editor after installing it. Then, on your computer, click the "Import" button to locate the file you want to change the bitrate on, and then "Open." Drag and drop files into Video Editor from the Windows Explorer window
-
-.
-
-* **Choose a video to watch.**
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-2.jpg)
 
 Then, on the Video or Audio timeline, drag and drop your video or audio file. Select your preferred video or audio format by clicking EXPORT. Click the Device tab and select the right device from the list of presets if you want to play the completed file on a mobile device like an iPhone, iPad, iPad, or Zune.
@@ -229,9 +144,6 @@ How many video minutes are there per gigabyte? One GB of digital storage may hol
 
 How many minutes of video is 100 megabytes of data used? A YouTube video that lasts 20 minutes uses about 100MB.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-1.jpg)
 
 Run Video Editor after installing it. Then, on your computer, click the "Import" button to locate the file you want to change the bitrate on, and then "Open." Drag and drop files into Video Editor from the Windows Explorer window
@@ -240,18 +152,12 @@ Run Video Editor after installing it. Then, on your computer, click the "Import"
 
 * **Choose a video to watch.**
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-2.jpg)
 
 Then, on the Video or Audio timeline, drag and drop your video or audio file. Select your preferred video or audio format by clicking EXPORT. Click the Device tab and select the right device from the list of presets if you want to play the completed file on a mobile device like an iPhone, iPad, iPad, or Zune.
 
 * **Change the video or audio file's bitrate.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-3.jpg)
 
 After that, select SETTINGS. You can modify audio settings like encoder, sample rate, channel, and bitrate, as well as video parameters like encoder, frame rate, resolution, and bitrate, in the new window that appears. Simply select the needed value from the bitrate list to change the bitrate.
@@ -276,10 +182,6 @@ ActivePresenter is a watermark-free screen recorder and video editor. Screencast
 
 * Openshot ( Supports Windows, Mac )
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-6.jpg)
 
 OpenShot is a free and versatile video editing and creation program. You may use the software to create professional-looking movies out of your photos, videos, and music files. Subtitles, special effects, and transitions can all be readily added. The videos that are made can be exported to DVD, Xbox 360, Vimeo, YouTube, and a variety of other formats.
@@ -314,9 +216,6 @@ How many video minutes are there per gigabyte? One GB of digital storage may hol
 
 How many minutes of video is 100 megabytes of data used? A YouTube video that lasts 20 minutes uses about 100MB.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-1.jpg)
 
 Run Video Editor after installing it. Then, on your computer, click the "Import" button to locate the file you want to change the bitrate on, and then "Open." Drag and drop files into Video Editor from the Windows Explorer window
@@ -331,10 +230,6 @@ Then, on the Video or Audio timeline, drag and drop your video or audio file. Se
 
 * **Change the video or audio file's bitrate.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-3.jpg)
 
 After that, select SETTINGS. You can modify audio settings like encoder, sample rate, channel, and bitrate, as well as video parameters like encoder, frame rate, resolution, and bitrate, in the new window that appears. Simply select the needed value from the bitrate list to change the bitrate.
@@ -359,9 +254,78 @@ ActivePresenter is a watermark-free screen recorder and video editor. Screencast
 
 * Openshot ( Supports Windows, Mac )
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-6.jpg)
+
+OpenShot is a free and versatile video editing and creation program. You may use the software to create professional-looking movies out of your photos, videos, and music files. Subtitles, special effects, and transitions can all be readily added. The videos that are made can be exported to DVD, Xbox 360, Vimeo, YouTube, and a variety of other formats.
+
+OpenShot comes with a slew of amazing capabilities, like video sorting and trimming, transition effects between video files, audio level adjustments, chroma key or green-screen effects, and more. The most prevalent codecs and formats are also supported by the software.
+
+OpenShot has a clean, easy-to-use interface that makes video creation and editing a breeze. The program also allows you to build 3D animated title sequences that will wow your audience.
+
+FAQs
+
+* How long of a video is 25 MB?
+
+200 megabits equal 25 MB. 1800 seconds equals 30 minutes; as a result, the video file must be under 200 megabits / 1800 seconds = 111 kbps, or less than half the bitrate of YouTube's 144p video.
+
+* The best way to send a video that is more than 25 megabytes?
+
+A minute of mpeg1 video is about 1 megabyte. Thus, 10 minutes would be 10 megabytes; better videos have fewer minutes.
+
+* What is the size of a one-minute video in megabytes?
+
+A minute of mpeg1 video is about 1 megabyte. Therefore 10 minutes is 10 megabytes; better videos have fewer minutes.
+
+* What is the size of a 1-minute video in GB?
+
+How many video minutes are there per gigabyte? One GB of digital storage may hold between 1.8 and 3.6 minutes of video. This is based on 2.7K to 4K video resolution. 24-
+
+* How long does 25MB last?
+
+200 megabits equals 25 megabytes. 1800 seconds equals 30 minutes.
+
+* How long does 100MB of video last?
+
+How many minutes of video is 100 megabytes of data used? A YouTube video that lasts 20 minutes uses about 100MB.
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-1.jpg)
+
+Run Video Editor after installing it. Then, on your computer, click the "Import" button to locate the file you want to change the bitrate on, and then "Open." Drag and drop files into Video Editor from the Windows Explorer window
+
+.
+
+* **Choose a video to watch.**
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-2.jpg)
+
+Then, on the Video or Audio timeline, drag and drop your video or audio file. Select your preferred video or audio format by clicking EXPORT. Click the Device tab and select the right device from the list of presets if you want to play the completed file on a mobile device like an iPhone, iPad, iPad, or Zune.
+
+* **Change the video or audio file's bitrate.**
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-3.jpg)
+
+After that, select SETTINGS. You can modify audio settings like encoder, sample rate, channel, and bitrate, as well as video parameters like encoder, frame rate, resolution, and bitrate, in the new window that appears. Simply select the needed value from the bitrate list to change the bitrate.
+
+Take note that Lowering the bitrate can help you compress your media files. The quality will differ. As a result, it is important to get a difference between size and quality .
+
+**Three Tools to edit video and make it longer or shorter (desktop, phone, online)**
+
+* Magisto ( Supports IOS, Android, Online )
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-4.jpg)
+
+Magisto, which is owned by Vimeo, allows you to create amazing videos in three simple steps: You'll start by selecting your video editing style (the type of story you want to tell), then the photos and video clips you want to include, and finally, music from Magisto's built-in library.
+
+This user-friendly app uses artificial intelligence (AI) to organize your footage into a video that best conveys your message.
+
+* ActivePresenter ( Supports Windows, Mac )
+
+![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-5.jpg)
+
+ActivePresenter is a watermark-free screen recorder and video editor. Screencast movies, manuals, presentations, documentation, and interactive training demonstrations are all possible with it. The software's full-featured editor allows you to edit audio and video, change the look and feel of content, and choose branched situations simply and effectively. Because ActivePresenter supports HTML5 and can interact with Learning Management Systems, the content developed with it may be sent to any device and platform.
+
+* Openshot ( Supports Windows, Mac )
+
 ![how-many-seconds-video-](https://images.wondershare.com/filmora/article-images/2022/05/how-many-seconds-video-6.jpg)
 
 OpenShot is a free and versatile video editing and creation program. You may use the software to create professional-looking movies out of your photos, videos, and music files. Subtitles, special effects, and transitions can all be readily added. The videos that are made can be exported to DVD, Xbox 360, Vimeo, YouTube, and a variety of other formats.
@@ -418,4 +382,26 @@ How many minutes of video is 100 megabytes of data used? A YouTube video that la
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-from-creation-to-consumption-posting-vids-on-twtplustumb/"><u>[New] 2024 Approved From Creation to Consumption Posting Vids on Twt+Tumb</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-shutter-free-skyline-images-top-drone-camera-stabilizers/"><u>[New] Shutter-Free Skyline Images Top Drone Camera Stabilizers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-pros-guide-to-conquering-photovideo-importers-in-win11/"><u>[New] The Pro's Guide to Conquering Photo/Video Importers in Win11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-hidden-features-top-30-unknown-window-11-tips/"><u>[Updated] Hidden Features Top 30 Unknown WINDOW 11 Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-cryptographic-cantaloupe-does-this-voice-modification-appify-to-magic-find-other-tools/"><u>[Updated] In 2024, Cryptographic Cantaloupe Does This Voice Modification Appify to Magic? Find Other Tools</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-experts-guide-to-best-terria-mods/"><u>2024 Approved Expert's Guide to Best Terria Mods</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/explore-6-superior-nft-tools-for-artistic-innovation/"><u>Explore 6 Superior NFT Tools for Artistic Innovation</u></a></li>
+<li><a href="https://win-guides.techidaily.com/fix-your-iphones-continuous-restart-glitch-with-these-5-effective-methods/"><u>Fix Your iPhone's Continuous Restart Glitch with These 5 Effective Methods</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-grasping-the-fundamentals-of-animated-communication/"><u>In 2024, Grasping the Fundamentals of Animated Communication</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-on-your-apple-iphone-13-mini-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID On your Apple iPhone 13 mini?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-windows-movie-maker-the-spectrum-of-releases/"><u>In 2024, Windows Movie Maker The Spectrum of Releases</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/maximize-personal-health-with-chatgpt-a-guide-to-the-9-best-applications/"><u>Maximize Personal Health with ChatGPT: A Guide to the 9 Best Applications</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/revolutionary-mercedes-benz-electric-vehicle-achieves-unmatched-740-mile-range-test-results-revealed/"><u>Revolutionary Mercedes-Benz Electric Vehicle Achieves Unmatched 740-Mile Range: Test Results Revealed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/six-straightforward-mojang-homes-for-creative-builders/"><u>Six Straightforward Mojang Homes for Creative Builders</u></a></li>
+<li><a href="https://win-blog.techidaily.com/understanding-and-fixing-the-root-causes-of-everspace-ii-pc-instability/"><u>Understanding and Fixing the Root Causes of Everspace II PC Instability</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

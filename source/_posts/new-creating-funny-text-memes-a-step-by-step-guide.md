@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Creating Funny Text Memes  A Step-by-Step Guide\""
-date: 2025-01-03T00:04:37.704Z
-updated: 2025-01-05T23:05:18.781Z
+date: 2025-01-06T19:12:06.771Z
+updated: 2025-01-12T19:36:25.082Z
 tags: 
   - screen-recording
   - ai video
@@ -43,17 +43,13 @@ Step4 Type your text in the textbox provided and set the font as per your prefer
 
 ![edit text free monogram maker](https://images.wondershare.com/filmora/article-images/2022/07/edit-text-free-monogram-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 If everything is perfect, you should click on Download button in the top-right corner.
 
 ![download meme free monogram maker](https://images.wondershare.com/filmora/article-images/2022/07/download-meme-free-monogram-maker.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to Create Text Meme on Computer
 
@@ -71,13 +67,13 @@ Step2 Go File> Import Media and click on Import Media Files option if you want t
 
 ![download filmora on computer](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you want to start from scratch, select a video template from Stock Media> Pexels> Videos or Stock Media> Pixabay> Videos. Instead of videos, you can select photos as well for the meme background. You can select templates that have texts and titles and you can edit them as per your preference.
 
 ![pexels video filmora](https://images.wondershare.com/filmora/article-images/2022/07/pexels-video-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Go to Stock Media> GIPHY to bring in any trending meme. Drag and drop your selected GIF on the Timeline.
 
@@ -86,6 +82,10 @@ Step3 Go to Stock Media> GIPHY to bring in any trending meme. Drag and drop your
 Step4 Add meme titles to your video, head over to Titles> Social Media. There are other categories as well you can check out. Select any desired title template and drop it on the Timeline. You can select any element of the title templates from the Viewer to adjust or delete as you think fit.
 
 ![choose title templates filmora](https://images.wondershare.com/filmora/article-images/2022/07/choose-title-templates-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5 Drag and place the text in any desired place on the video From the Viewer. Double-click on the Title template on the Timeline and edit the title. You can select different styles, animations, and even funny WordArt. Click on Ok button when you are finished editing the texts.
 
@@ -102,32 +102,32 @@ Step1 Visit Play Store(Android) or App Store(iPhone) and search for Mematic and 
 ![mematic meme maker iphone](https://images.wondershare.com/filmora/article-images/2022/07/mematic-meme-maker-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Select a style as per your requirements to get started.
 
 ![mematic meme style](https://images.wondershare.com/filmora/article-images/2022/07/mematic-meme-style.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 You need to select a background here and you can tap on Photos option to insert a photo from your phone gallery to use it as a background to your text meme. You can choose the background from a popular meme by tapping on Memes option.
 
 ![select a background mematic](https://images.wondershare.com/filmora/article-images/2022/07/select-a-background-mematic.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Tap on any meme to use as the background and tap on Continue button.
 
 ![edit selected meme mematic](https://images.wondershare.com/filmora/article-images/2022/07/edit-selected-meme-mematic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 Tap on the text parts to change the default texts. You can tap on them and change the text style as well. Finally, tap on Export option to save the meme.
 
 ![export meme from mematic iphone](https://images.wondershare.com/filmora/article-images/2022/07/export-meme-from-mematic-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -141,6 +141,10 @@ Step2 Go File> Import Media and click on Import Media Files option if you want t
 
 ![download filmora on computer](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you want to start from scratch, select a video template from Stock Media> Pexels> Videos or Stock Media> Pixabay> Videos. Instead of videos, you can select photos as well for the meme background. You can select templates that have texts and titles and you can edit them as per your preference.
 
 ![pexels video filmora](https://images.wondershare.com/filmora/article-images/2022/07/pexels-video-filmora.jpg)
@@ -158,7 +162,7 @@ Step5 Drag and place the text in any desired place on the video From the Viewer.
 ![add meme template filmora](https://images.wondershare.com/filmora/article-images/2022/07/add-meme-template-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Once you have completed, click on Export button to save the video in any file format.
@@ -176,7 +180,7 @@ Step2 Select a style as per your requirements to get started.
 ![mematic meme style](https://images.wondershare.com/filmora/article-images/2022/07/mematic-meme-style.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 You need to select a background here and you can tap on Photos option to insert a photo from your phone gallery to use it as a background to your text meme. You can choose the background from a popular meme by tapping on Memes option.
@@ -184,16 +188,12 @@ Step3 You need to select a background here and you can tap on Photos option to i
 ![select a background mematic](https://images.wondershare.com/filmora/article-images/2022/07/select-a-background-mematic.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 Tap on any meme to use as the background and tap on Continue button.
 
 ![edit selected meme mematic](https://images.wondershare.com/filmora/article-images/2022/07/edit-selected-meme-mematic.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5 Tap on the text parts to change the default texts. You can tap on them and change the text style as well. Finally, tap on Export option to save the meme.
 
@@ -227,24 +227,22 @@ Generating text memes on your device is no more an issue if you have no prior ex
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-critical-top-5-minute-tight-video-capturers-guide/"><u>[New] 2024 Approved Critical Top 5 Minute-Tight Video Capturers Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-mastering-subtitle-manipulation-in-macos/"><u>[New] 2024 Approved Mastering Subtitle Manipulation in macOS</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-zipping-down-peaks-top-moments-from-olympic-snowboard-cross-event/"><u>[New] 2024 Approved Zipping Down Peaks Top Moments From Olympic Snowboard Cross Event</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-best-available-avi-player-with-cross-platform-support/"><u>[New] Best Available Avi Player with Cross-Platform Support</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-enjoy-unparalleled-quality-youtubes-elite-4k-solutions-for-2024/"><u>[New] Enjoy Unparalleled Quality YouTube's Elite 4K Solutions for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-essential-guide-to-screen-capture-windows-for-2024/"><u>[New] Essential Guide to Screen Capture Windows for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-assessing-if-sns-hdr-deserves-your-investment-time-for-2024/"><u>[Updated] Assessing If SNS HDR Deserves Your Investment Time for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-best-of-the-best-trivia-channels/"><u>[Updated] In 2024, Best of the Best Trivia Channels</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-upside-of-asmr-a-closer-look-at-its-advantages/"><u>[Updated] In 2024, The Upside of ASMR A Closer Look At Its Advantages</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-mastering-video-creation-adobe-captivate-guide/"><u>[Updated] Mastering Video Creation Adobe Captivate Guide</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211383465-9798330236428-have-we-lived-before-2/"><u>Have We Lived Before 2 | Free Book</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-vivo-v27e-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Vivo V27e to Roku | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-lava-storm-5g-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Lava Storm 5G to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-clearer-views-the-top-10-online-photo-fixes/"><u>In 2024, Clearer Views The Top 10 Online Photo Fixes</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-poco-x5-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Poco X5 Phone without PIN</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/score-a-steal-with-lenovos-ideapad-ebook-up-to-300-off-at-walmart-act-fast-before-it-ends/"><u>Score a Steal with Lenovo's IdeaPad eBook - Up to $300 Off at Walmart! Act Fast Before It Ends.</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/streamlining-visual-storytelling-with-youtube-videos/"><u>Streamlining Visual Storytelling with YouTube Videos</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-list-top-frame-addition-services-for-images/"><u>Updated List Top Frame Addition Services for Images</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-pursuit-of-quality-a-deep-dive-into-sonys-x1000v/"><u>[New] In Pursuit of Quality A Deep Dive Into Sony's X1000V</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-premier-selection-incredible-platform-compatible-free-streaming-apps/"><u>[New] Premier Selection Incredible, Platform-Compatible Free Streaming Apps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-step-by-step-for-inverting-screen-display-android-for-2024/"><u>[New] Step-By Step for Inverting Screen Display Android for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-great-vr-debate-optimal-setup-for-gamers/"><u>[New] The Great VR Debate Optimal Setup for Gamers?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-leading-5-underwater-filters-for-gopro-videos/"><u>[Updated] 2024 Approved Leading 5 Underwater Filters for Gopro Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-top-8-social-and-adventure-games-for-oculus-users/"><u>[Updated] 2024 Approved Top 8 Social & Adventure Games for Oculus Users</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-enhancing-meeting-clarity-with-ms-teams-focus-for-2024/"><u>[Updated] Enhancing Meeting Clarity with MS Teams Focus for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-innovative-techniques-to-elevate-your-gopro-work/"><u>[Updated] Innovative Techniques to Elevate Your GoPro Work</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-how-to-direct-encouraging-content-for-daily-living-vids/"><u>2024 Approved How to Direct Encouraging Content for Daily Living Vids</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-xiaomi-redmi-note-13-pro-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Xiaomi Redmi Note 13 Pro 5G Fingerprint Lock</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/delving-into-immersive-vr-storytelling/"><u>Delving Into Immersive VR Storytelling</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/download-pac-12-content-convert-and-save-your-favorite-videos-from-pac-12com-in-popular-formats-like-mp4-and-avi/"><u>Download Pac-12 Content: Convert and Save Your Favorite Videos From pac-12.com in Popular Formats Like MP4 & AVI</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expand-your-productivity-connect-dual-displays-to-your-m3-macbook-pro-a-match-for-m3-macbook-airs-multi-monitor-capability/"><u>Expand Your Productivity: Connect Dual Displays to Your M3 MacBook Pro - A Match for M3 MacBook Air's Multi-Monitor Capability</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-dotx-file-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .dotx file electronically</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-vivo-x100-pro-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Vivo X100 Pro Is Unlocked</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/macaomei-backuppermirror-sync/"><u>Mac用AOMEI BackupperによるMirror Syncの効果的な実行方法</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/upgrade-clips-adding-effects-to-videos-pcmobile/"><u>Upgrade Clips Adding Effects to Videos (PC/Mobile)</u></a></li>
 </ul></div>
 

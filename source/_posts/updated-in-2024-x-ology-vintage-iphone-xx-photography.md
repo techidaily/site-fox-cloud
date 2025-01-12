@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, X-Ology  Vintage iPhone Xx Photography\""
-date: 2025-01-01T02:24:48.215Z
-updated: 2025-01-06T01:12:30.890Z
+date: 2025-01-10T18:29:49.611Z
+updated: 2025-01-12T18:17:29.347Z
 tags: 
   - screen-recording
   - ai video
@@ -36,7 +36,7 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for iPhone portrait photos
@@ -45,7 +45,7 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For iPhone 7 Plus/8 Plus/X users
@@ -84,10 +84,6 @@ If there is not enough light or if you are too far away from the camera, the app
 
 ![ezy-watermark-lite-photo](https://images.wondershare.com/filmora/article-images/ezy-watermark-lite-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Older iPhone models may not have a twin-lens system, but with the aid of a camera app such as FabFocus, iPhone photographers can easily take photos with smooth blurry backgrounds. The Automatic Depth of Field and Bokeh options enable you to add as much blur as you want to your photos and create DSLR-like images. The app also contains basic photo editing tools that can be used to touch-up the photo before you share it with your friends.
 
 #### [Tadaa SLR](https://itunes.apple.com/us/app/tadaa-slr/id724662909?mt=8)
@@ -97,10 +93,6 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 **Compatible with:** iOS 8.0 or later
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
@@ -112,6 +104,10 @@ Advertised as the best depth-of-field app for iPhones on the market today, Tadaa
 
 ![signature-photo-annotator](https://images.wondershare.com/filmora/article-images/signature-photo-annotator.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The term Bokeh comes from the Japanese language and it represents the aesthetic quality of the out of focus parts of photos. The Bokeh Lens app is designed to make the process of creating a shallow depth of field as fast and fun as it can be. The app lets you fine-tune the level of bokeh you are creating a photo, while it also allows you to select the areas you want to keep in focus.
 
 #### [Defocus](https://itunes.apple.com/us/app/defocus/id1048310180?mt=8)
@@ -122,12 +118,16 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 
 ![my-watermarks-a-personal-logo-signature-maker](https://images.wondershare.com/filmora/article-images/my-watermarks-a-personal-logo-signature-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -155,24 +155,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-10-smart-strategies-for-novice-photo-editors-in-ps/"><u>[New] 2024 Approved 10 Smart Strategies for Novice Photo Editors in PS</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>[New] 2024 Approved Break Free From The Norms Crafting Your Own Streamer Identity</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-faithful-frequencies-free-christian-music-downloads/"><u>[New] 2024 Approved Faithful Frequencies Free Christian Music Downloads</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-a-framework-for-employing-videos-in-educational-settings/"><u>[New] In 2024, A Framework for Employing Videos in Educational Settings</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-zen-of-zoom-perfecting-your-video-experience/"><u>[New] In 2024, The Zen of Zoom Perfecting Your Video Experience</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unveiling-public-domain-paintings-insights-and-links/"><u>[New] In 2024, Unveiling Public Domain Paintings Insights & Links</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-perfecting-the-sync-siri-voice-control-for-tiktok-users/"><u>[New] Perfecting the Sync Siri Voice Control for TikTok Users</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expedite-tech-advancement-how-to-embrace-macos-11-big-sur/"><u>[Updated] 2024 Approved Expedite Tech Advancement How to Embrace macOS 11 Big Sur</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-decode-wmps-techniques-for-efficient-audio-handling-and-recordings-for-2024/"><u>[Updated] Decode WMP's Techniques for Efficient Audio Handling and Recordings for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-guide-to-make-your-shorts-thumbnail-pop-up-for-2024/"><u>[Updated] Guide to Make Your Shorts' Thumbnail Pop Up for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-honing-hertz-gameplay-tactics-in-free-fire/"><u>[Updated] Honing Hertz Gameplay Tactics in Free Fire</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-what-lies-beneath-periscope-its-features-pricing-and-registration-guide/"><u>[Updated] What Lies Beneath Periscope? Its Features, Pricing & Registration Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-5-innovative-strategies-for-crafting-youtube-titles-and-tags/"><u>2024 Approved 5 Innovative Strategies for Crafting YouTube Titles & Tags</u></a></li>
-<li><a href="https://article-tips.techidaily.com/direct-digital-delivery-streamlined-steps-for-files/"><u>Direct Digital Delivery Streamlined Steps for Files</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-quintessential-filters-to-perfect-ocean-shoots/"><u>In 2024, Quintessential Filters to Perfect Ocean Shoots</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolve-absent-camera-alert-in-device-mgmt-window/"><u>Resolve Absent Camera Alert in Device Mgmt Window</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-popcorn-style-streaming-applications-for-windows-11-and-10-discover-the-best-alternatives/"><u>Top Popcorn-Style Streaming Applications for Windows 11 and 10: Discover the Best Alternatives!</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/top-value-dome-cams-affordable-360-filmmaking-tools/"><u>Top Value Dome Cams Affordable 360° Filmmaking Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/transform-imaging-expertise-in-adobes-high-dynamic-range/"><u>Transform Imaging Expertise in Adobe's High Dynamic Range</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-crafting-the-spoken-word-writing-compelling-narratives/"><u>[New] 2024 Approved Crafting the Spoken Word Writing Compelling Narratives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ideal-selections-economical-4k-home-theater-systems-for-2024/"><u>[New] Ideal Selections Economical 4K Home Theater Systems for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unlock-the-hidden-potential-of-windows-11-with-these-tips/"><u>[New] Unlock the Hidden Potential of Windows 11 with These Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-premium-mix-picture-taking-plus-sounds-recorder-titles/"><u>[Updated] Premium Mix Picture Taking + Sounds Recorder Titles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-seeking-awareness-complete-view-of-sharable-media-in-messages-for-2024/"><u>[Updated] Seeking Awareness Complete View of Sharable Media in Messages for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-latest-evolution-2023s-samsung-bd-j5900-review-for-2024/"><u>[Updated] The Latest Evolution 2023'S Samsung BD-J5900 Review for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/impatient-for-a-direct-chat-with-chatgpt-on-your-computer-heres-why-you-shouldnt-overlook-open-source-substitutes/"><u>Impatient for a Direct Chat with ChatGPT on Your Computer? Here's Why You Shouldn’t Overlook Open Source Substitutes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-from-camera-to-community-shared-videos-on-twtplustumble/"><u>In 2024, From Camera to Community Shared Videos on Twt+Tumble</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-oneplus-nord-n30-se-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For OnePlus Nord N30 SE Phones</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-tecno-phantom-v-fold-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Tecno Phantom V Fold Phone Network-Ready</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/resolve-your-iphone-14-pro-max-keeps-asking-for-outlook-password-by-drfone-ios/"><u>Resolve Your iPhone 14 Pro Max Keeps Asking for Outlook Password</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-30-pro-tiktok-edits-techniques/"><u>Top 30 Pro TikTok Edits Techniques</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-oversleeper-dilemma-computer-wont-wake/"><u>Windows' Oversleeper Dilemma - Computer Won't Wake</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Inverting Image Hues in Photoshop"
-date: 2024-08-08T10:40:53.000Z
-updated: 2024-08-09T10:40:53.000Z
+date: 2025-01-11T17:34:50.457Z
+updated: 2025-01-12T22:29:28.813Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/6af9f284b317fd0fc6915e0019f4adbc9dd81ab60
 
 # How to Invert Colors in Digital Photos?
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -57,11 +54,12 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
 
 You can experiment with the values you assign to each of these sliders in order to get a more visually pleasing result.
@@ -72,10 +70,11 @@ You can experiment with the values you assign to each of these sliders in order 
 
 **Compatibility:** Online platform
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
@@ -85,9 +84,6 @@ The platform’s homepage contains a number of categories of tools such as **Col
 
 **Compatibility** **:** Online platform
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Covert color](https://images.wondershare.com/filmora/article-images/imageconverter-tjshome.jpg)
 
 In addition to a rich selection of effects you can apply to images, tjshome also lets you browse through **Funny Dumb Laws, Famous Quotes or Funny Status Messages** categories. Click on the **Image Filter** category in order to view all effects the platform offers. Make sure that the **Reverse Colors/Negate effect** is selected, and then scroll further down the page to **upload the photo you’d like to invert.** When the upload process is completed, you can check the Make **Public checkbox** if you want to add your photo to the tjshome’s gallery. Click on the **Submit** button, and then proceed to save the picture to your computer. This platform lets you invert images in three easy steps, but if you want to have more control over the process, it is better to use a more powerful photo editor.
@@ -99,6 +95,10 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -124,10 +124,11 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 
 **Compatibility:** iOS
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
 
@@ -135,11 +136,11 @@ Inverting the colors in a photo with Negative Photo Effect HD is easy since you 
 
 Inverting colors in a photo is not a complicated process, but finding creative ways to use the negative image effect is since images with inverted colors are best used within a pre-defined context. Do you often create images with inverted colors? Leave a comment below and let us know your favorite method of creating image negatives.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -164,4 +165,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-propel-your-instagram-content-techniques-for-higher-interaction/"><u>[New] 2024 Approved Propel Your Instagram Content Techniques for Higher Interaction</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-ahead-of-the-curve-best-hydro-games-compiled/"><u>[New] Ahead of the Curve Best Hydro Games Compiled</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-achieve-unmatched-visuals-the-ultimate-guide-to-video-enhancer-22/"><u>[New] In 2024, Achieve Unmatched Visuals The Ultimate Guide to Video Enhancer 2.2</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-leap-into-the-future-a-guide-for-windows-11-installation/"><u>[New] Leap Into the Future A Guide for Windows 11 Installation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-great-video-platform-debate-vimeo-and-youtube-for-2024/"><u>[New] The Great Video Platform Debate Vimeo & YouTube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-foundations-of-motion-design-fundamentals/"><u>[Updated] Foundations of Motion Design Fundamentals</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-future-proofing-your-footage-the-2024-camcorder-roundup/"><u>[Updated] Future-Proofing Your Footage The 2024 Camcorder Roundup</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-initiating-film-narratives/"><u>[Updated] In 2024, Initiating Film Narratives</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-leading-8-linux-editors-for-media-professionals-for-2024/"><u>[Updated] Leading 8 Linux Editors for Media Professionals for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-premier-camera-drones-10-filmmakers-dream-fleet-for-2024/"><u>[Updated] Premier Camera Drones #10 Filmmakers' Dream Fleet for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-step-by-step-getting-started-with-snapseed-editing/"><u>[Updated] Step by Step Getting Started with Snapseed Editing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-solo-broadcasters-playbook-for-optimal-live-streams/"><u>[Updated] The Solo Broadcaster's Playbook for Optimal Live Streams</u></a></li>
+<li><a href="https://program-issues.techidaily.com/battling-with-palworld-strategies-to-stop-your-gaming-platform-from-crashing/"><u>Battling with Palworld: Strategies to Stop Your Gaming Platform From Crashing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cutting-edge-guide-to-mastering-windows-11-conferencing-via-zoom-for-2024/"><u>Cutting-Edge Guide to Mastering Windows 11 Conferencing via Zoom for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/digital-artistry-best-free-templates-for-ae-professionals-for-2024/"><u>Digital Artistry Best Free Templates for AE Professionals for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/gopros-deep-sea-capturing-unforgettable-underwater-scenes/"><u>GoPro's Deep Sea Capturing Unforgettable Underwater Scenes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-pdf-document-on-a-flash-drive-stellar-by-stellar-guide/"><u>How to Repair PDF Document on a Flash Drive | Stellar</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-mastering-photo-framing-best-web-and-app-solutions/"><u>In 2024, Mastering Photo Framing Best Web and App Solutions</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/ultimate-tutorial-on-making-hard-drives-and-usbs-bootable-using-windows-10-and-11/"><u>Ultimate Tutorial on Making Hard Drives and USBs Bootable Using Windows 10 & 11</u></a></li>
+</ul></div>
 

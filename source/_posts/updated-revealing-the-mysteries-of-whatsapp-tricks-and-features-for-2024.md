@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revealing the Mysteries of WhatsApp  Tricks & Features for 2024\""
-date: 2024-12-31T03:11:59.398Z
-updated: 2025-01-05T21:02:43.549Z
+date: 2025-01-06T21:48:10.955Z
+updated: 2025-01-12T17:33:42.101Z
 tags: 
   - screen-recording
   - ai video
@@ -36,10 +36,6 @@ With more than a billion active users worldwide, WhatsApp is now among the prima
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Cool WhatsApp Text Tricks to Make You Look Edgy
 
@@ -76,7 +72,7 @@ WhatsApp introduced the Blue Tick feature to notify users when their messages ar
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 6.Pin Prioritized Contacts
@@ -92,10 +88,6 @@ Source: techmesto.com
 If you wish to save the chats that you exchanged with someone special, you can email the entire chat thread to yourself or someone else, you can even save it to Drive. Open the chat thread and tap on the 3 dots icon, then click >>More<< and then click on >>Export Chat<<. This will open a host of options allowing you to export your chat logs to a multitude of destinations.
 
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 8.WhatsApp Font Tricks for Formatting
 
@@ -114,6 +106,10 @@ There are plenty of things you can do with one word. It can be bold, italic, mon
 While typing a WhatsApp message if you need to cross-check certain areas with someone else, and don’t want to copy the text or overwrite your clipboard, you can directly share the text without copy-pasting or taking screenshots. This WhatsApp Typing Trick is in the same native setting strip mentioned earlier, which you can access by tapping and holding the text section you want to share, which will open the formatting strip. Once it opens then click on the 3 dots, which will turn the strip into a panel, in the panel you will find what you are looking for. The coolest part is that you can share the text not only in WhatsApp but multiple other apps like Zoom, Skype, Email… even Bluetooth!
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
 
@@ -141,6 +137,10 @@ As long as you have the chat history intact you can search specific words to tra
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5.Restore Your Chat History, and Deleted Chats
 
 Sometimes you can restore deleted chat history if you have switched sims or mistakenly deleted a special conversation thread. Doesn’t take too much, just uninstall and reinstall your app. On opening it, you will get the prompt to restore your chats and media. The restoration process takes about a minute depending on internet speed. Then tap NEXT when the prompt appears. Remember this trick only works on messages that are run under backup when you are using a new phone. WhatsApp runs a backup every day at 2 am.
@@ -152,7 +152,7 @@ Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have
 ![Whatsapp Hidden Feature Snooze Whatsapp](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-snooze-whatsapp.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 7.Automatically Delete Messages After 7 Days
@@ -161,19 +161,11 @@ Not every message thread is important, and many people have the habit of deletin
 
 ![Whatsapp Auto Delete Messages](https://images.wondershare.com/filmora/article-images/whatsapp-auto-delete-messages.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 8.Mute Stories that You Don’t Want to See
 
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
 
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
 
@@ -185,7 +177,15 @@ Manage how you are notified of messages from specific contacts and groups. Go to
 
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Source: beebom.com
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit WhatsApp Videos with Ease
 
@@ -198,7 +198,7 @@ There are no download options for photos and videos for WhatsApp Statuses, yet y
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2.Record Video Calls from PC and Improve Its Quality
@@ -246,20 +246,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-boosting-engagement-the-key-to-successful-youtuber-interactions/"><u>[New] Boosting Engagement The Key to Successful YouTuber Interactions</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-discovering-the-30-most-recommended-steadicams-for-dslr-cinematographers/"><u>[Updated] 2024 Approved Discovering the 30 Most Recommended Steadicams for DSLR Cinematographers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-enhance-virtual-engagement-streaming-with-finesse-using-zoom-and-youtube-live-for-2024/"><u>[Updated] Enhance Virtual Engagement Streaming with Finesse Using Zoom and YouTube Live for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-top-iphone-hacks-for-capturing-stunning-skyline-shots/"><u>[Updated] In 2024, Top iPhone Hacks for Capturing Stunning Skyline Shots</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-record-rapidly-innovative-iphone-time-lapse-methods/"><u>[Updated] Record Rapidly Innovative iPhone Time-Lapse Methods</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/error-404-unable-to-locate-your-requested-webpage/"><u>Error 404: Unable to Locate Your Requested Webpage</u></a></li>
-<li><a href="https://win-answers.techidaily.com/football-manager-2020-how-to-fix-the-game-crash-issue/"><u>Football Manager 2020: How to Fix the Game Crash Issue</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Itel S23? | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/maintaining-meetings-in-google-recorder-for-2024/"><u>Maintaining Meetings in Google Recorder for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/maximizing-your-super-bowl-enjoyment-with-advanced-tv-and-sound-system-configurations/"><u>Maximizing Your Super Bowl Enjoyment with Advanced TV and Sound System Configurations</u></a></li>
-<li><a href="https://techidaily.com/stellar-data-recovery-for-iphone-6s-plus-failed-to-recognize-my-iphone-how-to-fix-it-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Stellar Data Recovery for iPhone 6s Plus failed to recognize my iPhone. How to fix it? | Stellar</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/ultimate-guide-to-selective-object-removal-in-iphone-images-for-2024/"><u>Ultimate Guide to Selective Object Removal in iPhone Images for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/virtual-sphere-access-the-leading-10-pc-vr-playback-titles/"><u>Virtual Sphere Access The Leading 10 PC VR Playback Titles</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/why-vrs-creative-well-hasnt-run-dry-yet-update/"><u>Why VR's Creative Well Hasn’t Run Dry Yet? - Update</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/xbox-ones-zooming-edge-a-comprehensive-guide-for-2024/"><u>Xbox One's Zooming Edge A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-monetary-side-of-podcasting-success/"><u>[New] 2024 Approved The Monetary Side of Podcasting Success</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-guide-to-premium-free-mobile-video-calls-ios-and-android-edition/"><u>[New] In 2024, Guide to Premium-Free Mobile Video Calls - iOS & Android Edition</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-create-a-facebook-account/"><u>[New] In 2024, How to Create a Facebook Account</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-maximize-visual-potential-the-finest-overlays-on-androidiphone-for-2024/"><u>[New] Maximize Visual Potential – The Finest Overlays on Android/iPhone for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-visionaryshot-cutting-edge-windowsmac-captures/"><u>[New] VisionaryShot Cutting-Edge Windows/Mac Captures</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevate-your-creative-process-mastering-the-use-of-luts-in-pscc/"><u>[Updated] Elevate Your Creative Process Mastering the Use of LUTs in PSCC</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-luxury-levels-screen-brightness-on-android/"><u>[Updated] Luxury Levels Screen Brightness on Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-perfect-your-content-instagram-reel-best-practices/"><u>[Updated] Perfect Your Content Instagram Reel Best Practices</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-years-top-picks-affordable-livestream-software-and-apps-list/"><u>[Updated] Year's Top Picks Affordable Livestream Software and Apps List</u></a></li>
+<li><a href="https://win11.techidaily.com/decoding-another-users-windows-microsoft-error/"><u>Decoding Another User's Windows Microsoft Error</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/how-to-efficiently-capture-skype-meetings-across-windows-and-macos-for-2024/"><u>How to Efficiently Capture Skype Meetings Across Windows and MacOS for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-realme-v30s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Realme V30s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unparalleled-immersion-with-eizos-high-resolution-4k-display/"><u>In 2024, Unparalleled Immersion with EIZO’s High-Resolution 4K Display</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/quick-pace-champions-2022-edition/"><u>Quick Pace Champions 2022 Edition</u></a></li>
 </ul></div>
 

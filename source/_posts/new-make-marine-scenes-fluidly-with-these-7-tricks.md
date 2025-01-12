@@ -1,7 +1,7 @@
 ---
 title: "[New] Make Marine Scenes Fluidly with These 7 Tricks"
-date: 2024-12-30T05:41:48.037Z
-updated: 2025-01-05T22:38:45.231Z
+date: 2025-01-09T19:12:50.066Z
+updated: 2025-01-12T19:37:52.965Z
 tags: 
   - screen-recording
   - ai video
@@ -55,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 
 ![get closer](https://images.wondershare.com/filmora/article-images/get-closer-underwater.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\. Lighting is important
 
  It’s possible to manipulate lighting via white balance and manual exposure. When you use manual white balance, you can obtain outstanding footage without purchasing costly lights.
@@ -70,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. Stay steady
@@ -87,6 +83,10 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
@@ -94,7 +94,7 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
@@ -104,10 +104,6 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
  Virtually all natural colours when you stay shallow. Go beyond this and you will require a colour correction filter to retrieve the colour lost through depth. When shooting close-up subjects beneath 20 metres, use a wide-angle video light to return vibrant, kaleidoscopic colour to your video.
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Edit your footage
 
@@ -122,10 +118,14 @@ thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -152,17 +152,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-convert-spoken-words-into-written-content-using-ms-words-in-built-tools/"><u>[New] 2024 Approved Convert Spoken Words Into Written Content Using MS Word's In-Built Tools</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-ultimate-review-of-wirecast-and-similar-programs/"><u>[New] In 2024, The Ultimate Review of WireCast & Similar Programs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-jokejuxtaposer-quickly-craft-memes-for-all-occasions-for-2024/"><u>[Updated] JokeJuxtaposer Quickly Craft Memes for All Occasions for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-neglects-critical-security-fixes-on-vulnerable-chipsets-sinkclose-bug-remains-in-legacy-ryzen-cpus/"><u>AMD Neglects Critical Security Fixes on Vulnerable Chipsets; 'Sinkclose' Bug Remains in Legacy Ryzen CPUs</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-honor-x9b-device-sim-by-drfone-android/"><u>Easily Unlock Your Honor X9b Device SIM</u></a></li>
-<li><a href="https://common-error.techidaily.com/fix-windows-update-error-code-80t7000e-instantly-a-step-by-step-guide/"><u>Fix Windows Update Error Code 80T7000E Instantly: A Step-by-Step Guide</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-s17-pro-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo S17 Pro Phones with/without a PC</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-lava-blaze-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Lava Blaze Pro 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo S18 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/master-the-art-of-filming-at-home-top-5-efficient-tricks-for-2024/"><u>Master the Art of Filming at Home – Top 5 Efficient Tricks for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-running-a-no-barriers-chatgpt-lookalike-on-windows-with-freedomgpt/"><u>Step-by-Step Guide: Running a No-Barriers ChatGPT Lookalike on Windows with FreedomGPT</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/the-impact-of-tweaking-the-registry-on-your-pcs-health-expert-advice-by-yl-software-experts/"><u>The Impact of Tweaking the Registry on Your PC's Health - Expert Advice by YL Software Experts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-architects-of-unique-virtual-environments-for-2024/"><u>[New] Architects of Unique Virtual Environments for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-guide-to-capturing-google-voice-chats/"><u>[New] Guide to Capturing Google Voice Chats</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-shade-adjustments-simplified-learn-with-these-11-guides/"><u>[New] In 2024, Shade Adjustments Simplified - Learn with These 11 Guides</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-metaversal-musings-a-preamble-of-inspirational-thoughts-for-2024/"><u>[New] Metaversal Musings A Preamble of Inspirational Thoughts for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-merits-of-sns-hdr-vs-its-industry-contenders/"><u>[New] The Merits of SNS HDR Vs. Its Industry Contenders</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-guide-to-7-top-mac-vids/"><u>[New] Ultimate Guide to 7 Top Mac Vids</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-hidden-glance-guide-top-instagram-story-tools/"><u>[Updated] Hidden Glance Guide Top Instagram Story Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-essential-cameras-for-upcoming-4khd-music-video-shootouts/"><u>[Updated] In 2024, Essential Cameras for Upcoming 4K/HD Music Video Shootouts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-multiframe-view-microsoft-edges-pip/"><u>[Updated] Mastering Multiframe View Microsoft Edge's PIP</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-beyond-boundaries-channel-youtube-for-exciting-green-screens/"><u>2024 Approved Beyond Boundaries Channel Youtube for Exciting Green Screens</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/design-your-own-ios-1nce-contact-cards-with-namedrop-integration-tutorial-smartphone-hacks/"><u>Design Your Own iOS 1Nce Contact Cards with NameDrop Integration Tutorial | Smartphone Hacks</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-xiaomi-13t-pro-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Xiaomi 13T Pro Quickly | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/from-basics-to-advanced-using-macs-preview-like-a-pro/"><u>From Basics to Advanced Using Mac's Preview Like a Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/how-to-instantly-recover-lost-reddit-posts/"><u>How to Instantly Recover Lost Reddit Posts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-boost-cinematic-excellence-with-final-cuts-best-10-plugins/"><u>In 2024, Boost Cinematic Excellence with Final Cut’s Best 10 Plugins</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-from-capture-to-share-expert-insights-into-screen-recording-software/"><u>In 2024, From Capture to Share Expert Insights Into Screen Recording Software</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/roaming-with-ease-how-to-utilize-your-roku-device-in-accommodations-abroad/"><u>Roaming with Ease: How to Utilize Your Roku Device in Accommodations Abroad</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Light & Shadow with iPhone X's New Lens Technology for 2024"
-date: 2024-08-08T10:39:35.304Z
-updated: 2024-08-09T10:39:35.304Z
+date: 2025-01-05T21:42:33.178Z
+updated: 2025-01-12T21:39:05.931Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/2531084f8c85679ae61e8759b52e3fe4836202538
 
 # New iPhone X Camera Features You Need to Know
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -37,8 +34,9 @@ thumbnail: https://thmb.techidaily.com/2531084f8c85679ae61e8759b52e3fe4836202538
 * [Part 4: Video improvement](#part4)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
@@ -49,10 +47,6 @@ thumbnail: https://thmb.techidaily.com/2531084f8c85679ae61e8759b52e3fe4836202538
 
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 3: How to use portrait mode
 
  Portrait mode uses your iPhone X’s telephoto lens kit to create images with “bokeh”-esque backgrounds and foregrounds. Portrait Lighting also comes as part of the Portrait Mode with the iPhone X, utilising both machine learning and the depth map of Portrait mode to add exceptional lighting effects to your photos in real time. When you shoot in Portrait mode, the wide-angle measures the difference between what it and the telephoto can see to offer a multi-point depth map. The depth map itself creates artificial depth of field.
@@ -69,21 +63,31 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 * Swipe or tap the cube icons above your shutter button to change the lighting effects if needed.
 * To take your photo, press the shutter button.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Video improvement
 
  The iPhone X is also noted for its first-class video shooting capabilities, including its 4K video feature. Though previous iterations of the iPhone were already rather adept at shooting in 4K, the new devices are even more impressive and have been favourably compared to the GH5 in terms of quality and clarity. The new device has been complimented for its vibrant colour profile and its ability to deliver 4K video that matches a wide range of leading DSLR and mirrorless cameras. It’s possible to capture video in 240fps slo-mo at 1080p and 4K at 60fps.
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -91,9 +95,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -119,4 +120,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-bebop-2s-aviary-artistry-reviewed/"><u>[New] 2024 Approved Bebop 2’S Aviary Artistry Reviewed</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-essential-techniques-for-making-and-tweaking-multi-snap-chats-for-2024/"><u>[New] Essential Techniques for Making & Tweaking Multi-Snap Chats for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-rapid-strategies-for-securing-identity-in-image-editing-for-2024/"><u>[New] Rapid Strategies for Securing Identity in Image Editing for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-10-screenshot-enhancers-ios-and-android-sticker-edition-for-2024/"><u>[New] Top 10 Screenshot Enhancers IOS & Android Sticker Edition for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ears-must-see-makeup-vloggers-on-the-web-for-2024/"><u>[New] Year's Must-See Makeup Vloggers on the Web for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-whatsapp-wizardry-unveiling-the-ultimate-chat-strategies/"><u>[Updated] 2024 Approved WhatsApp Wizardry Unveiling the Ultimate Chat Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-craft-individual-humor-masterpieces-online-for-2024/"><u>[Updated] Craft Individual Humor Masterpieces Online for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-climbing-the-social-ladder-6-precise-methods-for-gaining-instagram-verification/"><u>[Updated] In 2024, Climbing the Social Ladder 6 Precise Methods for Gaining Instagram Verification</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-exploring-the-intricacies-of-whatsapp-voice-calls/"><u>[Updated] In 2024, Exploring the Intricacies of WhatsApp Voice Calls</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-fast-forward-memories-samsung-timelapse-basics/"><u>[Updated] In 2024, Fast-Forward Memories Samsung Timelapse Basics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-ultimate-showdown-vlc-versus-mpc-in-video-viewing/"><u>[Updated] In 2024, The Ultimate Showdown VLC Versus MPC in Video Viewing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-innovative-script-visionaries-corner-for-2024/"><u>[Updated] Innovative Script Visionaries Corner for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-navigating-best-10-free-converters-for-jpeg-and-gif/"><u>[Updated] Navigating Best 10 Free Converters for JPEG & GIF</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-how-to-quickly-and-easily-share-a-youtube-playlist/"><u>2024 Approved How to Quickly And Easily Share A YouTube Playlist</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-innovative-youtube-channel-titles-the-key-to-successful-blogging-and-filmmaking-no-more-than-156-characters/"><u>In 2024, Innovative YouTube Channel Titles The Key to Successful Blogging & Filmmaking (No More than 156 Characters)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/refine-video-creation-process-via-windows-10-photos-and-story-remix-for-2024/"><u>Refine Video Creation Process via Windows 10 Photos & Story Remix for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-premier-list-top-12-online-havens-for-free-photo-resources/"><u>The Premier List Top 12 Online Havens for FREE Photo Resources</u></a></li>
+</ul></div>
 

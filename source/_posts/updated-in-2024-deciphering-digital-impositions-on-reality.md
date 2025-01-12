@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Deciphering Digital Impositions on Reality"
-date: 2025-01-04T23:56:55.406Z
-updated: 2025-01-06T05:09:16.320Z
+date: 2025-01-06T20:40:15.156Z
+updated: 2025-01-12T20:50:57.726Z
 tags: 
   - screen-recording
   - ai video
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/00d8a989d7a324ab139f90cea816e72b6f2451ab8
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Definition of AR
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/00d8a989d7a324ab139f90cea816e72b6f2451ab8
  The presentation of augmented reality is in some form of futuristic technology, despite the fact that it has been around for many years. For example, the heads-up display in many fighter jets utilizes the principles of augmented reality, and these date back to the early 1990s when they were used to show information about altitude, speed and direction of the aircraft.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How does Augmented Reality work
@@ -54,7 +54,7 @@ thumbnail: https://thmb.techidaily.com/00d8a989d7a324ab139f90cea816e72b6f2451ab8
  In general, the device will search for a particular object, which can be anything, but in most cases, they are usually 2D images like in the form of a movie poster. The augmented reality application will recognize the target through the camera and it will then process the image and augment it in some form through the utilization of sound and pictures. For example, if the target object was a movie poster, you may see it spring into life to play a trailer of the movie. So long as you continue viewing the poster through the “window” of the display object, you will see augmented reality rather than the plain old normal poster in normal reality.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The future of Augmented Reality
@@ -66,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/00d8a989d7a324ab139f90cea816e72b6f2451ab8
  Like with every new technology, augmented reality comes with a plethora or ethical and political issues. For example, the Google Glass came along with a lot of privacy concerns, with some people worried that pictures may be snapped or conversations may be recorded surreptitiously. But amidst all these concerns, AR technology is expected to gather more steam in the near future and it will be a part of life for the majority.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Applications of Augmented Reality
@@ -104,7 +104,7 @@ thumbnail: https://thmb.techidaily.com/00d8a989d7a324ab139f90cea816e72b6f2451ab8
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -132,16 +132,17 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-instagram-engagement-the-5-key-strategies-for-influencers-today/"><u>[New] 2024 Approved Mastering Instagram Engagement The 5 Key Strategies for Influencers Today</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-comprehensively-ranked-win-11-hd-cameras-and-recorders-for-2024/"><u>[New] Comprehensively Ranked Win 11 HD Cameras & Recorders for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nhance-your-videos-call-to-action-a-step-by-step-filmora-guide/"><u>[New] Enhance Your Video's Call-to-Action A Step-by-Step Filmora Guide</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-live-footage-at-its-best-gamers-recording-tips/"><u>[New] Live Footage at Its Best Gamers' Recording Tips</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-pro-gamers-manual-learn-xbox-one-screen-recording/"><u>2024 Approved Pro Gamer's Manual Learn Xbox One Screen Recording</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-cloud-picks-price-and-performance-comparison/"><u>2024 Approved Top Cloud Picks Price & Performance Comparison</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-top-tale-architecting-network/"><u>2024 Approved Top Tale Architecting Network</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-unveiling-the-secrets-of-captivating-imagery-puzzles/"><u>2024 Approved Unveiling the Secrets of Captivating Imagery Puzzles</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/apk-journey-to-gaming-bliss-funimate-pro-guide/"><u>APK Journey to Gaming Bliss Funimate Pro Guide</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://os-tips.techidaily.com/step-by-step-guide-printing-documents-from-your-ios-device/"><u>Step-by-Step Guide: Printing Documents From Your iOS Device</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-best-of-breed-exceptional-webcam-supports/"><u>[New] 2024 Approved Best Of Breed Exceptional Webcam Supports</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-inside-look-3d-lut-creation-process-for-2024/"><u>[New] Inside Look 3D LUT Creation Process for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-efficient-practices-for-ps3-video-capture-setup/"><u>[Updated] 2024 Approved Efficient Practices for PS3 Video Capture Setup</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-harmonizing-musical-pieces-with-cross-sound-techniques/"><u>[Updated] 2024 Approved Harmonizing Musical Pieces with Cross-Sound Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ace-editing-essential-10-final-cut-pro-extensions-for-2024/"><u>[Updated] Ace Editing Essential 10 Final Cut Pro Extensions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-crafting-compelling-visuals-the-podcast-cover-playbook/"><u>[Updated] Crafting Compelling Visuals The Podcast Cover Playbook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastery-through-art-the-ultimate-list-of-free-mac-drawing-apps-for-2024/"><u>[Updated] Mastery Through Art The Ultimate List of FREE Mac Drawing Apps for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-pros-best-top-8-tripods-excelling-at-4k-video-capture/"><u>[Updated] Pro's Best Top 8 Tripods Excelling at 4K Video Capture</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-elite-sound-collection-top-10-for-spotify-audiophiles/"><u>2024 Approved Elite Sound Collection Top 10 for Spotify Audiophiles</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-vivo-x-flip-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Vivo X Flip Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/streamline-your-inbox-cleanup-effortlessly-a-simple-trick-to-ditch-the-mess-without-extra-rules-or-accounts-digitalsolutions/"><u>Streamline Your Inbox Cleanup Effortlessly - A Simple Trick to Ditch the Mess Without Extra Rules or Accounts | DigitalSolutions</u></a></li>
 </ul></div>
 
