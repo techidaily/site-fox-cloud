@@ -1,7 +1,7 @@
 ---
 title: "[New] Extracting Images From Movies Using Windows 10 Photos App"
-date: 2025-01-06T19:08:20.230Z
-updated: 2025-01-12T17:10:59.743Z
+date: 2025-01-16T05:37:28.441Z
+updated: 2025-01-18T03:53:11.764Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ In this article, you will learn how to save photo from Windows 10 Photos app and
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to save photo from Windows 10 Photos app
@@ -57,7 +57,7 @@ Creating a living image:
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Now, you can see the living picture by tapping ‘Play’ button.
@@ -69,6 +69,10 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
@@ -77,21 +81,17 @@ In case, you are not able to save photos from video on Windows 10 Photos App. Th
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -108,15 +108,15 @@ Here comes the guide –
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,18 +143,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-green-background-blueprints-download-free-practical-template-guides/"><u>[New] 2024 Approved Green Background Blueprints Download Free, Practical Template Guides</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-subtitle-making-from-compressed-file-extraction/"><u>[New] 2024 Approved Subtitle Making From Compressed File Extraction</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-discover-the-triple-champion-phones-for-high-res-video/"><u>[New] Discover the Triple Champion Phones for High-Res Video</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-exclusive-music-tools-for-pcs/"><u>[New] Exclusive Music Tools for PCs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-aurora-vs-standard-hd-is-the-premium-worth-it/"><u>[New] In 2024, Aurora vs Standard HD Is the Premium Worth It?</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-crafting-perfect-srt-output-with-premiere-pro/"><u>[New] In 2024, Crafting Perfect SRT Output with Premiere Pro</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-extract-and-play-fb-soundtracks-for-2024/"><u>[Updated] Extract and Play FB Soundtracks for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-get-official-passport-photo-online-download-and-print-your-portraits-for-free/"><u>[Updated] In 2024, Get Official Passport Photo Online – Download & Print Your Portraits for FREE</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-xiaomi-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Xiaomi .</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-apple-iphone-15-pro-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your Apple iPhone 15 Pro Apple ID on MacBook</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oneplus-12r-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from OnePlus 12R to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/simple-guide-connecting-an-additional-thunderbolt-display-to-your-apple-m1-powered-mac-mini-tips-and-tricks/"><u>Simple Guide: Connecting an Additional Thunderbolt Display to Your Apple M1-Powered Mac Mini - Tips & Tricks</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/summit-series-of-ultimate-4k-touch-screens/"><u>Summit Series of Ultimate 4K Touch Screens</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-10-prime-free-images-hosts-ensure-picture-longevity-for-2024/"><u>[New] 10 Prime Free Images Hosts, Ensure Picture Longevity for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-demystifying-trillers-unique-approach-to-video-content/"><u>[New] 2024 Approved Demystifying Triller's Unique Approach to Video Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-bridging-audio-artistry-in-visual-formats/"><u>[New] In 2024, Bridging Audio Artistry in Visual Formats</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-dream-of-flight-check-out-these-top-kid-friendly-drones/"><u>[New] In 2024, Dream of Flight? Check Out These Top Kid-Friendly Drones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-joyful-journeys-the-ultimate-list-of-familial-classics/"><u>[New] In 2024, Joyful Journeys The Ultimate List of Familial Classics</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-7-streaming-tools-for-mac-enthusiasts/"><u>[New] In 2024, Top 7 Streaming Tools for Mac Enthusiasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-massive-popularity-in-stock-imagery-tales-of-success-for-2024/"><u>[New] Massive Popularity in Stock Imagery Tales of Success for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-altering-game-console-speech-ps5ps4-upgrades/"><u>[Updated] 2024 Approved Altering Game Console Speech PS5/PS4 Upgrades</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-navigating-live-stream-providers-with-10-top-insights/"><u>[Updated] 2024 Approved Navigating Live Stream Providers with 10 Top Insights</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/conversione-gratuita-online-da-vob-a-3gp-con-movavi/"><u>Conversione Gratuita Online Da VOB a 3GP Con Movavi</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-how-to-updating-and-downloading-your-amd-radeon-rx-580-drivers-today/"><u>Easy How-To: Updating & Downloading Your AMD Radeon RX 580 Drivers Today</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-12-pro-max-online-here-are-6-easy-ways-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 Pro Max Online? Here are 6 Easy Ways</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210089164-9781640094079-the-night-lake/"><u>The Night Lake | Free Book</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-becoming-a-pro-in-tiktok-live-shopping-your-complete-guide/"><u>Updated In 2024, Becoming a Pro in TikTok Live Shopping Your Complete Guide</u></a></li>
 </ul></div>
 

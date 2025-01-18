@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Depth  3D Text Designs in Illustrator\""
-date: 2025-01-10T20:11:27.996Z
-updated: 2025-01-12T19:49:58.905Z
+date: 2025-01-16T20:43:53.424Z
+updated: 2025-01-18T03:25:47.340Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ This guide will show you the step-by-step process of creating a 3D text effect i
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Need to Create a 3D Text Effect in Adobe Illustrator
 
 All you need are ten minutes of your time and the Adobe Illustrator application. Oh yes, and you need a little bit of imagination as well. That's all there is to it.
@@ -49,17 +53,21 @@ Step3 Now, look at the bottom-right corner of the program. Find the **Font** set
 
 ![change font illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-font.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Next, choose any color you want for your text from the panel on the screen's left side. Just remember to click on your text first before you start changing colors.
 
 ![change color](https://images.wondershare.com/filmora/article-images/adobe-illustrator-color.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 Align the text to make it easier to edit and move around the canvas later. Just click on it and then click on the three buttons in the image below. This section is located at the bottom-right corner of the screen.
 
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
@@ -69,19 +77,15 @@ Step7 Click on the box icon on the right side of the screen and select **“Extr
 
 ![turn text into three d](https://images.wondershare.com/filmora/article-images/adobe-illustrator-panel.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step8 Now, all left to do is experiment with the settings in this panel and adjust how you want your 3D text to look. You can adjust its width, rotation, presets, angle, perspective, and so on. Just play around with the settings until you find your ideal result.
 
 ![three d illustrator settings](https://images.wondershare.com/filmora/article-images/adobe-illustrator-settings.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step9 Finally, it's time to export the image, and you're all done.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best Alternative Way to Create 3D Text Animation
 
@@ -108,7 +112,7 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
@@ -123,10 +127,6 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to Create a 3D Text Effect In Filmora?
 
 The steps are simple. Just follow them precisely as you see here, and you won't have any problems.
@@ -137,13 +137,13 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
@@ -177,18 +177,19 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-maximize-productivity-with-firefoxs-pip-feature/"><u>[New] 2024 Approved Maximize Productivity with Firefox’s PIP Feature</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-av-and-acoustic-creatives-top-5-online-leaders-roundup-for-2024/"><u>[New] Av & Acoustic Creatives Top 5 Online Leaders' Roundup for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-essential-gb-games-selecting-pc-emulators-to-simulate-gba-perfectly-for-2024/"><u>[New] Essential GB Games Selecting PC Emulators to Simulate GBA Perfectly for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-guide-to-internet-based-image-trimming/"><u>[Updated] 2024 Approved The Ultimate Guide to Internet-Based Image Trimming</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-unmanned-vehicles-classified/"><u>[Updated] 2024 Approved Unmanned Vehicles - Classified</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-expert-advice-on-optimal-hdr-camera-selection/"><u>[Updated] Expert Advice on Optimal HDR Camera Selection</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-perfect-upside-down-and-sideways-iphone-images/"><u>[Updated] Perfect Upside-Down & Sideways iPhone Images</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/crafting-a-perfect-photomontage-like-a-pro-for-2024/"><u>Crafting a Perfect PhotoMontage Like a Pro for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/creative-composers-cache-essential-no-cost-afx-tools-for-2024/"><u>Creative Composer's Cache Essential, No-Cost AFX Tools for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-the-owc-mercury-pro-a-high-performance-storage-solution-reviewed/"><u>Evaluating the OWC Mercury Pro: A High-Performance Storage Solution Reviewed</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-and-performance-review-for-amazons-essential-7x-usb-30-port-hub/"><u>In-Depth Analysis and Performance Review for Amazon's Essential 7X USB 3.0 Port Hub</u></a></li>
-<li><a href="https://win-able.techidaily.com/mtswindowsmov/"><u>MTSビデオをWindowsでMOVに変換する初心者用の包括的な方法</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/outstanding-unlimited-space-service-index/"><u>Outstanding Unlimited Space Service Index</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-rhythmic-beak-boogie/"><u>[New] 2024 Approved Rhythmic Beak Boogie</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-securesync-experts-analysis/"><u>[New] 2024 Approved SecureSync Experts Analysis</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-art-of-gentle-audio-dampening-on-lumafusion-platforms/"><u>[New] The Art of Gentle Audio Dampening on Lumafusion Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-guide-to-online-gif-video-converters-for-2024/"><u>[New] The Ultimate Guide to Online GIF Video Converters for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastery-and-inspiration-the-ultimate-list-of-android-drawing-apps-for-2024/"><u>[Updated] Mastery & Inspiration The Ultimate List of Android Drawing Apps for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-saving-your-precious-obs-video-source-from-failure-for-2024/"><u>[Updated] Saving Your Precious OBS Video Source From Failure for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/approach-discuss-the-impact-of-temperature-on-the-hydration-reaction-and-concrete-properties/"><u>Approach: Discuss the Impact of Temperature on the Hydration Reaction and Concrete Properties</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-apple-iphone-13-drfone-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://win-tips.techidaily.com/einfache-ubertragung-von-dampfspielen-ohne-neukonfiguration-der-schnellweg/"><u>Einfache Übertragung Von Dampfspielen Ohne Neukonfiguration - Der Schnellweg</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/expert-analysis-unveiling-the-power-of-the-new-ipad-air-m2-your-definitive-purchase-guide-according-to-zdnet/"><u>Expert Analysis: Unveiling the Power of the New iPad Air (M2) – Your Definitive Purchase Guide, According to ZDNET</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-stuck-windows-update-on-older-oss-like-win7-new-edition-tips-and-solutions-for-better-user-experience-in-the-current-decade-helpful-tips-and-guid137/"><u>How To Fix Stuck Windows Update on Older OSs Like Win7 - New Edition Tips and Solutions For Better User Experience in the Current Decade! (Helpful Tips & Guides.)</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mastering-screens-on-windows-with-best-no-cost-recorder-tools/"><u>Mastering Screens on Windows with Best No-Cost Recorder Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/premier-5-ios-backdrop-change-applications-for-iphones-x-8-7-for-2024/"><u>Premier 5 iOS Backdrop Change Applications for iPhones (X, 8, 7) for 2024</u></a></li>
 </ul></div>
 
