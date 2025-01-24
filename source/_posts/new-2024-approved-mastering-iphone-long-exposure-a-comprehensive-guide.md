@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering iPhone Long Exposure  A Comprehensive Guide\""
-date: 2025-01-14T02:19:28.127Z
-updated: 2025-01-18T04:38:51.104Z
+date: 2025-01-20T20:26:18.609Z
+updated: 2025-01-24T20:30:50.761Z
 tags: 
   - screen-recording
   - ai video
@@ -42,19 +42,11 @@ thumbnail: https://thmb.techidaily.com/14c6c9cb1c4c33ba818b93d76e13d5e2d13b83e60
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
 
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image resource: imore
 
@@ -62,12 +54,16 @@ thumbnail: https://thmb.techidaily.com/14c6c9cb1c4c33ba818b93d76e13d5e2d13b83e60
 
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: iPhoneMod
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Not a user of iOS 11?
@@ -77,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/14c6c9cb1c4c33ba818b93d76e13d5e2d13b83e60
  There are a number of these apps available on the app store, each with its own set of pros and cons. Take a look at [Slow Shutter Cam](https://itunes.apple.com/app/slow-shutter-cam/id357404131?mt=8), [Ultra Slow Shutter Cam PRO](https://itunes.apple.com/us/app/ultra-slow-shutter-cam-pro-professional-long-exposure/id741508910?mt=8), [Slow Shutter Insta](https://itunes.apple.com/ca/app/slow-shutter-insta-free-long-exposure-photo-cam-for/id730352755?mt=8) and [LongExpo](https://itunes.apple.com/us/app/longexpo-slow-shutter-and-long-exposure-camera/id594078421?mt=8) to discover some of the most popular apps of this type. Try them out, and see what works best for you.
 
 **You may also like:** [iPhone Night Photography Tips: Take Night Photos with iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Long Exposure Photography Tips
 
@@ -88,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/14c6c9cb1c4c33ba818b93d76e13d5e2d13b83e60
 * **Photograph moving objects:** Your Live Photo will translate better into a long exposure shot if you have something obviously moving in the image. Having a moving object against stationery surrounds works really well.
 
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### What should you capture with your long exposure iPhone shots?
 
@@ -110,7 +114,7 @@ thumbnail: https://thmb.techidaily.com/14c6c9cb1c4c33ba818b93d76e13d5e2d13b83e60
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image resource: Digital Photo Secrets
@@ -118,10 +122,6 @@ thumbnail: https://thmb.techidaily.com/14c6c9cb1c4c33ba818b93d76e13d5e2d13b83e60
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
 
 ![low-light-long-exposure](https://images.wondershare.com/filmora/article-images/low-light-long-exposure.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image resource: Nikonites
 
@@ -160,15 +160,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-heaviest-aerial-transporters-top-10-drones-reviewed/"><u>[New] Heaviest Aerial Transporters Top 10 Drones Reviewed</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-cutting-edge-strategies-for-recording-online-classes/"><u>[New] In 2024, Cutting-Edge Strategies for Recording Online Classes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-scriptwriting-mastery-conveying-emotions-through-words/"><u>[New] In 2024, Scriptwriting Mastery Conveying Emotions Through Words</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-learn-to-edit-videos-professionally-using-inshot/"><u>[New] Learn to Edit Videos Professionally Using Inshot</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-gopro-and-ghost-s-face-off-in-racing-realities/"><u>[Updated] GoPro and Ghost-S Face Off in Racing Realities</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-knockout-kings-vs-viewership-titans-for-2024/"><u>[Updated] Knockout Kings Vs. Viewership Titans for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Oppo K11 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/macs-best-capture-exploring-leading-screen-recording-software-for-2024/"><u>Mac's Best Capture Exploring Leading Screen Recording Software for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-your-system-with-gigabytes-z3-cuoz370p-motherboard-driver-downloads/"><u>Update Your System with Gigabyte's Z3 cuoZ370P Motherboard Driver Downloads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-asmrs-role-in-better-nights-expert-vocal-guides/"><u>[New] 2024 Approved ASMR's Role in Better Nights Expert Vocal Guides</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pinnacle-top-5-camcorders-for-flexible-filming/"><u>[New] In 2024, Pinnacle Top 5 Camcorders for Flexible Filming</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-optimizing-your-fb-live-on-zoom-stream-for-2024/"><u>[New] Optimizing Your FB Live on Zoom Stream for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unveiling-user-experiences-tiktok-and-snaps-comparison/"><u>[New] Unveiling User Experiences TikTok and Snap's Comparison</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-reducing-loudness-gradually-techniques-for-logic-pro-users/"><u>2024 Approved Reducing Loudness Gradually Techniques for Logic Pro Users</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-xiaomi-civi-3-disney-100th-anniversary-edition-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Xiaomi Civi 3 Disney 100th Anniversary Edition without App | Dr.fone</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/best-4-elon-musk-voice-generators-to-make-you-sound-like-the-billionaire-for-2024/"><u>Best 4 Elon Musk Voice Generators to Make You Sound Like the Billionaire for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-online-personas-facebook-pages-vs-unames/"><u>Deciphering Online Personas: FaceBook Pages vs UNAMES</u></a></li>
+<li><a href="https://win11.techidaily.com/disabling-unwanted-edge-keyboard-hotkeys/"><u>Disabling Unwanted Edge Keyboard Hotkeys</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/from-shot-to-spectacle-pro-tips-for-transformative-photographic-edits-for-2024/"><u>From Shot to Spectacle Pro Tips for Transformative Photographic Edits for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-different-ways-to-find-pokemon-go-trainer-codes-to-add-to-your-account-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Here are Different Ways to Find Pokemon Go Trainer Codes to Add to Your Account On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/horizon-hurdlers-celebrating-the-most-staying-power-drones/"><u>Horizon Hurdlers Celebrating the Most Staying Power Drones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-quick-click-compilation-top-10-fastest-phone-and-pc-apps/"><u>In 2024, Quick Click Compilation Top 10 Fastest Phone & PC Apps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/scholarly-screening-top-10-educational-equipment-to-preserve-lectures-for-2024/"><u>Scholarly Screening Top 10 Educational Equipment to Preserve Lectures for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unblocking-mystery-tracking-fb-banned-friends/"><u>Unblocking Mystery: Tracking FB Banned Friends</u></a></li>
 </ul></div>
 

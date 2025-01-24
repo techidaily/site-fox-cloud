@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Smooth Shifts  Audio Transition Wisdom From Sonar by Platinum\""
-date: 2025-01-11T17:17:43.890Z
-updated: 2025-01-18T06:34:22.544Z
+date: 2025-01-20T20:55:05.066Z
+updated: 2025-01-24T19:33:15.979Z
 tags: 
   - screen-recording
   - ai video
@@ -38,7 +38,7 @@ Your audio files should be imported into two new stereo Audio Tracks that you cr
 ![create two tracks logic prox](https://images.wondershare.com/filmora/article-images/2022/07/create-two-tracks-logic-prox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step2 Connect Two Audio Regions
@@ -53,10 +53,6 @@ You will choose every region on a track when you browse to it in the track heade
 
 ![change fade tool logic prox](https://images.wondershare.com/filmora/article-images/2022/07/change-fade-tool-logic-prox.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4 Create a crossfade
 
 Although it works as intended, moving the volume fader on one of the channel strips to switch between two recordings is not really enjoyable. Let's make the crossfader larger.
@@ -65,7 +61,15 @@ Although it works as intended, moving the volume fader on one of the channel str
 
 ![create crossfade logic prox](https://images.wondershare.com/filmora/article-images/2022/07/create-crossfade-logic-prox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You now have total discretion over the fader's look. Changing it afterwards is always an option; just choose the appropriate Style in the Inspector.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Alternative Way to Crossfade Audio
 
@@ -84,7 +88,7 @@ Due to the likelihood that you have previously downloaded and installed the prog
 ![launch filmora and add files](https://images.wondershare.com/filmora/guide/get-started-with-filmora-03.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Additionally, the software may import several file types. Then, these files may be modified utilizing functions like smooth-fading and synchronization.
@@ -98,6 +102,10 @@ As you did when you imported and moved your audio files across the timeline as p
 In the next step, the two icons will appear above the audio file after you've chosen it in the timeline and selected the audio file you wish to modify. Drag the first one to the time you want the audio fade-in choice to last, as shown:
 
 ![fade the tracks](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click and drag the other icon in Filmora to the required length to complete the fade-out. Playing the file inside the timeline of the Filmora preview layout will allow you to hear the soundtrack.
 
@@ -114,10 +122,6 @@ Your audio, or any particular portion of your audio, may have a variety of trans
 ### 2\. How do I add crossfade?
 
 to make the second clip's audio fade up as the first clip's audio fades down. Audio from both clips is audible during the crossfade. Move the mouse toward the bottom of the track, near to a region border. The pointer will transform into a crossfade-like symbol. A crossfade will emerge, centered on the border, when you click and move the pointer to the left or the right. Cross dissolves, a kind of video transition, are comparable to crossfades.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. How do you crossfade MIDI logic?
 
@@ -149,19 +153,15 @@ Click and drag the other icon in Filmora to the required length to complete the 
 
 Start saving your faded file to your PC in the proper location and format by downloading it there in the last step. Use your software's primary interface's Export button, which is located in the upper right corner, to do this quickly. The edited audio clip may be simply uploaded to your YouTube channel as well. Go to the YouTube menu bar at the top of your Export window as follows, choose Sign in, and then enter your YouTube channel in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to upload and share your audio-altered file straight away:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs of Crossfading
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. What does crossfading mean?
 
 Your audio, or any particular portion of your audio, may have a variety of transitions thanks to the crossfades tool. It's crucial to make a crossfade at the border where the edit takes place while editing. Right side fades in, left side fades out, and the fades cross at the location of the edit. If the cross fade isn't accomplished, it's probable that there may be an audible click or pop.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How do I add crossfade?
 
@@ -195,19 +195,14 @@ Unlike audio fades, MIDI fades are not implemented in the same manner. One metho
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-navigating-the-world-of-spotifys-advertising-landscape/"><u>[New] 2024 Approved Navigating the World of Spotify's Advertising Landscape</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-from-novice-to-specialist-a-step-by-step-journey-through-adobe-ps-background-removal-techniques/"><u>[Updated] 2024 Approved From Novice to Specialist A Step-by-Step Journey Through Adobe PS Background Removal Techniques</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-greatest-20-open-source-copy-free-pubg/"><u>[Updated] Greatest 20 Open Source, Copy-Free PUBG</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-brand-your-content-download-complimentary-templates-for-youtube-makers/"><u>[Updated] In 2024, Brand Your Content Download Complimentary Templates for YouTube Makers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-xplits-rival-software-for-effortless-splits-for-2024/"><u>[Updated] Xplit's Rival Software for Effortless Splits for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-bridging-gaps-in-storytelling-with-skillful-b-roll-insertion/"><u>2024 Approved Bridging Gaps in Storytelling with Skillful B-Roll Insertion</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/7-incredible-ways-chatgpt-can-enhance-your-workday-productivity/"><u>7 Incredible Ways ChatGPT Can Enhance Your Workday Productivity</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixed-incompatibility-between-premiere-pro-and-amdintel-drivers/"><u>Fixed Incompatibility Between Premiere Pro and AMD/Intel Drivers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-action-camera-mics-top-tier-selection-unveiled/"><u>In 2024, Action Camera Mics Top-Tier Selection Unveiled</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/instagrams-blueprint-for-building-a-profitable-presence-for-2024/"><u>Instagram's Blueprint for Building a Profitable Presence for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/learn-to-produce-must-see-fb-music-videos-today/"><u>Learn to Produce Must-See FB Music Videos Today</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/prestigious-music-archives-for-vfx-artists-for-2024/"><u>Prestigious Music Archives for VFX Artists for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/quick-solutions-to-fix-continuously-crashing-windows-explorer-errors/"><u>Quick Solutions to Fix Continuously Crashing Windows Explorer Errors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/trasforma-i-tuoi-file-mp4-gratuitamente-in-m4a-usando-lonline-convertitore-di-movavi/"><u>Trasforma I Tuoi File MP4 Gratuitamente in M4A Usando L'Online Convertitore Di Movavi</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-evaluating-the-efficacy-of-magix-picture-tool/"><u>[New] 2024 Approved Evaluating the Efficacy of MAGIX Picture Tool</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-from-social-media-savant-to-money-maker-on-instagram/"><u>[Updated] In 2024, From Social Media Savant to Money Maker on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-art-of-iphone-photos-arrangement-strategies-and-icloud-coordination/"><u>[Updated] In 2024, The Art of iPhone Photos Arrangement Strategies and iCloud Coordination</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-photomod-editor-skills-review/"><u>[Updated] PhotoMod Editor Skills Review</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-future-of-high-resolution-viewing-an-overview-of-asuss-proart-pa-329q-monitor/"><u>2024 Approved The Future of High-Resolution Viewing An Overview of Asus's ProArt PA 329Q Monitor</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-lighting-essentials-17-tops-reviewed/"><u>2024 Approved YouTube Lighting Essentials - #17 Tops Reviewed</u></a></li>
+<li><a href="https://win-bits.techidaily.com/frei-herunterladen-wie-man-die-efi-partitionsstruktur-von-windows-11-10-8-und-7-kopiert/"><u>Frei Herunterladen: Wie Man Die EFI-Partitionsstruktur Von Windows 11, 10, 8 Und 7 Kopiert</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-fb-sensation-strategies-for-marketers-and-influencers/"><u>In 2024, Fb Sensation Strategies for Marketers and Influencers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-obtaining-high-quality-photos-without-restrictions/"><u>In 2024, Obtaining High-Quality Photos Without Restrictions</u></a></li>
 </ul></div>
 

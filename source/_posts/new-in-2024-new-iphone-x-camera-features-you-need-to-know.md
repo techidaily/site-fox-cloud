@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, New iPhone X Camera Features You Need to Know"
-date: 2025-01-13T13:42:53.836Z
-updated: 2025-01-18T01:41:56.485Z
+date: 2025-01-17T19:14:20.673Z
+updated: 2025-01-24T20:29:34.675Z
 tags: 
   - screen-recording
   - ai video
@@ -38,13 +38,13 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -75,7 +75,11 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -87,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
  The phone has also been praised for its wide range between light and dark colours. The Face ID function has proved to be incredibly secure, unlike earlier facial recognition systems which could easily be tricked by with the use of photographs or videos. It’s now possible to be more creative than ever with your iPhone’s camera whilst benefiting from a wealth of robust security features.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -127,17 +127,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-a-step-by-step-guide-to-professionalizing-your-personal-brand-on-fb-stories-for-2024/"><u>[New] A Step-by-Step Guide to Professionalizing Your Personal Brand on FB Stories for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-accelerate-document-creation-learning-ms-words-speech-feature/"><u>[Updated] 2024 Approved Accelerate Document Creation Learning MS Word's Speech Feature</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-amplify-your-messages-a-guide-to-effective-telegram-advertising/"><u>[Updated] 2024 Approved Amplify Your Messages A Guide to Effective Telegram Advertising</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-supreme-selection-ideal-sierra-dvd-and-video-apps/"><u>[Updated] 2024 Approved Supreme Selection Ideal Sierra Dvd & Video Apps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-a-novices-navigational-guide-on-youtube-channel-creation-and-making-dough/"><u>[Updated] A Novice's Navigational Guide on YouTube Channel Creation and Making Dough</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-peak-craft-space-25-appraisal/"><u>[Updated] In 2024, Peak Craft Space 25 Appraisal</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-apple-iphone-7-plus-and-ipad-screen-mirroring-app-drfone-by-drfone-ios/"><u>Best Apple iPhone 7 Plus & iPad Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/getting-your-steelseries-arctis-5-up-to-speed-driver-download-and-setup/"><u>Getting Your SteelSeries Arctis 5 up to Speed: Driver Download and Setup</u></a></li>
-<li><a href="https://win-guides.techidaily.com/identifying-secure-and-dependable-digital-coin-trading-services-with-yl-tech-advice/"><u>Identifying Secure and Dependable Digital Coin Trading Services with YL Tech Advice</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-nubia-z50s-pro-easily-by-drfone-android/"><u>In 2024, How To Unlock a Nubia Z50S Pro Easily?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-superior-2-written-by-robert-littell/"><u>In 2024, Superior 2 Written by Robert Littell</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-vida-edits-with-ease-a-user-centric-perspective-review/"><u>In 2024, Vida Edits with Ease A User-Centric Perspective Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-strategic-approaches-to-googles-podcast-submission-protocol/"><u>[New] In 2024, Strategic Approaches to Google’s Podcast Submission Protocol</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-cutting-edge-tools-to-snatch-and-save-videos-flawlessly/"><u>[Updated] In 2024, Cutting-Edge Tools to Snatch and Save Videos Flawlessly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-deciphering-digital-impositions-on-reality/"><u>[Updated] In 2024, Deciphering Digital Impositions on Reality</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-export-troubleshooting-saving-your-premieres-srt-data/"><u>[Updated] In 2024, Export Troubleshooting Saving Your Premiere's SRT Data</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-sprint-through-time-uncovering-discarded-reddit-content/"><u>[Updated] Sprint Through Time Uncovering Discarded Reddit Content</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-tiktok-bio-enhancement-with-direct-url-integration/"><u>[Updated] TikTok Bio Enhancement with Direct URL Integration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ultimate-live-setting-picks-for-2024/"><u>[Updated] Ultimate Live Setting Picks for 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/aac-flacaac/"><u>AACへの簡単なフラックコンバータ - FLACからAACへ変換ガイド</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-vivo-v30-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-infinix-smart-7-hd-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Infinix Smart 7 HD Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://win-web3.techidaily.com/salon-le-salon-est-generalement-utilise-pour-la-detente-les-activites-familiales-telles-que-jouer-avec-les-enfants-regarder-de-la-television-ou-du-contenu-s333/"><u>Salon : Le Salon Est Généralement Utilisé Pour La Détente, Les Activités Familiales Telles Que Jouer Avec Les Enfants, Regarder De La Télévision Ou Du Contenu Sur Des Appareils Mobiles, Lire Des Livres Ou Simplement Se Reposer Après Une Longue Journée.</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tips-to-improve-profile-cover-videos/"><u>Tips to Improve Profile Cover Videos</u></a></li>
 </ul></div>
 

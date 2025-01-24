@@ -1,7 +1,7 @@
 ---
 title: "[New] The Mystery of Sideways Instagram Videography"
-date: 2025-01-14T21:26:41.890Z
-updated: 2025-01-17T22:22:42.332Z
+date: 2025-01-17T18:33:46.246Z
+updated: 2025-01-24T21:49:41.422Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ Because Instagram is built to display videos in landscape mode, it may be flippi
 
 So, when you post a vertical video to Instagram Stories from your camera roll, it is automatically cropped to a 9:16 aspect ratio. Because your phone camera didn't automatically alter the orientation before you started filming, films filmed horizontally can sometimes be posted sideways.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to rotate videos for Instagram?
 
 Individuals currently choose to capture films utilizing high-resolution cameras rather than large video cameras on mobile devices. However, you may overlook the video's orientation, resulting in a completely reversed recording.
@@ -44,10 +40,6 @@ Individuals currently choose to capture films utilizing high-resolution cameras 
 Don't be alarmed! You can easily restore the video to its original state using various free programs (instead of turning your neck to watch the video). Here are a few basic tools for rotating, flipping, and turning your videos (both software and web-based options).
 
 Many applications and softwares can be used to rotate videoes, but among all of them, Filmora is one of the highly recommended software.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Filmora
 
@@ -69,233 +61,9 @@ By dragging the "Scale" button, you can make the image a full screen or alter th
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-3.jpg)
 
-**Step 3: Export the video**
-
-When you're happy, click export. You can alter the format of your work right here, or you can upload it to YouTube.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-4.jpg)
-
-### 2\. Veed.io
-
-Compatibility: Online
-
-VEED is a web-based video editor that allows you to create and modify videos quickly. It's free to use, and the instructions for rotating video clips are straightforward. In addition, you can use VEED to add subtitles, music, and GIFs, or merge and combine your videos online and rotate them.
-
-**Step 1: Import the video:**
-
-Click on 'browse video' to choose a video file from your computer to upload.
-
-Whether or not you have a VEED account, you can upload and edit your video. You can also record a new video or use other upload mechanisms like Dropbox or a YouTube URL using VEED.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-5.jpg)
-
-**Step 2: Rotate the video:**
-
-Allow time for the upload to complete. The rotating button will display above the image when you click it. To change the direction of your movie, drag this button. Under the 'Adjust' menu, you may also write the exact rotation angle.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-6.jpg)
-
-**Step 3: Export the rotated video:**
-
-The rotating video will be saved when you click 'Export,' which you may publish to your Instagram feed.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-7.jpg)
-
-You can download your video in a variety of resolutions, including Standard, HD, 4K, Super-8, and Cinematic.
-
-Other video resolutions that you can export are Instagram, Twitter, and YouTube (4K, 1440P, 1080P, and 720P) video resolutions, which already contain the right settings — like file size and frames per second — for each site, so you don't have to fiddle with the details.
-
-### 3\. Movavi Clips
-
-Compatibility: Android
-
-Almost every Android user who enjoys recording movies on their phones has been in this situation: you accidentally shot a video in portrait mode rather than landscape mode. Unfortunately, you didn't realize it until it was too late. Your video may be a failure, but there is a simple solution.
-
-Use Movavi Clips to adjust the orientation of your video. This useful program can assist you with various activities, like rotating and cropping your video, adding audio and narration, applying effects and stickers, and much more! Install Movavi Clips on your Android phone and follow the instructions below to learn how to rotate a video.
-
-**Step 1: Install Movavi Clips on your device**
-
-Install Movavi Clips on your Android device by going to Google Play and searching for it. After the installation is complete, open the program by tapping the Movavi Clips icon.
-
-**Step 2: Import Video**
-
-You'll notice an active arrow pointing to the Plus icon as soon as you open the app. Choose a video by tapping this icon.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-8.jpg)
-
-Then tap Start editing on the video you wish to fix.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-9.jpg)
-
-**Step 3: Rotate the video**
-
-Tap the Rotate symbol on your Android device to rotate a video. It will counterclockwise rotate your movie by 90 degrees. Continue tapping the icon until you get the desired outcome.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-10.jpg)
-
-**Step 4: Save the video**
-
-Tap the Save icon in the top right corner of the screen once you've completed editing.
-
-Tap the Save button after previewing your video. It's as simple as that! With Movavi Clips, rotating videos is a breeze.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-11.jpg)
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
-
-### 4\. VLC Media Player
-
-Compatibility: Windows/Mac/iOS/Android
-
-VLC Media Player is a completely free program. People usually think of VLC as a media player, but it's a video editor if you dig further. It can also run on practically all systems, including Windows, Linux, Mac OS X, iOS, and Android as an open-source player. More crucially, it allows you to rotate and flip videos effortlessly. The instructions for rotating a video with VLC Media Player are listed below.
-
-Step 1: Open the VLC media player and load the video you want to rotate.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-13.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-Step 2: Select Effects and Filters from the Tools menu. Then go to the Video Effects menu to rotate your videos.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-14.jpg)
-
-Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific direction, check the Transform box. You have the option to rotate 180, 90, or 270 degrees. In addition, you can rotate the movie at a specific angle.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-15.jpg)
-
-Note: These settings are retained when you start a new movie, so remember to uncheck the rotation.
-
-Bottom Line:
-
-You can easily rotate your videos according to the guidelines of the social media platforms such as Instagram. And you can solve many of your video editing difficulties in a single click with this program and improve the quality of your videos without watching a thousand YouTube videos to get it right.
-
-**Step 2: Rotate the video**
-
-Double-click the video clip on the timeline to open the video editing window. Under the "Transform" menu, look for the "Rotate" option. You can change the rotation value by sliding the slider or entering a certain value. It is possible to rotate up to 360o. For example, if you want to rotate this clip 90 degrees, write "90" in the box, and the video clip will be rotated.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-2.jpg)
-
-By dragging the "Scale" button, you can make the image a full screen or alter the position, size, shape, and other aspects of the image directly in the Viewer panel.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-3.jpg)
-
-**Step 3: Export the video**
-
-When you're happy, click export. You can alter the format of your work right here, or you can upload it to YouTube.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### 2\. Veed.io
-
-Compatibility: Online
-
-VEED is a web-based video editor that allows you to create and modify videos quickly. It's free to use, and the instructions for rotating video clips are straightforward. In addition, you can use VEED to add subtitles, music, and GIFs, or merge and combine your videos online and rotate them.
-
-**Step 1: Import the video:**
-
-Click on 'browse video' to choose a video file from your computer to upload.
-
-Whether or not you have a VEED account, you can upload and edit your video. You can also record a new video or use other upload mechanisms like Dropbox or a YouTube URL using VEED.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-5.jpg)
-
-**Step 2: Rotate the video:**
-
-Allow time for the upload to complete. The rotating button will display above the image when you click it. To change the direction of your movie, drag this button. Under the 'Adjust' menu, you may also write the exact rotation angle.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-6.jpg)
-
-**Step 3: Export the rotated video:**
-
-The rotating video will be saved when you click 'Export,' which you may publish to your Instagram feed.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-7.jpg)
-
-You can download your video in a variety of resolutions, including Standard, HD, 4K, Super-8, and Cinematic.
-
-Other video resolutions that you can export are Instagram, Twitter, and YouTube (4K, 1440P, 1080P, and 720P) video resolutions, which already contain the right settings — like file size and frames per second — for each site, so you don't have to fiddle with the details.
-
-### 3\. Movavi Clips
-
-Compatibility: Android
-
-Almost every Android user who enjoys recording movies on their phones has been in this situation: you accidentally shot a video in portrait mode rather than landscape mode. Unfortunately, you didn't realize it until it was too late. Your video may be a failure, but there is a simple solution.
-
-Use Movavi Clips to adjust the orientation of your video. This useful program can assist you with various activities, like rotating and cropping your video, adding audio and narration, applying effects and stickers, and much more! Install Movavi Clips on your Android phone and follow the instructions below to learn how to rotate a video.
-
-**Step 1: Install Movavi Clips on your device**
-
-Install Movavi Clips on your Android device by going to Google Play and searching for it. After the installation is complete, open the program by tapping the Movavi Clips icon.
-
-**Step 2: Import Video**
-
-You'll notice an active arrow pointing to the Plus icon as soon as you open the app. Choose a video by tapping this icon.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-8.jpg)
-
-Then tap Start editing on the video you wish to fix.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-9.jpg)
-
-**Step 3: Rotate the video**
-
-Tap the Rotate symbol on your Android device to rotate a video. It will counterclockwise rotate your movie by 90 degrees. Continue tapping the icon until you get the desired outcome.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-10.jpg)
-
-**Step 4: Save the video**
-
-Tap the Save icon in the top right corner of the screen once you've completed editing.
-
-Tap the Save button after previewing your video. It's as simple as that! With Movavi Clips, rotating videos is a breeze.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-11.jpg)
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
-
-### 4\. VLC Media Player
-
-Compatibility: Windows/Mac/iOS/Android
-
-VLC Media Player is a completely free program. People usually think of VLC as a media player, but it's a video editor if you dig further. It can also run on practically all systems, including Windows, Linux, Mac OS X, iOS, and Android as an open-source player. More crucially, it allows you to rotate and flip videos effortlessly. The instructions for rotating a video with VLC Media Player are listed below.
-
-Step 1: Open the VLC media player and load the video you want to rotate.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-13.jpg)
-
-Step 2: Select Effects and Filters from the Tools menu. Then go to the Video Effects menu to rotate your videos.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-14.jpg)
-
-Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific direction, check the Transform box. You have the option to rotate 180, 90, or 270 degrees. In addition, you can rotate the movie at a specific angle.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-15.jpg)
-
-Note: These settings are retained when you start a new movie, so remember to uncheck the rotation.
-
-Bottom Line:
-
-You can easily rotate your videos according to the guidelines of the social media platforms such as Instagram. And you can solve many of your video editing difficulties in a single click with this program and improve the quality of your videos without watching a thousand YouTube videos to get it right.
-
-**Step 2: Rotate the video**
-
-Double-click the video clip on the timeline to open the video editing window. Under the "Transform" menu, look for the "Rotate" option. You can change the rotation value by sliding the slider or entering a certain value. It is possible to rotate up to 360o. For example, if you want to rotate this clip 90 degrees, write "90" in the box, and the video clip will be rotated.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-By dragging the "Scale" button, you can make the image a full screen or alter the position, size, shape, and other aspects of the image directly in the Viewer panel.
-
-![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-3.jpg)
 
 **Step 3: Export the video**
 
@@ -351,6 +119,10 @@ You'll notice an active arrow pointing to the Plus icon as soon as you open the 
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then tap Start editing on the video you wish to fix.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-9.jpg)
@@ -360,10 +132,6 @@ Then tap Start editing on the video you wish to fix.
 Tap the Rotate symbol on your Android device to rotate a video. It will counterclockwise rotate your movie by 90 degrees. Continue tapping the icon until you get the desired outcome.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 4: Save the video**
 
@@ -376,7 +144,7 @@ Tap the Save button after previewing your video. It's as simple as that! With Mo
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. VLC Media Player
@@ -392,6 +160,10 @@ Step 1: Open the VLC media player and load the video you want to rotate.
 Step 2: Select Effects and Filters from the Tools menu. Then go to the Video Effects menu to rotate your videos.
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific direction, check the Transform box. You have the option to rotate 180, 90, or 270 degrees. In addition, you can rotate the movie at a specific angle.
 
@@ -478,7 +250,7 @@ Tap the Rotate symbol on your Android device to rotate a video. It will counterc
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4: Save the video**
@@ -490,10 +262,6 @@ Tap the Save button after previewing your video. It's as simple as that! With Mo
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-11.jpg)
 
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. VLC Media Player
 
@@ -514,8 +282,240 @@ Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific d
 ![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-15.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Note: These settings are retained when you start a new movie, so remember to uncheck the rotation.
+
+Bottom Line:
+
+You can easily rotate your videos according to the guidelines of the social media platforms such as Instagram. And you can solve many of your video editing difficulties in a single click with this program and improve the quality of your videos without watching a thousand YouTube videos to get it right.
+
+**Step 2: Rotate the video**
+
+Double-click the video clip on the timeline to open the video editing window. Under the "Transform" menu, look for the "Rotate" option. You can change the rotation value by sliding the slider or entering a certain value. It is possible to rotate up to 360o. For example, if you want to rotate this clip 90 degrees, write "90" in the box, and the video clip will be rotated.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-2.jpg)
+
+By dragging the "Scale" button, you can make the image a full screen or alter the position, size, shape, and other aspects of the image directly in the Viewer panel.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-3.jpg)
+
+**Step 3: Export the video**
+
+When you're happy, click export. You can alter the format of your work right here, or you can upload it to YouTube.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-4.jpg)
+
+### 2\. Veed.io
+
+Compatibility: Online
+
+VEED is a web-based video editor that allows you to create and modify videos quickly. It's free to use, and the instructions for rotating video clips are straightforward. In addition, you can use VEED to add subtitles, music, and GIFs, or merge and combine your videos online and rotate them.
+
+**Step 1: Import the video:**
+
+Click on 'browse video' to choose a video file from your computer to upload.
+
+Whether or not you have a VEED account, you can upload and edit your video. You can also record a new video or use other upload mechanisms like Dropbox or a YouTube URL using VEED.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-5.jpg)
+
+**Step 2: Rotate the video:**
+
+Allow time for the upload to complete. The rotating button will display above the image when you click it. To change the direction of your movie, drag this button. Under the 'Adjust' menu, you may also write the exact rotation angle.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-6.jpg)
+
+**Step 3: Export the rotated video:**
+
+The rotating video will be saved when you click 'Export,' which you may publish to your Instagram feed.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-7.jpg)
+
+You can download your video in a variety of resolutions, including Standard, HD, 4K, Super-8, and Cinematic.
+
+Other video resolutions that you can export are Instagram, Twitter, and YouTube (4K, 1440P, 1080P, and 720P) video resolutions, which already contain the right settings — like file size and frames per second — for each site, so you don't have to fiddle with the details.
+
+### 3\. Movavi Clips
+
+Compatibility: Android
+
+Almost every Android user who enjoys recording movies on their phones has been in this situation: you accidentally shot a video in portrait mode rather than landscape mode. Unfortunately, you didn't realize it until it was too late. Your video may be a failure, but there is a simple solution.
+
+Use Movavi Clips to adjust the orientation of your video. This useful program can assist you with various activities, like rotating and cropping your video, adding audio and narration, applying effects and stickers, and much more! Install Movavi Clips on your Android phone and follow the instructions below to learn how to rotate a video.
+
+**Step 1: Install Movavi Clips on your device**
+
+Install Movavi Clips on your Android device by going to Google Play and searching for it. After the installation is complete, open the program by tapping the Movavi Clips icon.
+
+**Step 2: Import Video**
+
+You'll notice an active arrow pointing to the Plus icon as soon as you open the app. Choose a video by tapping this icon.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-8.jpg)
+
+Then tap Start editing on the video you wish to fix.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+**Step 3: Rotate the video**
+
+Tap the Rotate symbol on your Android device to rotate a video. It will counterclockwise rotate your movie by 90 degrees. Continue tapping the icon until you get the desired outcome.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-10.jpg)
+
+**Step 4: Save the video**
+
+Tap the Save icon in the top right corner of the screen once you've completed editing.
+
+Tap the Save button after previewing your video. It's as simple as that! With Movavi Clips, rotating videos is a breeze.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
+
+### 4\. VLC Media Player
+
+Compatibility: Windows/Mac/iOS/Android
+
+VLC Media Player is a completely free program. People usually think of VLC as a media player, but it's a video editor if you dig further. It can also run on practically all systems, including Windows, Linux, Mac OS X, iOS, and Android as an open-source player. More crucially, it allows you to rotate and flip videos effortlessly. The instructions for rotating a video with VLC Media Player are listed below.
+
+Step 1: Open the VLC media player and load the video you want to rotate.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-13.jpg)
+
+Step 2: Select Effects and Filters from the Tools menu. Then go to the Video Effects menu to rotate your videos.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-14.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific direction, check the Transform box. You have the option to rotate 180, 90, or 270 degrees. In addition, you can rotate the movie at a specific angle.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-15.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Note: These settings are retained when you start a new movie, so remember to uncheck the rotation.
+
+Bottom Line:
+
+You can easily rotate your videos according to the guidelines of the social media platforms such as Instagram. And you can solve many of your video editing difficulties in a single click with this program and improve the quality of your videos without watching a thousand YouTube videos to get it right.
+
+**Step 2: Rotate the video**
+
+Double-click the video clip on the timeline to open the video editing window. Under the "Transform" menu, look for the "Rotate" option. You can change the rotation value by sliding the slider or entering a certain value. It is possible to rotate up to 360o. For example, if you want to rotate this clip 90 degrees, write "90" in the box, and the video clip will be rotated.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-2.jpg)
+
+By dragging the "Scale" button, you can make the image a full screen or alter the position, size, shape, and other aspects of the image directly in the Viewer panel.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-3.jpg)
+
+**Step 3: Export the video**
+
+When you're happy, click export. You can alter the format of your work right here, or you can upload it to YouTube.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-4.jpg)
+
+### 2\. Veed.io
+
+Compatibility: Online
+
+VEED is a web-based video editor that allows you to create and modify videos quickly. It's free to use, and the instructions for rotating video clips are straightforward. In addition, you can use VEED to add subtitles, music, and GIFs, or merge and combine your videos online and rotate them.
+
+**Step 1: Import the video:**
+
+Click on 'browse video' to choose a video file from your computer to upload.
+
+Whether or not you have a VEED account, you can upload and edit your video. You can also record a new video or use other upload mechanisms like Dropbox or a YouTube URL using VEED.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-5.jpg)
+
+**Step 2: Rotate the video:**
+
+Allow time for the upload to complete. The rotating button will display above the image when you click it. To change the direction of your movie, drag this button. Under the 'Adjust' menu, you may also write the exact rotation angle.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-6.jpg)
+
+**Step 3: Export the rotated video:**
+
+The rotating video will be saved when you click 'Export,' which you may publish to your Instagram feed.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-7.jpg)
+
+You can download your video in a variety of resolutions, including Standard, HD, 4K, Super-8, and Cinematic.
+
+Other video resolutions that you can export are Instagram, Twitter, and YouTube (4K, 1440P, 1080P, and 720P) video resolutions, which already contain the right settings — like file size and frames per second — for each site, so you don't have to fiddle with the details.
+
+### 3\. Movavi Clips
+
+Compatibility: Android
+
+Almost every Android user who enjoys recording movies on their phones has been in this situation: you accidentally shot a video in portrait mode rather than landscape mode. Unfortunately, you didn't realize it until it was too late. Your video may be a failure, but there is a simple solution.
+
+Use Movavi Clips to adjust the orientation of your video. This useful program can assist you with various activities, like rotating and cropping your video, adding audio and narration, applying effects and stickers, and much more! Install Movavi Clips on your Android phone and follow the instructions below to learn how to rotate a video.
+
+**Step 1: Install Movavi Clips on your device**
+
+Install Movavi Clips on your Android device by going to Google Play and searching for it. After the installation is complete, open the program by tapping the Movavi Clips icon.
+
+**Step 2: Import Video**
+
+You'll notice an active arrow pointing to the Plus icon as soon as you open the app. Choose a video by tapping this icon.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-8.jpg)
+
+Then tap Start editing on the video you wish to fix.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-9.jpg)
+
+**Step 3: Rotate the video**
+
+Tap the Rotate symbol on your Android device to rotate a video. It will counterclockwise rotate your movie by 90 degrees. Continue tapping the icon until you get the desired outcome.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-10.jpg)
+
+**Step 4: Save the video**
+
+Tap the Save icon in the top right corner of the screen once you've completed editing.
+
+Tap the Save button after previewing your video. It's as simple as that! With Movavi Clips, rotating videos is a breeze.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-11.jpg)
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-12.jpg)
+
+### 4\. VLC Media Player
+
+Compatibility: Windows/Mac/iOS/Android
+
+VLC Media Player is a completely free program. People usually think of VLC as a media player, but it's a video editor if you dig further. It can also run on practically all systems, including Windows, Linux, Mac OS X, iOS, and Android as an open-source player. More crucially, it allows you to rotate and flip videos effortlessly. The instructions for rotating a video with VLC Media Player are listed below.
+
+Step 1: Open the VLC media player and load the video you want to rotate.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-13.jpg)
+
+Step 2: Select Effects and Filters from the Tools menu. Then go to the Video Effects menu to rotate your videos.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-14.jpg)
+
+Step 3: Select Geometry from the Video Effects subtab. To rotate in a specific direction, check the Transform box. You have the option to rotate 180, 90, or 270 degrees. In addition, you can rotate the movie at a specific angle.
+
+![instagram-turns-video-sideway-](https://images.wondershare.com/filmora/article-images/2022/05/instagram-turns-video-sideway-15.jpg)
 
 Note: These settings are retained when you start a new movie, so remember to uncheck the rotation.
 
@@ -547,24 +547,20 @@ You can easily rotate your videos according to the guidelines of the social medi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-blitz-photo-screening-for-windows-users-for-2024/"><u>[New] Blitz Photo Screening for Windows Users for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-comprehensive-tutorial-inserting-text-into-photographs-on-oses/"><u>[New] In 2024, Comprehensive Tutorial Inserting Text Into Photographs on OSes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-photopony-pro-exploring-affordable-filters/"><u>[New] PhotoPony Pro Exploring Affordable Filters</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-laptoppc-video-editing-tools-apart-from-inshot/"><u>[Updated] 2024 Approved Laptop/PC Video Editing Tools Apart From Inshot</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-mastering-recording-on-googles-platform/"><u>[Updated] 2024 Approved Mastering Recording on Google's Platform</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-crafting-a-standout-solo-podcast-experience/"><u>[Updated] Crafting a Standout Solo Podcast Experience</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-advanced-camera-control-for-iphone-users/"><u>[Updated] In 2024, Advanced Camera Control for iPhone Users</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-photographic-albums-with-soundscape-features-for-2024/"><u>[Updated] Photographic Albums with Soundscape Features for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-selecting-optimal-gopro-protection-top-10-selections/"><u>[Updated] Selecting Optimal GoPro Protection - Top 10 Selections</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-efficient-movie-recording-strategies-across-desktops-and-handhents/"><u>2024 Approved Efficient Movie Recording Strategies Across Desktops and Handhents</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/effortless-setup-of-kodi-189-on-your-amazon-fire-tv-stick-complete-beginners-tutorial/"><u>Effortless Setup of Kodi 18.9 on Your Amazon Fire TV Stick - Complete Beginner's Tutorial</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/examining-gopro-max-and-hero-11-pursuit-of-perfect-footage/"><u>Examining GoPro Max & Hero 11 Pursuit of Perfect Footage</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-funimate-unlocked-a-complete-experience/"><u>In 2024, Funimate Unlocked A Complete Experience</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-icloud-separation-how-to-disconnect-iphone-14-and-ipad-by-drfone-ios/"><u>In 2024, iCloud Separation How To Disconnect iPhone 14 and iPad</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/movavis-free-online-converter-for-trp-to-mpg-facile-e-rapido-da-usare/"><u>Movavi's Free Online Converter for TRP to MPG - Facile E Rapido Da Usare</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/periscope-recording-for-beginners-a-complete-walkthrough-for-2024/"><u>Periscope Recording for Beginners A Complete Walkthrough for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/screencasting-app-performance-examination-for-2024/"><u>ScreenCasting App Performance Examination for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/ultimate-gaming-screens-selecting-the-top-5-ps5/"><u>Ultimate Gaming Screens Selecting the Top 5 (PS5)</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unlocking-untapped-utility-zoom-in-on-minecraft/"><u>Unlocking Untapped Utility Zoom in on Minecraft</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-giggle-guide-to-funny-memes-a-quick-primer-for-2024/"><u>[New] Giggle Guide to Funny Memes A Quick Primer for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-harness-the-power-of-iphones-shutter-speed-for-motion-blurs-for-2024/"><u>[New] Harness the Power of iPhone’s Shutter Speed for Motion Blurs for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-add-transitions-in-kinemaster-for-2024/"><u>[Updated] Add Transitions in Kinemaster for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-bringing-dimensionality-to-text-a-photo-editing-masterclass/"><u>[Updated] Bringing Dimensionality to Text A Photo Editing Masterclass</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-harmonizing-device-media-transfer-protocols/"><u>[Updated] Harmonizing Device Media Transfer Protocols</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-mastering-story-tempo-adjusting-video-speed-in-instagram-for-2024/"><u>[Updated] Mastering Story Tempo Adjusting Video Speed in Instagram for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-newbies-navigation-to-net-worth-on-periscope/"><u>[Updated] Newbie's Navigation to Net Worth on Periscope</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/economical-yet-abundant-dive-into-the-extensive-collection-available-with-roku-express/"><u>Economical Yet Abundant: Dive Into the Extensive Collection Available with Roku Express</u></a></li>
+<li><a href="https://fox-http.techidaily.com/elevating-your-video-posts-with-properly-uploaded-srt-files/"><u>Elevating Your Video Posts with Properly Uploaded SRT Files</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-tecno-spark-20-is-unlocked-by-drfone-android/"><u>How To Check if Your Tecno Spark 20 Is Unlocked</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-xiaomi-civi-3-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Xiaomi Civi 3 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolving-gsvfdlg32dll-missing-file-mishap-a-step-by-step-guide/"><u>Resolving gsvfdlg32.dll Missing File Mishap: A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-that.techidaily.com/simple-steps-to-freshen-up-your-iphone-without-data-loss/"><u>Simple Steps to Freshen Up Your iPhone Without Data Loss</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-essence-of-unaltered-audio-ffmpegs-precision/"><u>The Essence of Unaltered Audio FFmpeg’s Precision</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-hash-tag-guide-for-gamers-youtube-channels/"><u>The Ultimate Hash Tag Guide for Gamers' YouTube Channels</u></a></li>
 </ul></div>
 
