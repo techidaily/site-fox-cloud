@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Uncomplicated Guide to Shooting Breatomed Time-Lapses with GoPro Hero5 Black\""
-date: 2024-08-08T10:38:35.385Z
-updated: 2024-08-09T10:38:35.385Z
+date: 2025-01-29T18:55:38.778Z
+updated: 2025-02-01T07:29:21.585Z
 tags: 
   - screen-recording
   - ai video
@@ -35,9 +35,6 @@ Are you an amateur travel photographer who has recently bought a GoPro cam and w
 * [Part 1:Shooting a time lapse video with GoPro Hero5](#part1)
 * [Part 2: Making time lapse videos with Wondershare Filmora](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Shooting a time lapse video with GoPro Hero5
 
 #### **1. The best time lapse settings in GoPro:**
@@ -82,8 +79,9 @@ Make use of good tripod, a fast and spacious SD card, a suction mount and always
 [Check at Amazon](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Making time lapse videos with Wondershare Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a powerful and easy to use software with which you can edit your time lapse videos. The Filmora action cam version is going to make your job a lot more easy. It comes with 2 new tools-
@@ -92,36 +90,40 @@ The Action Cam Tool- this has the capacity of correcting lens distortion and can
 
 The Instant cutter tool on the other hand can be used for trimming and merging videos quickly and easily without damaging its quality. It supports many video formats like  encoded MP4, MTS and mov video which have been shot on phones, HD cameras and Action cams.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * First, launch the Filmora app and then choose the ‘action cam tool’
 * Next, you need to click the ‘Import’ button or the ‘ Import an Action cam video’ button, so as to import your recorded video to Wondershare Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
 * Click the Add Marker button. Click the speed marker and drag it onto either side of your timeline so as to choose a number of clips on your timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
 * Export your time lapse video to Full Features Mode to edit further, such as adding various filters, overlay and effects. Currently, there are more than 300 Effects, and there is an [ACTION CAM WINTER SET](https://www.filmstocks.com/effects-store-upgrade.html) available now. [Check More](https://www.filmstocks.com/effects-store-upgrade.html)
 
 [Learn more detailed information about how to make a time lapse video in Filmora Full Feature Mode](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -146,6 +148,19 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-reducing-audio-dynamics-in-live-sessions/"><u>[New] 2024 Approved Reducing Audio Dynamics in LIVE Sessions</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-perfecting-snapchat-gifting-a-guide-to-gifs/"><u>[New] In 2024, Perfecting Snapchat Gifting - A Guide to Gifs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-capturing-screenshots-like-a-pro-the-best-recorder-reviews-for-2024/"><u>[Updated] Capturing Screenshots Like a Pro The Best Recorder Reviews for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-enlightenment-echoes-best-ed-tutorials-yt/"><u>[Updated] Enlightenment Echoes Best Ed Tutorials YT</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-exploring-video-platform-differences-twitch-vs-youtube/"><u>[Updated] In 2024, Exploring Video Platform Differences Twitch Vs YouTube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-lower-volume-level-by-level-with-fl-for-2024/"><u>[Updated] Lower Volume Level by Level with FL for 2024</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/7-mit-diesen-vier-zuverlassigen-strategien/"><u>7 Mit Diesen Vier Zuverlässigen Strategien</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-huawei-p60-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Huawei P60?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-repair-hp-officejet-pro-6978-printer-software-issues-quickly/"><u>How to Repair HP OfficeJet Pro 6978 Printer Software Issues Quickly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-best-android-videography-6-must-try-music-videos-apps/"><u>In 2024, Best Android Videography 6 Must-Try Music Videos Apps</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-6-best-offline-translation-tools-your-go-to-guides/"><u>Top 6 Best Offline Translation Tools: Your Go-To Guides</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-the-youtube-algorithm-maximizing-viewership-with-strategic-featured-listings-for-2024/"><u>Unlock the Youtube Algorithm Maximizing Viewership with Strategic Featured Listings for 2024</u></a></li>
+</ul></div>
 

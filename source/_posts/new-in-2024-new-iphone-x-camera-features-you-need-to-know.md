@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, New iPhone X Camera Features You Need to Know"
-date: 2025-01-17T19:14:20.673Z
-updated: 2025-01-24T20:29:34.675Z
+date: 2025-01-29T05:24:36.445Z
+updated: 2025-02-01T07:01:01.627Z
 tags: 
   - screen-recording
   - ai video
@@ -38,13 +38,13 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: TrueDepth Camera
 
  The phone has a brand new rear [camera with two lenses](https://tools.techidaily.com/wondershare/filmora/download/) in a vertical orientation. This new orientation has been chosen to provide more space for the front-facing TrueDepth camera. This camera is tasked with powering the Face ID feature. The TrueDepth system also has a f/2.2 7-megapixel camera for selfies. The feature means Portrait Mode and Portrait Lighting are supported in front-facing mode. With Portrait Lighting, you can dynamically adjust your photo’s lighting with ease. TrueDepth uses an infrared emitter to project more than 30,000 in a recognised pattern onto users’ faces, before photographing the dots for analysis. The function is strengthened with a proximity sensor as well as an ambient light sensor which allows output light levels to be set.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: The importance of depth
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
 ![depth camera](https://images.wondershare.com/filmora/article-images/depth-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to use portrait mode
@@ -75,11 +75,7 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
 ![portrait lighting](https://images.wondershare.com/filmora/article-images/PortraitLighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Video improvement
@@ -88,10 +84,14 @@ thumbnail: https://thmb.techidaily.com/39056fd18de68ad167dab8918139616b0085a3cc7
 
 ![video improvement](https://images.wondershare.com/filmora/article-images/video-improvement.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **You may also like:** [Best iPhone Stabilizers for Video Shooting >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,17 +127,14 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-strategic-approaches-to-googles-podcast-submission-protocol/"><u>[New] In 2024, Strategic Approaches to Google’s Podcast Submission Protocol</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-cutting-edge-tools-to-snatch-and-save-videos-flawlessly/"><u>[Updated] In 2024, Cutting-Edge Tools to Snatch and Save Videos Flawlessly</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-deciphering-digital-impositions-on-reality/"><u>[Updated] In 2024, Deciphering Digital Impositions on Reality</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-export-troubleshooting-saving-your-premieres-srt-data/"><u>[Updated] In 2024, Export Troubleshooting Saving Your Premiere's SRT Data</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-sprint-through-time-uncovering-discarded-reddit-content/"><u>[Updated] Sprint Through Time Uncovering Discarded Reddit Content</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-tiktok-bio-enhancement-with-direct-url-integration/"><u>[Updated] TikTok Bio Enhancement with Direct URL Integration</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-ultimate-live-setting-picks-for-2024/"><u>[Updated] Ultimate Live Setting Picks for 2024</u></a></li>
-<li><a href="https://discover-great.techidaily.com/aac-flacaac/"><u>AACへの簡単なフラックコンバータ - FLACからAACへ変換ガイド</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-vivo-v30-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Vivo V30 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-infinix-smart-7-hd-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Infinix Smart 7 HD Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://win-web3.techidaily.com/salon-le-salon-est-generalement-utilise-pour-la-detente-les-activites-familiales-telles-que-jouer-avec-les-enfants-regarder-de-la-television-ou-du-contenu-s333/"><u>Salon : Le Salon Est Généralement Utilisé Pour La Détente, Les Activités Familiales Telles Que Jouer Avec Les Enfants, Regarder De La Télévision Ou Du Contenu Sur Des Appareils Mobiles, Lire Des Livres Ou Simplement Se Reposer Après Une Longue Journée.</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/tips-to-improve-profile-cover-videos/"><u>Tips to Improve Profile Cover Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-disarray-to-artwork-your-collage-journey/"><u>[New] From Disarray to Artwork Your Collage Journey</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-a-collection-of-inspiration-5-best-book-video-tts/"><u>2024 Approved A Collection of Inspiration 5 Best Book Video TTs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-cinematic-speed-top-cameras-for-slow-motion-videography/"><u>2024 Approved Cinematic Speed Top Cameras for Slow Motion Videography</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-dusk-rising-the-fade-out-process/"><u>2024 Approved Dusk Rising The Fade Out Process</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-prime-8-virtual-vision-composition-program/"><u>2024 Approved Prime 8 Virtual Vision Composition Program</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/conversion-sans-frais-de-ppm-a-jpeg-sur-internet-avec-movavi-transformation-rapide-et-facile/"><u>Conversion Sans Frais De PPM À JPEG Sur Internet Avec MOVAVI - Transformation Rapide Et Facile</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-motorola-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Motorola FRP In 3 Different Ways</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-lenovo-thinkphone-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Lenovo ThinkPhone Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/rune-carved-rhetoric-the-voice-of-vikings-unveiled/"><u>Rune-Carved Rhetoric: The Voice of Vikings Unveiled</u></a></li>
 </ul></div>
 

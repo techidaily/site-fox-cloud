@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Future Speaks  Inspirational Metaverse Quotes with AR/VR\""
-date: 2024-12-23T16:50:39.314Z
-updated: 2024-12-27T16:34:48.895Z
+date: 2025-01-24T19:34:45.990Z
+updated: 2025-02-01T06:02:16.394Z
 tags: 
   - screen-recording
   - ai video
@@ -73,6 +73,10 @@ Our first metaverse quote means that metaverse has turned into the most current 
 
 Change is inevitable, and that abides by reality. Metaverse is evolving by nature. Change makes saints sinners and vice versa. Similarly, dust becomes men, men become gods, and gods turn to dust.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Mark Zuckerberg
 
 Our third metaverse quote is by Mark Zuckerberg.
@@ -82,10 +86,6 @@ India will be a massive and vital part of the metaverse.
 ### 4. Tim Sweeney
 
 ![metaverse quotes tim sweeney](https://images.wondershare.com/filmora/article-images/2021/metaverse-quotes-tim.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The new metaverse will be unavoidable and more powerful. So, if one company controls it, it will become a god and more potent than any government in the world.
 
@@ -138,6 +138,10 @@ VR is our first step towards the adventure land of imagination.
 ![VR quotes mark zuckerberg](https://images.wondershare.com/filmora/article-images/2021/vr-quotes-mark.jpg)
 
 VR was a dream, and so were Internet, computers, and smartphones.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3. Thomas Metzinger
 
@@ -210,6 +214,10 @@ AR is an incredible idea like the idea of the smartphone –Tim Cook.
 ### 6. Justine Bateman
 
 Innovations like AR, iPads, Touchscreen, etc., can be much more if not underused by the entertainment industry - Justine Bateman.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7. Simon Mainwaring
 
@@ -299,10 +307,6 @@ Currently, we look at the Internet, but soon we will in for authentic experience
 
 ![andrew bosworth](https://images.wondershare.com/filmora/article-images/2021/metaverse-quotes-andrew.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 How much would we want other companies or governments to keep a check our conversations in the digital environment?
 
 ### 7. Neal Stephenson
@@ -335,10 +339,6 @@ Let’s discuss the various amazing VR quotes about metaverse with VR technology
 
 ![VR quotes frank biocca](https://images.wondershare.com/filmora/article-images/2021/vr-quotes-frank.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 VR is our first step towards the adventure land of imagination.
 
 ### 2. Mark Zuckerberg
@@ -350,10 +350,6 @@ VR was a dream, and so were Internet, computers, and smartphones.
 ### 3. Thomas Metzinger
 
 ![VR quotes thomas metzinger](https://images.wondershare.com/filmora/article-images/2021/vr-quotes-thomas.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Virtual reality is simply the portrayal of possible universes and conceivable selves, determined to cause them to show up as genuine as could be expected - preferably by making an abstract feeling of "presence" and complete submersion in the client.
 
@@ -385,10 +381,6 @@ The Facebook or Meta CEO Mark Zuckerberg bets that VR, AR, and immersive will be
 
 VR, in theory, holds immense value. However, we must rely on clinical studies that can prove value if VR to healthcare providers becomes acceptable by all.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10. Chris Milk
 
 ![vr quotes chris milk](https://images.wondershare.com/filmora/article-images/2021/vr-quotes-chris.jpg)
@@ -411,6 +403,10 @@ AR and VR in the retail world are desensitizing some cases. Thus, the NHC must t
 
 AR will surely change the way users use technology forever and transform how we read, play, and experience things.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Matt Huybrecht
 
 AR is cheaper, faster than developing a prototype to foresee your product in the world before its launch - Matt Huybrecht.
@@ -422,10 +418,6 @@ Ridge Wilkins says that AR is the start of something new.
 ### 5. Tim Cook
 
 AR is an incredible idea like the idea of the smartphone –Tim Cook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6. Justine Bateman
 
@@ -440,6 +432,10 @@ The social media industry can provide better service with clearer and consistent
 ### 8. Ramez Naam
 
 Neural implants can be a game-changer in enhancing our five senses, including hearing, touching, or even thinking and feeling with others.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. Niklas Stratmann
 
@@ -519,10 +515,6 @@ Currently, we look at the Internet, but soon we will in for authentic experience
 
 ![andrew bosworth](https://images.wondershare.com/filmora/article-images/2021/metaverse-quotes-andrew.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 How much would we want other companies or governments to keep a check our conversations in the digital environment?
 
 ### 7. Neal Stephenson
@@ -649,6 +641,10 @@ Neural implants can be a game-changer in enhancing our five senses, including he
 
 With the proper technology usage, you can make an immense impact.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10. Tim Sweeny
 
 AR will lead us to do everything like chatting, social networking, images, videos, painting, etc. It will combine each form of computing and make it one.
@@ -684,10 +680,6 @@ This article is all about stepping into the most awaited technology in 2024 thro
 Metaverse, coined by Author Neal Stephenson in 1992, was in a science fiction novel "Snow Crash," He wrote about imaginary buildings and avatars. A combination of AR, VR, and videos live in the digital universe. The Meta is formerly known as Facebook. The adventure of metaverse already exists in many online games like Fortnite, Minecraft, and Roblox.
 
 "The next platform & medium will be even more immersive and embodied on Internet where you're in the experience, not just looking at it. We call this the metaverse," said Meta CEO Mark Zuckerberg.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: 10 Metaverse Quotes to Understand the Concepts Easily
 
@@ -745,6 +737,10 @@ Long before, other virtual universes moved from the metaverse to the Matrix. Nex
 
 ![metaverse quote matthew ball](https://images.wondershare.com/filmora/article-images/2021/metaverse-quotes-ball.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The metaverse could comprise a solitary stage or numerous web administrations covering simple exercises. It could incorporate PC designs, AR, VR, and individual symbols and be a spot for clients to interface with one another and the rest of the world in horde ways. Likewise, it could connect to outside financial frameworks to permit individuals to benefit from virtual products.
 
 ### 10. Anuj Jasani
@@ -771,10 +767,6 @@ VR was a dream, and so were Internet, computers, and smartphones.
 
 ![VR quotes thomas metzinger](https://images.wondershare.com/filmora/article-images/2021/vr-quotes-thomas.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Virtual reality is simply the portrayal of possible universes and conceivable selves, determined to cause them to show up as genuine as could be expected - preferably by making an abstract feeling of "presence" and complete submersion in the client.
 
 ### 4. Vanna Bonta
@@ -790,6 +782,10 @@ Research shows that VR can be the most potent tool, impacting the perceptions an
 ### 6. Palmer Luckey
 
 VR can make you forget the real world. You can make something incredible out of it. It can become is most used technology to date - Palmer Luckey.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7. John Goddard
 
@@ -819,6 +815,10 @@ Let’s discuss some exciting AR quotes about how the future could be.
 
 ![AR quotes andrew finlayson](https://images.wondershare.com/filmora/article-images/2021/ar-quotes-andrew.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 AR and VR in the retail world are desensitizing some cases. Thus, the NHC must take a more decisive step towards it.
 
 ### 2. Tim Cook
@@ -847,10 +847,6 @@ Innovations like AR, iPads, Touchscreen, etc., can be much more if not underused
 
 ![AR quotes simon](https://images.wondershare.com/filmora/article-images/2021/ar-quotes-simon.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The social media industry can provide better service with clearer and consistent storytelling by using the latest technology, like AR.
 
 ### 8. Ramez Naam
@@ -860,6 +856,10 @@ Neural implants can be a game-changer in enhancing our five senses, including he
 ### 9. Niklas Stratmann
 
 With the proper technology usage, you can make an immense impact.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10. Tim Sweeny
 
@@ -895,21 +895,22 @@ Therefore, meta or some other organization hoping to get into the metaverse have
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-top-10-hidden-gems-for-enhancing-canva-images/"><u>[New] In 2024, Top 10 Hidden Gems for Enhancing Canva Images</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-winning-approach-to-saving-twitters-humor/"><u>[New] In 2024, Winning Approach to Saving Twitter's Humor</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-complete-handbook-to-securing-product-sponsorships-on-youtube-for-2024/"><u>[New] The Complete Handbook to Securing Product Sponsorships on Youtube for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-basics-of-kinetic-illustration-mastery/"><u>[Updated] 2024 Approved Basics of Kinetic Illustration Mastery</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-expert-pick-prime-drone-gimbals-for-2024/"><u>[Updated] Expert Pick Prime Drone Gimbals for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-capturing-the-cloudscape-insights-into-gopro-karmas-operations/"><u>[Updated] In 2024, Capturing the Cloudscape Insights Into GoPro Karma's Operations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-free-mindset-audio-selection/"><u>[Updated] In 2024, Free Mindset Audio Selection</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-love-in-motion-discovering-youtube-and-vimeos-top-7-wedding-films/"><u>[Updated] In 2024, Love in Motion Discovering YouTube & Vimeo's Top 7 Wedding Films</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/broadcast-strategies-combining-facebook-and-tv/"><u>Broadcast Strategies Combining Facebook and TV</u></a></li>
-<li><a href="https://extra-information.techidaily.com/frozen-frontier-showcasing-2022s-olympic-peaks-and-precision-riders/"><u>Frozen Frontier Showcasing 2022'S Olympic Peaks and Precision Riders</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-birthstones-and-emojis-tailoring-your-whatsapp-profile-by-sign/"><u>In 2024, Birthstones and Emojis Tailoring Your WhatsApp Profile by Sign</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-samsung-galaxy-f15-5g-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Samsung Galaxy F15 5G FRP</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia C22 | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-upgrading-to-big-sur-know-your-hardware-standards/"><u>In 2024, Upgrading to Big Sur? Know Your Hardware Standards</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/navigating-through-excellent-hdr-cam-choices-for-2024/"><u>Navigating Through Excellent HDR Cam Choices for 2024</u></a></li>
-<li><a href="https://win-bits.techidaily.com/speedy-transfer-move-images-from-external-hdd-to-idevices-effortlessly/"><u>Speedy Transfer: Move Images From External HDD to iDevices Effortlessly</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-free-online-video-communication-tools-rated-best/"><u>[New] 2024 Approved Free Online Video Communication Tools Rated Best</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-aerial-cinematography-secrets-unveiled-for-2024/"><u>[New] Aerial Cinematography Secrets Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-saving-social-media-stories-chromes-top-5-tools/"><u>[New] In 2024, Saving Social Media Stories Chromes' Top 5 Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ultimate-guide-to-affordable-vector-art-websites/"><u>[New] In 2024, Ultimate Guide to Affordable Vector Art Websites</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-kickstart-your-stream-must-have-youtube-tools/"><u>[New] Kickstart Your Stream Must-Have YouTube Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-boundless-adventures-exploring-vr-in-games/"><u>[Updated] Boundless Adventures Exploring VR in Games</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-elevating-visuals-by-attaching-youtube-music-tracks/"><u>[Updated] Elevating Visuals by Attaching YouTube Music Tracks</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-free-speech-analysis-and-command-execution/"><u>[Updated] In 2024, Free Speech Analysis & Command Execution</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pickup-or-something-else-unveiling-best-android-photo-editor/"><u>[Updated] PickUp or Something Else? Unveiling Best Android Photo Editor</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comparative-review-of-premium-streaming-services-for-2024/"><u>Comparative Review of Premium Streaming Services for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/how-to-initiate-your-own-blog-product-analysis-edition-for-2024/"><u>How to Initiate Your Own Blog Product Analysis Edition for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-crafting-impact-the-quintessential-five-youtube-marketing-approaches/"><u>In 2024, Crafting Impact The Quintessential Five YouTube Marketing Approaches</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-samsung-galaxy-f54-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Samsung Galaxy F54 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-exploring-new-frontiers-in-gaming-top-titles-for-rift-vive-and-playstation-vr/"><u>In 2024, Exploring New Frontiers in Gaming Top Titles for Rift, Vive, and PlayStation VR</u></a></li>
+<li><a href="https://windows11.techidaily.com/jumpstart-your-pc-activate-classic-windows-photo-viewer-on-win11/"><u>Jumpstart Your PC: Activate Classic Windows Photo Viewer on Win11</u></a></li>
+<li><a href="https://common-error.techidaily.com/solved-making-invisible-networks-appear-on-windows-11s-wi-fi-list/"><u>Solved: Making Invisible Networks Appear on Windows 11'S Wi-Fi List</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-10-web-based-subtitle-editor-tools-for-2024/"><u>Top 10 Web-Based Subtitle Editor Tools for 2024</u></a></li>
 </ul></div>
 

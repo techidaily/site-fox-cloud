@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Filmmaker's Guide to Stunning Spherical Videos (9 Must-Knows)\""
-date: 2025-01-19T18:04:50.789Z
-updated: 2025-01-24T18:34:02.236Z
+date: 2025-01-29T16:22:19.013Z
+updated: 2025-02-01T01:50:45.273Z
 tags: 
   - screen-recording
   - ai video
@@ -33,37 +33,29 @@ thumbnail: https://thmb.techidaily.com/0c48024453358ef6a98b286edd181eb113a17b352
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Select a good camera
 
  It is important that you use a good camera so that you can capture high quality videos. And because it is a developing technology, there are lots of options available, as well as those which are still in development. If you are looking for a good one, then go for a GoPro. A 360 video mount usually allows up to six video cameras to be mounted on it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Prepare enough battery and SD card
 
  When shooting a 360 degree video, you need to have enough battery and SD card. When using a GoPro camera, it requires a lot of power and storage space, especially if you are going to make a long video. It is recommended that you buy battery packs to keep your cameras charged while shooting. You should also bring extra SD cards to ensure that you have adequate storage space.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Make sure all the settings are the same
 
  When using multiple cameras, it is important to make sure that all the setting of each GoPro camera is the same. It is recommended to use manual mode, and turn off white balance, ISO, and color temperature. You should also use 4:3 ratio to ensure you have the largest coverage. That way editing the 360 degree will be easier. There will be fewer corrections to be made with the individual videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. Use unipod instead of a tripod
 
  You need an unipod to keep the camera setup stable at all times, and at the same time allow you to move with ease. Moving with a tripod can be hard. Another benefit of using a unipod is that it is easier to clean after the video shoot because it only has a single leg, compared to the tripod’s three legs.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Keep device at the same height as your line of sight
 
@@ -77,9 +69,17 @@ thumbnail: https://thmb.techidaily.com/0c48024453358ef6a98b286edd181eb113a17b352
 
  When shooting a 360 degree video, you should consider using natural light or utilize a panoramic shooting studio. That way there will be no light device shown in the resulting video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Hide the microphone
 
  For recording the audio, it is best to hide the camera. It is recommended to use a mini microphone when shooting the video. It will provide a more natural sound to other types of microphones. Hopefully in the future cameras are able to capture 360 degree sound that will make the sound shift as the viewer turns one’s head.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. Keep an object in one camera
 
@@ -90,7 +90,7 @@ thumbnail: https://thmb.techidaily.com/0c48024453358ef6a98b286edd181eb113a17b352
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -118,18 +118,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-optimizing-engagement-how-to-block-on-insta/"><u>[New] 2024 Approved Optimizing Engagement How to Block on Insta</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-incredibly-swift-blackouts/"><u>[New] Incredibly Swift Blackouts</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-strategic-marketing-websites-for-youtube-videos/"><u>[Updated] 2024 Approved Strategic Marketing Websites for YouTube Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-from-copycat-to-originalist-crafting-funny-relatable-memes-for-2024/"><u>[Updated] From Copycat to Originalist Crafting Funny, Relatable Memes for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-immersive-image-tech-best-10-phone-cameras-for-stunning-4k-visuals/"><u>[Updated] Immersive Image Tech Best 10 Phone Cameras for Stunning 4K Visuals</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-magix-acid-pro-critique-and-comparable-products/"><u>[Updated] In 2024, Magix ACID Pro Critique & Comparable Products</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-quick-scale-your-iphones-viewport-for-2024/"><u>[Updated] Quick Scale Your iPhone's Viewport for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/best-no-cost-dvd-players-compatible-with-macos-big-sur-and-older-versions-top-10-picks/"><u>Best No-Cost DVD Players Compatible with macOS Big Sur & Older Versions: Top 10 Picks</u></a></li>
-<li><a href="https://win-able.techidaily.com/cracking-the-code-stop-dauntless-from-crashing-on-your-computer-now/"><u>Cracking the Code: Stop Dauntless From Crashing on Your Computer Now!</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/crafting-visual-wonders-the-art-of-3d-text-in-psartwork/"><u>Crafting Visual Wonders The Art of 3D Text in PSArtwork</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/excel-mastery-discover-the-three-key-benefits-of-integrating-chabtgpt-into-your-spreadsheets/"><u>Excel Mastery: Discover the Three Key Benefits of Integrating ChabTGPT Into Your Spreadsheets</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/preventing-invisible-displays-when-gaming-on-win-os/"><u>Preventing Invisible Displays When Gaming on Win OS</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/tailor-your-own-outro-with-free-sound-samples/"><u>Tailor Your Own Outro with Free Sound Samples</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-individual-tracks-to-albums-building-a-personalized-soundtrack-on-web-and-mobile/"><u>[New] 2024 Approved From Individual Tracks to Albums Building a Personalized Soundtrack on Web & Mobile</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-clearing-up-that-persistent-green-tint-in-youtube-videos-on-mac/"><u>[New] In 2024, Clearing Up that Persistent Green Tint in YouTube Videos on Mac</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-gradual-volume-reduction-in-studio-projects-using-logic-pro/"><u>[New] In 2024, Gradual Volume Reduction in Studio Projects Using Logic Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-navigating-the-world-of-audio-editing-with-garageband/"><u>[New] In 2024, Navigating the World of Audio Editing with GarageBand</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-reviewing-the-next-level-in-mobile-video-with-samsung-s8/"><u>[New] In 2024, Reviewing the Next Level in Mobile Video with Samsung S8</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-tailored-video-epilogue-templates-available-free/"><u>[New] In 2024, Tailored Video Epilogue Templates Available Free</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-whip-up-your-own-web-humor-snippet-for-2024/"><u>[New] Whip Up Your Own Web Humor Snippet for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-facebook-profile-transformation-top-11-online-image-makers/"><u>[Updated] 2024 Approved Facebook Profile Transformation Top 11 Online Image Makers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-high-definition-wonders-with-the-nikon-d500/"><u>[Updated] In 2024, High Definition Wonders with the Nikon D500</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-fresh-film-enthusiasts-primer-on-visual-quality/"><u>[Updated] In 2024, The Fresh Film Enthusiast’s Primer on Visual Quality</u></a></li>
+<li><a href="https://win-blog.techidaily.com/comprehensive-fixes-for-steamvrs-frustrating-error-308/"><u>Comprehensive Fixes for SteamVR's Frustrating Error 308</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/effortless-photo-tidying-up-top-6-iphone-object-removing-programs/"><u>Effortless Photo Tidying Up Top 6 iPhone Object-Removing Programs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/guide-to-acquiring-and-setting-up-toshiba-printing-software-on-windows-machines/"><u>Guide to Acquiring and Setting up Toshiba Printing Software on Windows Machines</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-repair-a-malfunctioning-shift-key-a-step-by-step-guide/"><u>How to Repair a Malfunctioning Shift Key: A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/precision-evaluation-a-vll-approach-to-apps/"><u>Precision Evaluation A VLL Approach to Apps</u></a></li>
+<li><a href="https://win-great.techidaily.com/recovering-lost-files-from-erased-drives-a-guide-to-restoring-data-after-partition-deletion/"><u>Recovering Lost Files From Erased Drives: A Guide to Restoring Data After Partition Deletion</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-the-issue-why-evil-genius-2-failed-to-start/"><u>Resolving the Issue: Why Evil Genius 2 Failed to Start</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-key-to-successful-video-engagement-adding-interactive-elements-via-youtube-annotations-for-2024/"><u>The Key to Successful Video Engagement Adding Interactive Elements via YouTube Annotations for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-12-mini-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone 12 mini</u></a></li>
 </ul></div>
 
