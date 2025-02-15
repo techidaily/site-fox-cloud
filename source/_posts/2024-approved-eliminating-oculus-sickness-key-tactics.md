@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Eliminating Oculus Sickness  Key Tactics\""
-date: 2024-08-23T01:28:11.107Z
-updated: 2024-08-24T01:28:11.107Z
+date: 2025-02-09T05:44:48.586Z
+updated: 2025-02-15T01:07:53.994Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/83a5e7f4b304717df57e5c96a8beb60fe39d76126
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 ways to prevent Oculus Rift motion sickness
 
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/83a5e7f4b304717df57e5c96a8beb60fe39d76126
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -57,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/83a5e7f4b304717df57e5c96a8beb60fe39d76126
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -81,13 +93,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-exploring-the-best-phone-apps-to-modify-voice-quality/"><u>[New] 2024 Approved Exploring the Best Phone Apps to Modify Voice Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-broadcast-your-online-meeting-via-youtube-google-meet-steps/"><u>[New] 2024 Approved How To Broadcast Your Online Meeting via YouTube - Google Meet Steps</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-snap-share-thrive-on-instagram/"><u>[New] 2024 Approved Snap, Share, Thrive on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-free-and-paid-canvas-creations-apps-for-pc-users-for-2024/"><u>[New] Best Free & Paid Canvas Creations Apps for PC Users for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-inside-the-innovative-world-of-intova-x-for-2024/"><u>[New] Inside the Innovative World of Intova X for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-premiere-pros-full-scene-showcase-guide/"><u>[Updated] 2024 Approved Premiere Pro's Full Scene Showcase Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-pixel-power-the-best-for-web-video-gems/"><u>[Updated] In 2024, Pixel Power The Best for Web Video Gems</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-poker-playpersonalized-projections-for-2024/"><u>[Updated] POKER PLAYPERSONALIZED PROJECTIONS for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-snappy-side-hustles-earning-with-snapchat/"><u>2024 Approved Snappy Side Hustles Earning with Snapchat</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/androidflv/"><u>Android上で簡単にFLV動画が視聴可能になる手順集</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/flawless-syncing-adding-soundtracks-to-inshot-for-2024/"><u>Flawless Syncing Adding Soundtracks to Inshot for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-iphones-potential-podcast-harmony/"><u>In 2024, Unlocking iPhone's Potential - Podcast Harmony</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-zero-dollar-zenith-where-budget-meets-beautiful-tiktok-bgs/"><u>In 2024, Zero-Dollar Zenith Where Budget Meets Beautiful TikTok BGs</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/move-beyond-ms-phone-link-with-our-exceptional-mobile-connectivity-app/"><u>Move Beyond MS Phone Link with Our Exceptional Mobile Connectivity App</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-change-the-impact-of-smart-lens-technology-on-biking-displays-cyclistinnovations/"><u>Navigating Change: The Impact of Smart Lens Technology on Biking Displays | CyclistInnovations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/peering-behind-the-scenes-of-youtube-reviews/"><u>Peering Behind the Scenes of YouTube Reviews</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/samsung-galaxy-z-fold-6-price-release-date-specs-and-news/"><u>Samsung Galaxy Z Fold 6: Price, Release Date, Specs, and News</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/supercharge-your-social-media-experience-with-the-best-chrome-vids-extensions/"><u>Supercharge Your Social Media Experience with the Best Chrome Vids Extensions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unrivaled-sonic-union-for-speakers/"><u>Unrivaled Sonic Union for Speakers</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->

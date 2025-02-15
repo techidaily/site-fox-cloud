@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Exploring High Frame Rate Filming with YI\""
-date: 2024-08-15T18:07:50.605Z
-updated: 2024-08-16T18:07:50.605Z
+date: 2025-02-07T20:59:39.434Z
+updated: 2025-02-14T20:58:07.319Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 **You may also like:** [Top 15 Best Action Cameras >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Complete Review for Yi 4k Action Camera
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01FU9ZIMU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01FU9ZIMU&linkId=8ffea9b2da130000b205cf9367ce3ccf
@@ -40,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
  Let us start with the hardware part. Yi 4k looks almost same as that of GoPro device, even the waterproof case appears somewhat like GoPro product. Some resemblance is found in mobile applications as well as in mounting systems. The front side of Yi 4k is equipped with a lens and LED that provides current camera status indication. The 2.2 inch wide LCD screen is protected with Gorilla Glass whereas on top portion you will find holes for speaker and dual microphone. On the right side, a small flap is covering MicroUSB charging port and the left side is left bare.
 
 ![yi-4k-product](https://images.wondershare.com/filmora/article-images/yi-4k-product.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Specifications
 
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
  Want to know more about the best accessories for Xiaomi Yi 4K action camera? Check [Best Accessories for YI 4K Action Camera in 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![yi-4k-unboxing-](https://images.wondershare.com/filmora/article-images/yi-4k-unboxing-.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Features
 
@@ -131,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/a6de986a3fdb94c7142abb7e1738397c8994a30f4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -154,21 +170,23 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-behind-the-scenes-of-podcast-scripts-tips-and-examples/"><u>[New] 2024 Approved Behind the Scenes of Podcast Scripts Tips and Examples</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-ultimate-conquest-celebrating-the-most-stellar-7-total-wars/"><u>[New] 2024 Approved The Ultimate Conquest Celebrating the Most Stellar 7 Total Wars</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ae-presets-unleashed-10-essential-design-principles/"><u>[New] AE Presets Unleashed 10 Essential Design Principles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ai-driven-high-quality-editing-platform-for-2024/"><u>[New] AI-Driven High-Quality Editing Platform for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-frame-flair-choosing-the-best-video-cameras-for-deliberate-moves/"><u>[New] Frame Flair Choosing the Best Video Cameras for Deliberate Moves</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-comprehensive-guide-to-unrestricted-photo-archives/"><u>[New] In 2024, Comprehensive Guide to Unrestricted Photo Archives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-essential-guide-to-top-12-free-and-paid-gaming-introduction-creators/"><u>[New] In 2024, Essential Guide to Top 12 Free and Paid Gaming Introduction Creators</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-comprehensive-review-of-syma-x8c/"><u>[Updated] 2024 Approved Comprehensive Review of Syma X8C</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-journey-through-the-stars-with-these-innovative-science-youtubers/"><u>[Updated] 2024 Approved Journey Through the Stars with These Innovative Science YouTubers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-unlocking-the-secrets-of-seamless-video-and-picture-upload-w11/"><u>[Updated] 2024 Approved Unlocking the Secrets of Seamless Video & Picture Upload W11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-how-to-check-who-unfollowed-me-on-instagram/"><u>[Updated] In 2024, How to Check Who Unfollowed Me on Instagram?</u></a></li>
+<li><a href="https://network-issues.techidaily.com/1719974735927-accelerate-gaming-with-an-updated-intel-graphics-3000-driver-on-w10-platform/"><u>Accelerate Gaming with an Updated Intel Graphics 3000 Driver on W10 Platform.</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/guide-to-smooth-playthroughs-overcoming-frame-rate-fluctuations-and-hesitations-in-call-of-duty-modern-warfare-2-on-pc-systems/"><u>Guide to Smooth Playthroughs: Overcoming Frame Rate Fluctuations and Hesitations in Call of Duty Modern Warfare ^2 on PC Systems</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-samsung-galaxy-a54-5g-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Samsung Galaxy A54 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-leading-edge-cards-for-sharp-4k-gaming/"><u>In 2024, Leading Edge Cards for Sharp 4K Gaming</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  In Pursuit of Perfection  Does PickU Outshine Other Android Tools?\""
-date: 2024-08-15T18:05:32.450Z
-updated: 2024-08-16T18:05:32.450Z
+date: 2025-02-12T02:26:14.654Z
+updated: 2025-02-14T19:14:35.520Z
 tags: 
   - screen-recording
   - ai video
@@ -58,18 +58,6 @@ Here are some key features that make PickU Photo Editor stand out from the rest:
 
 **Huge Library Of Stickers:** The **PickU app** offers a large, ever-growing library of stickers that are neatly categorized to let you find the right one for any occasion. Whether you're looking for a sticker to show your support for a cause, to celebrate a special event, or simply express how you're feeling, you'll be sure to find the perfect one in PickU.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3\. How To Use PickU Photo Editor?
 
 Ready to get started? Here's how to use PickU to edit your photos:
@@ -94,9 +82,6 @@ Step5 Finally, tap the **"Save"** option to export your picture. The app will ap
 
 ![exporting the picture](https://images.wondershare.com/filmora/article-images/2022/09/exporting-the-picture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 4\. Advantages And Disadvantages of PickU Photo Editor
 
 Like any other app, PickU also has its own advantages and disadvantages, which you need to know before using the app:
@@ -109,13 +94,14 @@ PickU also has an extensive social sharing feature that allows you to share your
 
 **Disadvantages:** Most users complain that the PickU app often crashes while editing photos, resulting in data loss. Furthermore, the app displays ads while editing pictures which can be annoying. A watermark is also added to your edited picture, which can be removed by watching an ad.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5\. Other Good Photo Editors for Android
 
 Looking for an alternative to the PickU app? There are a few different options available that offer similar features and functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Snapseed
 
 Snapseed is a powerful Android photo editor for making stunning edits to your photos and enhancing them in various ways from cropping and straightening to more advanced edits like adding filters and adjusting the brightness and contrast.
@@ -162,9 +148,6 @@ Adobe Lightroom is a popular photo editing tool for transforming your photos int
 Rated as the most used app, VSCO is a social sharing and photo editing app that provides a variety of editing tools, presets, and filters. The app offers different features, like slow-mo, fast-mo, and color-correction tools.
 
 ![vsco photo editor app](https://images.wondershare.com/filmora/article-images/2022/09/vsco-photo-editor-app.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 
 **Download:** [Android](https://play.google.com/store/apps/details?id=com.vsco.cam&hl=en&gl=US)
 
@@ -180,8 +163,9 @@ Rated as the most used app, VSCO is a social sharing and photo editing app that 
 * Advanced features are only accessible on the premium version
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Adobe Photoshop Express
 
 As one of the most popular photo editing programs, Adobe Photoshop Express, is used by professionals and amateurs alike. The app is a lite and simplified version of the original flagship Photoshop that offers many filters and effects along with storage options and a user-friendly interface.
@@ -204,15 +188,17 @@ As one of the most popular photo editing programs, Adobe Photoshop Express, is u
 * Some features need the Creative Cloud subscription
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. PicsArt
 
 PicsArt is a visually appealing, all-in-one app for editing photos and videos. This multimedia editing tool gives your content a professional flair by adding masks, templates, and stickers, creating frames, collages, or applying background remover, color exposure, etc.
 
 ![picsart photo editing app](https://images.wondershare.com/filmora/article-images/2022/09/picsart-photo-editing-app.png)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Download:** [Android](https://play.google.com/store/apps/details?id=com.picsart.studio&hl=en&gl=US)
@@ -245,9 +231,6 @@ In the end, provided some best PickU app alternatives for Android. Hopefully, yo
 * [Adobe Photoshop Express](#part5-4)
 * [PicsArt](#part5-5)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1\. What is PickU Photo Editor?
 
 In digital photography, there is no shortage of photo editing apps to choose from. But with so many options, it can be hard to know which is the best for your needs. If you're looking for a comprehensive and user-friendly photo editor, PickU may be the perfect choice for you.?
@@ -279,15 +262,13 @@ Ready to get started? Here's how to use PickU to edit your photos:
 Step1 Install the **PickU app** on your Android device and launch it. On the main interface, tap the **"Scissor"** icon and select the **"Edit"** option. Next, choose your picture to import it to the app.
 
 ![importing picture to Picku app](https://images.wondershare.com/filmora/article-images/2022/09/importing-picture-to-picku-app.jpg)
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 
 Step2 Tap the **"Filter"** option at the bottom of the screen, search through the categories to apply the filter you like, and tap the **"Check"** icon.
 
 ![adding filter to the picture](https://images.wondershare.com/filmora/article-images/2022/09/adding-filter-to-the-picture.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 To crop your picture, tap the **"Crop"** icon and use the preset ratios or drag the handles to cut the picture. Tap the **"Check"** icon to apply your changes.
@@ -295,18 +276,12 @@ Step3 To crop your picture, tap the **"Crop"** icon and use the preset ratios or
 Step4 Now, tap **"Adjust"** and drag the slider to change the brightness, contrast, saturation, sharpen, vignette, and temperature on your picture. Checkmark to save your changes.
 
 ![adjusting the light and color on the picture](https://images.wondershare.com/filmora/article-images/2022/09/adjusting-the-light-and-color-on-the-picture.jpg)
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can also add stickers, text, and frames to your picture or apply mosaic, spiral, and blur to give it a unique look.
 
 Step5 Finally, tap the **"Save"** option to export your picture. The app will apply a watermark on your edited picture. To remove it, tap **"Save HD & No Watermark Photo."** The app also offers an extensive social sharing feature that allows you to share your content directly on social media platforms.
 
 ![exporting the picture](https://images.wondershare.com/filmora/article-images/2022/09/exporting-the-picture.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. Advantages And Disadvantages of PickU Photo Editor
 
@@ -330,6 +305,10 @@ Snapseed is a powerful Android photo editor for making stunning edits to your ph
 
 ![snapseed photo editing app](https://images.wondershare.com/filmora/article-images/2022/09/snapseed-photo-editing-app.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Download:**[Android](https://play.google.com/store/apps/details?id=com.niksoftware.snapseed&hl=en%5FUS&gl=US)
 
  Pros
@@ -345,16 +324,14 @@ Snapseed is a powerful Android photo editor for making stunning edits to your ph
 * Not for complete beginners
 * Save option is not very user-friendly
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Adobe Lightroom
 
 Adobe Lightroom is a popular photo editing tool for transforming your photos into works of art. You can adjust the exposure, contrast, color, and other settings of your photos to create the perfect look. Also, the app offers various features, including organizing photos, editing RAW files, and creating photo books and slideshows.
 
 ![adobe lightroom photo editing app](https://images.wondershare.com/filmora/article-images/2022/09/adobe-lightroom-photo-editing-app.png)
+
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Download:** [Android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile)
@@ -370,6 +347,10 @@ Adobe Lightroom is a popular photo editing tool for transforming your photos int
 
 * No layer-based editing mode
 * No printing or plugin support
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. VSCO
 
@@ -390,17 +371,11 @@ Rated as the most used app, VSCO is a social sharing and photo editing app that 
 * No desktop version
 * Advanced features are only accessible on the premium version
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Adobe Photoshop Express
 
 As one of the most popular photo editing programs, Adobe Photoshop Express, is used by professionals and amateurs alike. The app is a lite and simplified version of the original flagship Photoshop that offers many filters and effects along with storage options and a user-friendly interface.
 
 ![adobe photoshop express](https://images.wondershare.com/filmora/article-images/2022/09/adobe-photoshop-express.png)
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Download**: [Android](https://play.google.com/store/apps/details?id=com.adobe.psmobile&hl=en&gl=US)
 
@@ -418,16 +393,14 @@ As one of the most popular photo editing programs, Adobe Photoshop Express, is u
 * Some features need the Creative Cloud subscription
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. PicsArt
 
 PicsArt is a visually appealing, all-in-one app for editing photos and videos. This multimedia editing tool gives your content a professional flair by adding masks, templates, and stickers, creating frames, collages, or applying background remover, color exposure, etc.
 
 ![picsart photo editing app](https://images.wondershare.com/filmora/article-images/2022/09/picsart-photo-editing-app.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 **Download:** [Android](https://play.google.com/store/apps/details?id=com.picsart.studio&hl=en&gl=US)
 
@@ -442,6 +415,10 @@ PicsArt is a visually appealing, all-in-one app for editing photos and videos. T
 
 * The free version displays ads
 * Experience glitches sometimes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -475,8 +452,23 @@ In the end, provided some best PickU app alternatives for Android. Hopefully, yo
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-computational-photography-what-are-auto-hdr-smart-hdr-3-and-4-shooting-modes/"><u>[New] 2024 Approved Computational Photography What Are Auto HDR, Smart HDR 3 & 4 Shooting Modes?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-transform-your-stream-embrace-obs-for-youtube-and-twitch/"><u>[New] 2024 Approved Transform Your Stream Embrace OBS for YouTube & Twitch</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-what-is-triller-all-you-know-about-this-tiktok-alternative/"><u>[New] 2024 Approved What Is Triller - All You Know About This TikTok Alternative</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-how-to-promote-telegram-marketing-a-beginners-guide-for-2024/"><u>[New] How to Promote Telegram Marketing A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-photoshop-sway-decrease-pivotal-or-superfluous-in-2024/"><u>[New] Photoshop Sway Decrease Pivotal or Superfluous, In 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-superior-sound-swap-technology-the-top-free-option-for-valorant-gamers-for-2024/"><u>[New] Superior Sound Swap Technology The Top Free Option for Valorant Gamers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-dynamic-resolution-enhancer-for-video-files-for-2024/"><u>[Updated] Dynamic Resolution Enhancer for Video Files for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-economical-panoramic-hd-camcorders-on-a-budget/"><u>[Updated] In 2024, Economical Panoramic HD Camcorders on a Budget</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-tech-trend-analysis-vlls-evaluations/"><u>[Updated] Tech Trend Analysis VLL's Evaluations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-understanding-imovie-video-trimming/"><u>[Updated] Understanding iMovie Video Trimming</u></a></li>
+<li><a href="https://games-able.techidaily.com/get-gaming-again-ps4-control-corrections-for-beginners/"><u>Get Gaming Again! Ps4 Control Corrections for Beginners</u></a></li>
+<li><a href="https://windows11.techidaily.com/lost-and-found-how-to-find-the-disappeared-enhancements-on-windows-11/"><u>Lost and Found: How to Find the Disappeared Enhancements on Windows 11</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-the-art-of-crafting-top-notch-social-media-content-with-chatgpt/"><u>Mastering the Art of Crafting Top-Notch Social Media Content with ChatGPT</u></a></li>
+<li><a href="https://win-dash.techidaily.com/resolving-hp-display-drivers-problems-in-windows-11-8-and-7/"><u>Resolving HP Display Drivers Problems in Windows 11, 8 & 7</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-next-decade-leaders-views-on-artificial-intelligence/"><u>The Next Decade: Leaders' Views on Artificial Intelligence</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-fast-forward-to-fun-10-best-free-video-speed-changing-apps-for-ios-and-android/"><u>Updated 2024 Approved Fast Forward to Fun 10 Best Free Video Speed Changing Apps for iOS and Android</u></a></li>
+</ul></div>
 

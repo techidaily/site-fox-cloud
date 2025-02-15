@@ -1,7 +1,7 @@
 ---
 title: "Fast Fixes to Skyrocket Your Podcast Live for 2024"
-date: 2025-01-29T05:27:48.021Z
-updated: 2025-01-31T20:02:52.524Z
+date: 2025-02-07T23:54:19.248Z
+updated: 2025-02-14T16:17:49.981Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ This article explains the power of live-stream podcasts, how to make a live podc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. The Power of Live Podcast Streaming
 
 Live streaming is worthwhile and something podcasters needs to learn and embrace. Here are some reasons why.
@@ -38,6 +42,14 @@ Over the years, podcasts have shown constant growth in engaging audiences. Many 
 And that's amazing as well when you look at the stats worldwide. According to the sources, 57% of whites, 16% of Hispanics, 13% of African Americans, and 4% of Asians currently listen to live podcast streaming.
 
 ![greater audience engagement](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Express Thoughts in Real-Time
 
@@ -59,23 +71,19 @@ According to [Oberlo](https://www.oberlo.com/statistics/podcast-revenue#:~:text=
 
 ![money](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 While according to research in the UK, podcasters make an average profit of 950 pounds a month, making an average of 11,440 pounds each year. While according to [Statista](https://www.statista.com/chart/17824/podcast-advertising-revenue-united-states/), $2.8 billion worldwide is expected to be spent on podcast ad streaming this year and will increase in the coming years.
 
 ![podcast ads revenue repor](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After knowing the power of live podcast streaming, let us move towards using that power and answering the query, "How to make a live podcast?"
 
 ## Part 2\. Preparing for a Live Podcasting
 
 Preparation and brainstorming are required to make successful live podcasting. We will discuss some key factors to make live podcasting successful here. Let us move step-wise.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Timing Is Everything
 
@@ -97,6 +105,10 @@ Here is a summary of different social media platforms when you get the maximum a
 
 We now move on to take the most fundamental step of our work which is making a checklist of things to do. So let's have a look at it right now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Preview Your Podcast Content On Scripts
 
 World-famous podcasters map out the plans on paper. The theme, the guests, the intro of the video, and various question and answer sessions need a script to carry things smoothly.
@@ -104,10 +116,6 @@ World-famous podcasters map out the plans on paper. The theme, the guests, the i
 The writing is fundamental even if you are going to hold a monologue live podcast. So you have to brainstorm your topics and decide on the podcast theme. You have to invite the guests, give your podcast a name, and get the right equipment and setup. Everything needs to be scripted to have a podcast preview.
 
 ![review your podcast with a checklist](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Set Up Your Podcasting Gear Properly
 
@@ -130,7 +138,7 @@ Many laptops and PC setups have internal webcams. However, the display gets grai
 ![razor kiyo pro](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 3) DSLR
@@ -140,7 +148,7 @@ DSLR (digital single-lens reflex camera) is notable for allowing interchangeable
 ![nikon coolpix b500](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **XLR or USB Microphone**
@@ -148,6 +156,10 @@ DSLR (digital single-lens reflex camera) is notable for allowing interchangeable
 You might have heard some things about XLR and USB microphones. For example, "XLR microphones sound more professional" or "USB microphones are less of a hassle." Unfortunately, XLR can't be connected directly to your computer. Instead, you'll need an audio interface to enter the digital world and want to make recordings using your computer or smartphone.
 
 ![atr 2100x-usb](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1) Condenser Podcasting Microphones
 
@@ -167,10 +179,6 @@ The mixer enhances the exemplary audio quality and offers multi-channel recordin
 
 ![yamaha mg series](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Lighting**
 
 Lighting is the most intimidating part of the video live-streaming kit. It enables texture and depth to the video. Not only is the lighting essential, but also the positioning of light. It starts to create shadows on a person's face. Lighting drastically changes how someone looks in live streaming.
@@ -180,6 +188,10 @@ Lighting is the most intimidating part of the video live-streaming kit. It enabl
 **Tripod Stands**
 
 ![ubeesize 67 phone tripod & selfie stick, and camera tripod stands](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 An innovative, sturdy tripod stand can hold your camera and smartphone to capture steady frame shots. There are a lot of tripod stands online as well as in the offline market ranging from inexpensive to expensive ones. You can go for a [UBeesize 67" phone tripod & selfie stick, and a Camera Tripod stands](https://www.amazon.com/UBeesize-Wireless-Perfect-Recording-Streaming/dp/B09PH9PNYY/ref=sr%5F1%5F7?keywords=tripod+stands&qid=1667903065&sr=8-7) for perfect live streaming.
 
@@ -192,10 +204,6 @@ It is assumed that you already have that gadget. But if you don't have it and ar
 [**Acer Aspire 5 Laptops**](https://www.acer.com/us-en/laptops/aspire/aspire-5) are budget-friendly laptops, starting with 4GB RAM, 256 GB storage, and quad-core processors.
 
 ![acer aspire 5 laptops](https://images.wondershare.com/filmora/article-images/2022/12/live-stream-podcast-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [**HP Pavilion AiO PC**](https://www.hp.com/us-en/shop/pdp/hp-pavilion-24-ca1005t-bundle-aio-pc) is another excellent option for beginners. It's budget-friendly and reliable. I have a 23.8" screen, Windows 11 Home, Intel® Core™ i7, 16GB RAM, 512GB SSD, and GeForce GTX 1650.
 
@@ -240,13 +248,13 @@ Having identified the gadgets and the place, we will now focus on the live-strea
 4. **Twitter** is less popular to the creators, has privacy issues, and has limited monetization options.
 5. **Facebook Live** reaches billions of people around the globe, but technical issues happen sometimes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Check Out Your Outfit
 
 Appearance matters! Whether you are going for an interview, going out at a party, or going live stream from home. For example, wearing darker colors may be good if you use a light background. Try not to wear some loud patterns like checks and stripes. Try to be as comfortable as you can according to the theme and content of the live stream.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Live Podcasts vs. Podcast Streaming
 
@@ -270,17 +278,9 @@ Having identified the gadgets and the place, we will now focus on the live-strea
 
 Appearance matters! Whether you are going for an interview, going out at a party, or going live stream from home. For example, wearing darker colors may be good if you use a light background. Try not to wear some loud patterns like checks and stripes. Try to be as comfortable as you can according to the theme and content of the live stream.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Live Podcasts vs. Podcast Streaming
 
 "Are there any differences between the two?" Not at all! These are the same, but in some cases, "podcast streaming" is used for podcasts with a video element. Otherwise, these can be used interchangeably.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -310,20 +310,24 @@ Live streaming is a new world for content creators. Even though they don't have 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-10-ultimate-webcam-reviews-for-informed-buyers/"><u>[New] In 2024, 10 Ultimate Webcam Reviews for Informed Buyers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-picture-posters-best-frame-enhancing-software-recommendations/"><u>[New] In 2024, Picture Posters Best Frame-Enhancing Software Recommendations</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-premium-quality-computers-at-your-desk-for-2024/"><u>[New] Premium Quality Computers at Your Desk for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-beyond-boundaries-the-present-state-and-future-of-vr/"><u>[Updated] 2024 Approved Beyond Boundaries The Present State and Future of VR</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-ultimate-guide-to-professional-livestreamers-vmix-or-wirecast/"><u>[Updated] 2024 Approved The Ultimate Guide to Professional Livestreamers VMix or Wirecast?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-innovative-approaches-to-achieve-stunning-gopro-time-lapse/"><u>[Updated] In 2024, Innovative Approaches to Achieve Stunning GoPro Time Lapse</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-megasecond-analysis-understanding-20mb-video-time-for-2024/"><u>[Updated] MegaSecond Analysis Understanding 20Mb Video Time for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-infusing-vitality-into-text-an-animated-adventure/"><u>2024 Approved Infusing Vitality Into Text An Animated Adventure</u></a></li>
-<li><a href="https://article-files.techidaily.com/edit-photos-infuse-soundtracks-for-2024/"><u>Edit Photos, Infuse Soundtracks for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-the-issue-nier-automata-freezing-glitch-resolved/"><u>Fixing the Issue: NieR: Automata Freezing Glitch Resolved!</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-composing-captivating-cinema-trailers/"><u>In 2024, Composing Captivating Cinema Trailers</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-oppo-a58-4g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Oppo A58 4G Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://win-superb.techidaily.com/regreso-al-estado-de-nacimiento-en-windows-10-guia-completa-sobre-reinstalacion-profunda-sin-perdida-de-datos-3-formas-utiles/"><u>Regreso Al Estado De Nacimiento en Windows 10: Guía Completa Sobre Reinstalación Profunda Sin Pérdida De Datos [3 Formas Útiles]</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/total-exploration-of-vsco-photography-functions-for-2024/"><u>Total Exploration of VSCO Photography Functions for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-the-mystery-how-does-dtss-play-fi-work/"><u>Unveiling the Mystery: How Does DTS's Play-Fi Work?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-in-depth-look-at-inshot-video-editing-powerhouse/"><u>[New] 2024 Approved In-Depth Look at InShot Video Editing Powerhouse?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-mighty-machines-meet-thieyes-t5-vs-jcb-sjcam-s6/"><u>[New] 2024 Approved Mighty Machines Meet Thieye's T5 Vs JCB SJCAM S6</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-days-viewing-assessing-file-size-in-gb-for-2024/"><u>[New] Day's Viewing Assessing File Size in GB for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-from-novice-to-expert-navigating-telegram-web-for-2024/"><u>[New] From Novice to Expert Navigating Telegram Web for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-virtualsonic-mix-mac-and-windows/"><u>[New] In 2024, VirtualSonic Mix Mac & Windows</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-olyx-zones-the-creme-de-la-snowspeedcross/"><u>[New] OlyX-Zones The Crème De La Snowspeedcross</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-quickly-change-the-pace-of-videos-in-your-instagram-feed/"><u>[New] Quickly Change the Pace of Videos in Your Instagram Feed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-downloading-and-saving-fb-video-files-os-agnostic-guide/"><u>[Updated] 2024 Approved Downloading and Saving FB Video Files OS-Agnostic Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-calculating-video-data-use-in-a-full-day-watch-for-2024/"><u>[Updated] Calculating Video Data Use in a Full-Day Watch for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-troubleshooting-tips-fixing-srt-from-premiere-freeze/"><u>[Updated] In 2024, Troubleshooting Tips Fixing SRT From Premiere Freeze</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-picture-perfection-choosing-the-best-camera-positions-on-iphone-for-2024/"><u>[Updated] Picture Perfection Choosing the Best Camera Positions on iPhone for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-samsung-galaxy-f34-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Samsung Galaxy F34 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://win-best.techidaily.com/conversion-facile-et-gratuite-de-fichiers-3gpp-en-format-wma-en-ligne-movavi/"><u>Conversion Facile Et Gratuite De Fichiers 3GPP en Format WMA en Ligne - Movavi</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-bridge-the-gap-between-samsung-earbuds-and-laptop-devices/"><u>How To Bridge The Gap Between Samsung Earbuds and Laptop Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mitigating-risks-of-data-exposure-from-personalized-models/"><u>Mitigating Risks of Data Exposure From Personalized Models</u></a></li>
+<li><a href="https://techtrends.techidaily.com/navigating-through-kernel-memory-corruption-tips-to-resolve-data-inpage-mishaps/"><u>Navigating Through Kernel Memory Corruption: Tips to Resolve Data Inpage Mishaps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pro-tips-acquiring-clip-art-without-cost-for-2024/"><u>Pro Tips Acquiring Clip-Art Without Cost for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-future-at-your-fingertips-testing-the-latest-in-virtual-reality-by-lg/"><u>The Future at Your Fingertips Testing the Latest in Virtual Reality by LG</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-meme-gurus-list-of-the-best-designs-10/"><u>The Meme Guru's List of the Best Designs #10</u></a></li>
 </ul></div>
 
