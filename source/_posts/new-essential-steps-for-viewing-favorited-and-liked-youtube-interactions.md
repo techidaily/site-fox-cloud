@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Steps for Viewing Favorited and Liked YouTube Interactions"
-date: 2025-02-08T07:36:46.087Z
-updated: 2025-02-14T23:45:23.850Z
+date: 2025-02-27T18:37:39.016Z
+updated: 2025-03-04T16:50:04.199Z
 tags: 
   - screen-recording
   - ai video
@@ -88,10 +88,6 @@ Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scroll down a little bit and click the **More** button.
 
 ![your youtube dashboard more](https://images.wondershare.com/filmora/article-images/2022/11/your-youtube-dashboard-more.jpg)
@@ -99,10 +95,6 @@ Step2 Scroll down a little bit and click the **More** button.
 Step3 Click the **Comments** section.
 
 ![click comments your youtube dashboard](https://images.wondershare.com/filmora/article-images/2022/11/click-comments-your-youtube-dashboard.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now you will see your comment history, including the date when you commented on a certain video and also the exact comment you posted.
 
@@ -114,10 +106,6 @@ Step4 In the **Google My Activity** tab, click **Other activity**.
 
 ![other activity youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/other-activity-youtube-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Click **View Comment Likes and Dislikes**.
 
 ![your comment likes and dislikes](https://images.wondershare.com/filmora/article-images/2022/11/your-comment-likes-and-dislikes.jpg)
@@ -125,10 +113,6 @@ Step5 Scroll down and find **Comment Likes and Dislikes on YouTube** section. Cl
 Now you will see the videos you liked or disliked and also the comments you liked or disliked, including the date when you liked or disliked the video/comment.
 
 ![date likes videos youtube](https://images.wondershare.com/filmora/article-images/2022/11/date-likes-videos-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This article tells you that you can't see who liked or disliked a comment, but you can see how many likes or dislikes a comment got. Then go to any video you want, scroll down to the comment section, and see how many likes or dislikes a comment received.
 
@@ -168,10 +152,6 @@ Because understanding how to comment is only one aspect of the issue; very impor
 
 Try making a joke, pointing out something amusing, providing helpful information, or expressing sympathy or concern for a fan. Additionally, a simple thumbs-up or heart can go a long way to demonstrate that you are paying attention even if you aren't feeling very friendly (we all have bad days, it's OK!).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Did you know what a Highlighted comment is?
 
 A highlighted comment on YouTube aims to draw the content creator's attention with an automated feature.
@@ -190,10 +170,6 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 ![](https://images.wondershare.com/assets/images-common/box-filmora-x.png) ![](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-square.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to See Liked Comments on YouTube?
 
 YouTube is a service that is available for free, and it may be a terrific place for teenagers to find interest. Many young people use YouTube to watch comedy shows, how-to videos, recipes, hacks, and music videos. Teenagers also use the video-sharing platform to subscribe to other YouTubers and famous personalities and to follow their favorite vloggers (video bloggers).
@@ -211,10 +187,6 @@ But, if you want to retrace the videos you commented on and the videos/comments 
 Step1 Click on your Google Account icon and find **Your data in YouTube**.
 
 ![find your data in youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-your-data-in-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Scroll down a little bit and click the **More** button.
 
@@ -246,15 +218,7 @@ This article tells you that you can't see who liked or disliked a comment, but y
 
 ![likes comment received](https://images.wondershare.com/filmora/article-images/2022/11/likes-comment-received.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In this image, the following comments only got likes and no dislikes. That is why there are just written numbers on the like button and on the dislike button there are none.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Respond to Comments
 
@@ -326,18 +290,24 @@ Additionally, video creators can manually highlight commenters to mark them for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-analyzing-the-dji-phantom-4-vision-tech/"><u>[New] 2024 Approved Analyzing the DJI Phantom 4 Vision Tech</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-breaking-down-virtual-realitys-mechanics/"><u>[New] 2024 Approved Breaking Down Virtual Reality's Mechanics</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-iconic-music-library-app-android-focused/"><u>[New] Iconic Music Library App, Android-Focused</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-professional-zoom-settings-guide-for-google-meet/"><u>[New] Professional Zoom Settings Guide for Google Meet</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-10-digital-imaging-apps-for-sharpening-fuzzy-pictures-for-2024/"><u>[New] Top 10 Digital Imaging Apps for Sharpening Fuzzy Pictures for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-essential-approach-for-blending-gopro-vids-with-continuous-360-degree-visuals-for-2024/"><u>[Updated] Essential Approach for Blending GoPro Vids with Continuous 360-Degree Visuals for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-journey-through-cartoony-fun-snapchat-face-lens-magic/"><u>[Updated] In 2024, Journey Through Cartoony Fun Snapchat Face Lens Magic</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-zoom-companion-for-snapchat-enthusiasts-for-2024/"><u>[Updated] The Ultimate Zoom Companion for Snapchat Enthusiasts for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-honor-magic-5-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Honor Magic 5 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-sony-xperia-5-v-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Sony Xperia 5 V to Your PC/Mac | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-samsung-galaxy-a14-4g-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Samsung Galaxy A14 4G for Free? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/lg-virtual-reality-breakthrough-an-in-depth-analysis-for-2024/"><u>LG Virtual Reality Breakthrough An In-Depth Analysis for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-account-alert-regaining-lost-access-on-facebook/"><u>[New] 2024 Approved Account Alert! Regaining Lost Access on Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-advanced-steganography-in-videos-hiding-the-unseen/"><u>[New] 2024 Approved Advanced Steganography in Videos Hiding the Unseen</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-enhancing-team-coordination-through-thoughtful-office-spaces-for-2024/"><u>[New] Enhancing Team Coordination Through Thoughtful Office Spaces for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-evaluating-the-impact-of-reduced-shake-on-photoshop-usability/"><u>[New] Evaluating the Impact of Reduced Shake on Photoshop Usability</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-quick-and-simple-free-fb-video-to-mp4-hd-conversion-tutorial-online/"><u>[New] In 2024, Quick and Simple Free FB Video to MP4 (HD) Conversion Tutorial Online</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-video-vouchers-for-trust-in-brands-for-2024/"><u>[New] Video Vouchers for Trust in Brands for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-how-to-use-video-enhancer-22/"><u>[Updated] In 2024, How To Use Video Enhancer 2.2</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-quick-guide-youtube-studio-the-editors-haven/"><u>[Updated] In 2024, Quick Guide YouTube Studio, The Editor's Haven</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-pursuit-of-detail-zoom-tactics-for-videoleap-enthusiasts/"><u>[Updated] In Pursuit of Detail Zoom Tactics for VideoLeap Enthusiasts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pinnacle-5-image-alteration-apps-iphone-x78-edition-for-2024/"><u>[Updated] Pinnacle 5 Image Alteration Apps IPhone X/7/8 Edition for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-video-ventures-uploading-to-twtplustumble-feeds/"><u>[Updated] Video Ventures Uploading to Twt+Tumble Feeds</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/conquer-live-streaming-a-stepwise-guide-to-excellence/"><u>Conquer Live Streaming A Stepwise Guide to Excellence</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/elevate-your-visual-storytelling-complimentary-basics-plus-paid-upgrade-lut-sets/"><u>Elevate Your Visual Storytelling Complimentary Basics + Paid-Upgrade LUT Sets</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/expert-recommendations-the-very-best-ways-to-watch-cricket-on-screen/"><u>Expert Recommendations The Very Best Ways to Watch Cricket on Screen</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-glow-up-your-android-footage/"><u>In 2024, Glow Up Your Android Footage</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-apple-id-and-apple-password-from-apple-iphone-15-by-drfone-ios/"><u>In 2024, How to Reset Apple ID and Apple Password From Apple iPhone 15</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/iphone-photo-burst-how-to-take-burst-images-for-2024/"><u>IPhone Photo Burst How to Take Burst Images for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/sharing-and-implementing-consistent-style-templates-across-excel-spreadsheets/"><u>Sharing and Implementing Consistent Style Templates Across Excel Spreadsheets</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-htc-u23-pro-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My HTC U23 Pro Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
 </ul></div>
 

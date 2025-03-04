@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting with Colors  Principles in Action\""
-date: 2024-08-23T01:29:43.416Z
-updated: 2024-08-24T01:29:43.416Z
+date: 2025-03-02T17:03:04.529Z
+updated: 2025-03-04T18:24:22.869Z
 tags: 
   - screen-recording
   - ai video
@@ -36,20 +36,12 @@ Using red, green and blue as primary colors we can mix the colors to one another
 
 As you can see, we have every color available in this wheel and they are arranged in a unison with the mixed colors starting with red, green and blue and working towards each other.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Color Harmony
 
 So now we know how the wheel is made and what it looks like. What does it do? We can use this wheel now to gather our palette. Within color theory we talk about harmonious colors that work together in a pleasant way creating less stress on the eyes to find information in your scene.
 
 ![color harmony](https://images.wondershare.com/filmora/article-images/2022/08/color-harmony.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 One such harmony is complementary colors and luckily for us this is very easy to find. You take your base color and find the opposite color on the wheel. In this example the complementary color to blue is yellow depicted with a red line.
 
 These colors always work as they create contrast and stability.
@@ -58,41 +50,20 @@ The blue lines represent what is known as split contrasting colors and these wil
 
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## But How Do I Use This
 
 You may still be unsure as to how to implement color theory into your videos. Let's look at some scenarios that color theory may help your creations.
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Conclusion
 
 By including this into your thought process when creating videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) you will achieve well balanced and harmonious content for your viewer to enjoy and create better engagement. It's not by chance these things happen though, it's through research and planning that the most iconic scenes and characters are created and this is just one small brick in the foundations of content creation. With practice this will become second nature to you and that is the main goal of this guide.
@@ -125,8 +96,26 @@ By including this into your thought process when creating videos with [Filmora](
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-educational-videography-mastery-in-cutting-and-pacing/"><u>[New] 2024 Approved Educational Videography Mastery in Cutting & Pacing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-pro-photos-master-the-art-of-adding-motion-blur-effects/"><u>[New] 2024 Approved Pro Photos Master the Art of Adding Motion Blur Effects</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-digital-personas-made-simple-a-guide-for-the-curious-vr-explorer/"><u>[New] Digital Personas Made Simple A Guide for the Curious VR Explorer</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-key-online-repositories-for-rich-text-visualization-for-2024/"><u>[New] Key Online Repositories for Rich Text Visualization for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-craft-engaging-youtube-stays-strategies-to-shine-without-thousand-supporters/"><u>[Updated] 2024 Approved Craft Engaging YouTube Stays Strategies to Shine without Thousand Supporters</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-complete-walkthrough-for-green-screen-expertise-in-kinemaster-for-2024/"><u>[Updated] A Complete Walkthrough for Green Screen Expertise in Kinemaster for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-ranking-the-leading-video-conferencing-applications-for-2024/"><u>[Updated] Ranking the Leading Video Conferencing Applications for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-quickeye-ff-plugins/"><u>2024 Approved QuickEye FF Plugins</u></a></li>
+<li><a href="https://video-capture.techidaily.com/exploring-the-prime-linux-screenshot-applications/"><u>Exploring the Prime Linux Screenshot Applications</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-behind-the-scenes-unpacking-instagram-stories/"><u>In 2024, Behind the Scenes Unpacking Instagram Stories</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-music-transfer-essentials-keeping-your-playlist-alive/"><u>In 2024, Music Transfer Essentials Keeping Your Playlist Alive</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-the-basics-of-zoom-meeting-setup/"><u>In 2024, Navigating the Basics of Zoom Meeting Setup</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-step-by-step-acquiring-top-notch-clip-art-without-a-price-tag/"><u>In 2024, Step-by-Step Acquiring Top-Notch Clip Art Without a Price Tag</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-unveil-world-written-large-innovative-zooming-tips/"><u>In 2024, Unveil World' Written Large Innovative Zooming Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimal-plot-generation-portal-for-2024/"><u>Optimal Plot Generation Portal for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionary-experience-enhancing-bike-rides-with-photo-reactive-lenses-and-hud-technology-a-zdnet-insight/"><u>Revolutionary Experience: Enhancing Bike Rides with Photo-Reactive Lenses & HUD Technology – A ZDNet Insight</u></a></li>
+<li><a href="https://win-hot.techidaily.com/solving-your-network-card-issues-with-ease-using-tips-from-yl-software-experts/"><u>Solving Your Network Card Issues with Ease Using Tips From YL Software Experts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unveiling-the-complete-image-enhancement-capabilities-with-polarr/"><u>Unveiling the Complete Image Enhancement Capabilities with Polarr</u></a></li>
+</ul></div>
 

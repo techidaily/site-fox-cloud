@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Craft Impressive Images with Photoshop's Radial Distortion Features"
-date: 2025-02-09T17:29:03.677Z
-updated: 2025-02-15T02:27:56.609Z
+date: 2025-02-28T18:51:34.574Z
+updated: 2025-03-04T17:08:59.068Z
 tags: 
   - screen-recording
   - ai video
@@ -27,19 +27,11 @@ If you are unaware of the radial blur effect, this article can act as a guide. T
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What is a Radial Blur Effect?
 
 The radial blur effect is somehow similar to motion blur. This effect can be created at a slow shutter speed in the camera, or you can move or rotate your cameras in certain ways to create this effect. Many photographers also create a motion blur effect by zooming in at a slow shutter speed. By adding this effect, you will create a tunnel vision in your photos.
 
 ![what is the radial blur effect](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Moreover, the **radial blur effect** can also evoke certain emotions by transforming the image. To create this effect, you have to be precise and accurate with your camera movements. Hence, you can bring focus and display a certain speed in your photos using the radial blur effect.
 
@@ -68,10 +60,6 @@ Step3 Afterward, click on the background layer and head to the "Filter" tab. Fro
 Step4 After making all the adjustments in the Radial Blur window, press the "OK" button. Once done, select the top layer and add a "Curve Adjustment Layer." Now adjust the curve properties according to your preference. Thus, you can see the radial blur effect on your photo on your screen.
 
 ![adjust the curves](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus Tips – The Alternative to Photoshop to Create Radial Blur Effect
 
@@ -113,14 +101,6 @@ You can also edit the clip by adding titles or more effects. Once done with the 
 
 ![export the photo with radial blur](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Many photographers and professionals apply different techniques or effects to enhance their photos. One of the trending effects that can add an artistic element to the fast-moving objects in your photos is the radial blur effect. This effect can bring attention and focus to your photos.
@@ -143,19 +123,11 @@ Begin by launching Wondershare Filmora on your PC. Afterward, tap on the "Create
 
 ![import the photo in filmora](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step 2 Add the Required Effect
 
 Drag and drop the photo in the timeline to proceed. Now go to the Effects tab and tap on the "Video Effects" option. From there, tap on "Utility" to explore multiple effects. Here, there are three blur effects that you can utilize: Mosaic, Tilt-shift Circle, and Tilt-shift Linear.
 
 ![access the video effects](https://images.wondershare.com/filmora/article-images/2022/12/radial-blur-effect-to-photos-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step 3 Adjust the Blur Settings
 
@@ -199,15 +171,18 @@ By reading this article, you have learned how to add a radial blur effect using 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-empowering-your-iphones-capture-with-full-screen-images/"><u>[New] 2024 Approved Empowering Your iPhone's Capture with Full-Screen Images</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-ideal-screen-snappers-top-5-picks/"><u>[New] 2024 Approved Ideal Screen Snappers Top 5 Picks</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-essentials-of-hosting-a-zoom-event-via-android/"><u>[New] 2024 Approved The Essentials of Hosting a Zoom Event via Android</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-premier-mp4-recommendations/"><u>[New] Premier MP4 Recommendations</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlocking-kinemasters-fullscreen-magic/"><u>[Updated] Unlocking KineMaster's Fullscreen Magic</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/dvd-vrdvd-video/"><u>DVD-VRフォーマットコピーで苦労しています？高性能なソフトウェアがDVD-Videoに変換可能</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-from-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID From Your Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/immersive-exploration-mastering-close-up-views-in-minecraft/"><u>Immersive Exploration Mastering Close-Up Views in Minecraft</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-writers-workshop-for-podcast-creators-examples-included/"><u>The Writers' Workshop for Podcast Creators (Examples Included)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-pinnacle-10-sound-superchargers-pc-mac-and-phones/"><u>[New] 2024 Approved Pinnacle 10 Sound Superchargers PC, Mac & Phones</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-breakdown-of-pewdiepies-monthly-earning-trends/"><u>[New] Breakdown of PewDiePie's Monthly Earning Trends</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unveiling-instagrams-background-replace-technique/"><u>[New] In 2024, Unveiling Instagram’s Background Replace Technique</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-boosting-income-smart-strategies-for-profit-from-youtube-mobile-content/"><u>[Updated] 2024 Approved Boosting Income Smart Strategies for Profit From YouTube Mobile Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-discover-a-harmony-of-health-with-asmr-sounds/"><u>[Updated] In 2024, Discover a Harmony of Health with ASMR Sounds</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-visual-perfection-ahead-comprehensively-mastering-video-enhancer-22/"><u>[Updated] In 2024, Visual Perfection Ahead Comprehensively Mastering Video Enhancer 2.2</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-storytellers-supreme-curated-yt-channels-for-2024/"><u>[Updated] Storytellers Supreme Curated YT Channels for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-steps-to-acquire-fcp-for-zero-dollars/"><u>In 2024, Steps to Acquire FCP for Zero Dollars</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-the-ultimate-guide-for-high-definition-enthusiasts-on-purchasing-a-monitor/"><u>In 2024, The Ultimate Guide for High-Definition Enthusiasts on Purchasing a Monitor</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/photo-editing-mastery-leveraging-photoshops-background-eraser-tool-to-perfection-for-2024/"><u>Photo Editing Mastery Leveraging Photoshop's Background Eraser Tool to Perfection for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/inting-potential-a-youtube-niche-journey-for-2024/"><u>Pinpointing Potential A Youtube Niche Journey for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unmasked-photos-simple-blur-solutions-with-piscart/"><u>Unmasked Photos Simple Blur Solutions with PiscArt</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-is-ipogo-not-working-on-samsung-galaxy-f14-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Samsung Galaxy F14 5G? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

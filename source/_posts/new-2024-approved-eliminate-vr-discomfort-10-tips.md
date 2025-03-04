@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Eliminate VR Discomfort  10 Tips\""
-date: 2025-02-09T21:59:48.607Z
-updated: 2025-02-15T02:00:50.063Z
+date: 2025-02-27T18:42:54.775Z
+updated: 2025-03-04T17:25:27.358Z
 tags: 
   - screen-recording
   - ai video
@@ -31,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/77d2b3ef679b5fcf16ae0f3446de13ba438b3d48f
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 10 ways to prevent Oculus Rift motion sickness
 
  While using your Oculus Rift development kits you need to take care of few little things in order to avoid getting any kind of sickness during your game. Although the factors vary from individual to individual since it is more of the bodily response rather than the design variation.
@@ -59,10 +55,6 @@ thumbnail: https://thmb.techidaily.com/77d2b3ef679b5fcf16ae0f3446de13ba438b3d48f
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -70,10 +62,6 @@ thumbnail: https://thmb.techidaily.com/77d2b3ef679b5fcf16ae0f3446de13ba438b3d48f
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -100,22 +88,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-expert-edits-for-an-uncluttered-tiktok-archive/"><u>[New] Expert Edits for an Uncluttered TikTok Archive</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-the-art-of-quantitative-vs-qualitative-analysis-a-guide-for-professionals-for-2024/"><u>[New] Mastering the Art of Quantitative vs Qualitative Analysis A Guide for Professionals for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-professionals-picks-smoothest-drone-gimbals-for-2024/"><u>[New] Professional's Picks Smoothest Drone Gimbals for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-high-staking-haven-evalutations/"><u>[Updated] 2024 Approved HIGH-STAKING HAVEN EVALUTATIONS</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-the-essential-2023-techniques-for-ios-screen-recording/"><u>[Updated] 2024 Approved The Essential 2023 Techniques for iOS Screen Recording</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-cutting-edge-practices-for-subtle-audio-reduction-on-lumafusion/"><u>[Updated] Cutting-Edge Practices for Subtle Audio Reduction on Lumafusion</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-navigating-apples-podcast-submission-requirements-clearly/"><u>[Updated] In 2024, Navigating Apple's Podcast Submission Requirements Clearly</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-top-10-best-introduction-editors-apps/"><u>[Updated] Top 10 Best Introduction Editors (Apps)</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-twitter-videos-at-full-hd-your-watchful-pathway-for-2024/"><u>[Updated] Twitter Videos at Full HD - Your Watchful Pathway for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Samsung Galaxy S24 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-oppo-reno-10-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Oppo Reno 10 5G Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-action-cam-reimagined-an-extensive-review-of-the-sj-cam-s6/"><u>In 2024, Action Cam Reimagined An Extensive Review of the SJ-CAM S6</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-allstream-worldwide-selective-local-channel-selection/"><u>In 2024, AllStream Worldwide Selective Local Channel Selection</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/mastering-the-science-of-quantum-hdr/"><u>Mastering the Science of Quantum HDR</u></a></li>
-<li><a href="https://techtrends.techidaily.com/netflix-fix-your-ultimate-solution-for-dealing-with-error-message-nw-1-19/"><u>Netflix Fix: Your Ultimate Solution for Dealing with Error Message NW-1-19</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Vivo Y27s? | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ting-your-youtube-reputation/"><u>Resetting Your YouTube Reputation</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-dji-inspire-2-full-review/"><u>[New] DJI Inspire 2 Full Review</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-how-to-add-free-text-animation-to-videos-for-2024/"><u>[New] How to Add Free Text Animation to Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-iphone-tutorial-snap-and-stream-simultaneously-for-2024/"><u>[New] IPhone Tutorial Snap and Stream Simultaneously for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-premier-9-social-media-screen-grabs-for-2024/"><u>[New] Premier 9 Social-Media Screen Grabs for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-step-by-step-guide-ps4-gaming-streams-using-obs/"><u>[Updated] 2024 Approved Step-by-Step Guide PS4 Gaming Streams Using OBS</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/clearing-up-the-buzz-essential-techniques-for-resolving-outriders-sound-malfunctions/"><u>Clearing Up the Buzz: Essential Techniques for Resolving Outriders Sound Malfunctions</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-on-your-apple-iphone-7-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card on Your Apple iPhone 7 Apple ID and Apple Pay</u></a></li>
+<li><a href="https://blog-min.techidaily.com/i-migliori-strumenti-per-scaricare-e-convertire-i-video-di-youtube-in-formato-wav/"><u>I Migliori Strumenti per Scaricare E Convertire I Video Di YouTube in Formato WAV</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-crafting-the-perfect-first-touch-redefining-unboxing/"><u>In 2024, Crafting the Perfect First Touch Redefining Unboxing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-gopros-latest-camera-face-off/"><u>In 2024, GoPro's Latest Camera Face-Off</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-recording-powerhouse-tactics-for-windows-10-aficionados/"><u>In 2024, Recording Powerhouse Tactics for Windows 10 Aficionados</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-infinix-zero-30-5g-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Infinix Zero 30 5G</u></a></li>
+<li><a href="https://fox-access.techidaily.com/unleash-the-full-potential-of-your-hdr-images-with-lightroom-for-2024/"><u>Unleash the Full Potential of Your HDR Images with Lightroom for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/windows-11-unlocked-top-features-on-display/"><u>Windows 11 Unlocked Top Features on Display</u></a></li>
 </ul></div>
 

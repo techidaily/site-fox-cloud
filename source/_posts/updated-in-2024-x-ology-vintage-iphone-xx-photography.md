@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, X-Ology  Vintage iPhone Xx Photography\""
-date: 2025-02-11T03:40:04.457Z
-updated: 2025-02-15T09:48:37.546Z
+date: 2025-02-27T17:43:17.765Z
+updated: 2025-03-04T17:33:13.707Z
 tags: 
   - screen-recording
   - ai video
@@ -40,10 +40,6 @@ In this article, we are going to show you how to take photos in Portrait Mode, o
 * [Part 1: For iPhone 7 Plus/8 Plus/X users](#part1)
 * [Part 1: For iPhone 8, 7 or older iPhones users](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### For iPhone 7 Plus/8 Plus/X users
 
  **Using the Portrait Mode on an iPhone**
@@ -54,10 +50,6 @@ However, the Portrait Mode is only featured on iOS 10.1 or some more recent vers
 
 ![portrait-mode-iphone](https://images.wondershare.com/filmora/article-images/portrait-mode-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Image resource: 9to5mac
 
 Portrait mode enables you to set the timer, turn off the flash or apply photo filters, but it doesn't allow its users to create live photos. When using this mode you only have to apply basic photography rules, like don't point your camera in the direction from which the light is coming from and do your best to get within a reasonable distance from the subject of your photos. If you decide to take photos in this mode indoors, you may get slightly underwhelming results because it still doesn't perform great in low-light conditions.
@@ -67,10 +59,6 @@ Portrait mode enables you to set the timer, turn off the flash or apply photo fi
 The iPhone X can also take Portrait selfies thanks to the TrueDepth front camera system. Unlike the rear camera system, the front-facing camera doesn't have multiple physical camera lenses; instead, it uses sensors from the TrueDepth system to measure a precise depth map.
 
 ![portrait-mode-selfie-iphone-x](https://images.wondershare.com/filmora/article-images/portrait-mode-selfie-iphone-x.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image resource: imore
 
@@ -98,10 +86,6 @@ Older iPhone models may not have a twin-lens system, but with the aid of a camer
 
 ![iwatermark-watermark-photos](https://images.wondershare.com/filmora/article-images/iwatermark-watermark-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Advertised as the best depth-of-field app for iPhones on the market today, Tadaa SLR sets high photography standards. To make things even better, the app is so easy to use that you just need to set the focal point of the photo and tap on the shutter button to snap a photo. However, Tadaa SLR is only a camera app that doesn't offer a lot of photo editing options.
 
 #### [Bokeh Lens](https://itunes.apple.com/us/app/bokeh-lens/id587849880?mt=8)
@@ -125,10 +109,6 @@ The term Bokeh comes from the Japanese language and it represents the aesthetic 
 The plethora of blur options provided by the Defocus camera app is impressive. Dynamic Blur and Pain Blur tools provide a lot of creative freedom to the app's users while uploading a photo from the iPhone's camera roll and adding a bokeh effect to a photo is also an option. Defocus offers superb photo sharing features, which means that you can share your photos on any social media network directly from the app.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -155,15 +135,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-exemplary-narratives-distributed-by-category/"><u>[New] 2024 Approved Exemplary Narratives Distributed by Category</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-continuous-improvement-regularly-practice-and-evaluate-your-listening-skills-identifying-areas-for-improvement-30-new-titles-that-convey-similar-mea/"><u>[Updated] Continuous Improvement Regularly Practice and Evaluate Your Listening Skills, Identifying Areas for Improvement. 30 New Titles that Convey Similar Meanings to How to Change Your Voice in Free Fire Game? [Free Solution Included]</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-drone-for-sale-best-drones-to-buy-for-2024/"><u>[Updated] Drone for Sale - Best Drones to Buy for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-dynamic-duo-display-youtubes-way-of-creative-splitting/"><u>[Updated] Dynamic Duo Display YouTube’s Way of Creative Splitting</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/affordable-lenovo-laptops-top-picks-and-price-drops-for-the-modern-hybrid-professional-expert-advice-from-zdnet/"><u>Affordable Lenovo Laptops: Top Picks & Price Drops for the Modern Hybrid Professional - Expert Advice From ZDNet</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-ffmpeg-audio-review-can-ffmpeg-extract-audio-in-original-format/"><u>In 2024, FFmpeg Audio Review Can FFmpeg Extract Audio in Original Format</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-clear-youtube-watch-later-playlist/"><u>In 2024, How to Clear YouTube Watch Later Playlist</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-halt-recommendations-no-more-suggests/"><u>In 2024, How to Halt Recommendations No More Suggests</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-the-ultimate-seventh-selection-of-aquatic-cameras/"><u>In 2024, The Ultimate Seventh Selection of Aquatic Cameras</u></a></li>
-<li><a href="https://win11.techidaily.com/setting-up-a-mobile-hotspot-on-your-pc-a-quick-guide-to-win-11/"><u>Setting Up a Mobile Hotspot on Your PC: A Quick Guide to Win 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-free-online-music-archives-copyright-free-gaming-tunes-for-2024/"><u>[Updated] Free Online Music Archives (Copyright-Free Gaming Tunes) for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-for-every-level-of-filmmaker-our-top-10-camera-picks/"><u>[Updated] In 2024, For Every Level of Filmmaker, Our Top 10 Camera Picks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-visual-virtue-essential-resources-for-adding-frames-to-images/"><u>[Updated] In 2024, Visual Virtue Essential Resources for Adding Frames to Images</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-slumber-solutions-through-asmr-advisors-choice/"><u>[Updated] Slumber Solutions Through ASMR Advisors' Choice</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-snap-share-and-shine-your-guide-to-dynamic-gif-creation/"><u>[Updated] Snap, Share & Shine Your Guide to Dynamic GIF Creation</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-nokia-c12-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Nokia C12 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/enhanced-user-experience-with-policy-update/"><u>Enhanced User Experience with Policy Update</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixes-for-mouse-related-glitches-found-in-resident-evil-village-gameplay/"><u>Fixes for Mouse-Related Glitches Found in Resident Evil Village Gameplay</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-enable-mouse-gestures-in-microsoft-edge-for-windows-11/"><u>How to Enable Mouse Gestures in Microsoft Edge for Windows 11</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-quickmemes-your-meme-toolkit/"><u>In 2024, QuickMemes Your Meme Toolkit</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/seamless-integration-of-moviemaker-6-into-your-device-for-2024/"><u>Seamless Integration of Moviemaker 6 Into Your Device for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/step-by-step-for-macos-sierras-system-return-to-el-capitan/"><u>Step-by-Step for MacOS Sierra's System Return to El Capitan</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-editors-choice-best-windows-11-tools-guide/"><u>Top Editors' Choice Best Windows 11 Tools Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-savings-on-amazon-in-august-2024-exclusive-offers-featured-by-zdnet/"><u>Top Savings on Amazon in August 2024 - Exclusive Offers Featured by ZDNet</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/why-are-websites-turning-off-on-gptbot-decoding-digital-battles/"><u>Why Are Websites Turning Off on GPTBot? Decoding Digital Battles</u></a></li>
 </ul></div>
 

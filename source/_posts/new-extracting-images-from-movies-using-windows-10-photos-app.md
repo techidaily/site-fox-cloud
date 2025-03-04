@@ -1,7 +1,7 @@
 ---
 title: "[New] Extracting Images From Movies Using Windows 10 Photos App"
-date: 2025-02-08T23:24:52.566Z
-updated: 2025-02-14T23:23:26.990Z
+date: 2025-03-02T16:22:54.969Z
+updated: 2025-03-04T17:35:54.713Z
 tags: 
   - screen-recording
   - ai video
@@ -52,10 +52,6 @@ Creating a living image:
 
 ![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now, you can see the living picture by tapping ‘Play’ button.
 
 These photos are stored in the ‘Pictures’ folder of your computer having ‘LI’ appended file names. Now, it’s time to save the living image as photo on your computer using Photos app.
@@ -65,10 +61,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/start-save-photos-from-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
 ## Part 2: Why I can’t save photo from video
@@ -76,10 +68,6 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Check the update
 
@@ -101,10 +89,6 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
@@ -113,10 +97,6 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,22 +123,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-a-detailed-review-of-camstudio-screencapture/"><u>[New] In 2024, A Detailed Review of CamStudio ScreenCapture</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-master-your-media-adhering-to-twitters-video-requirements/"><u>[New] Master Your Media Adhering to Twitter's Video Requirements</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-top-tier-vr-engine-software-a-comprehensive-review-for-2024/"><u>[New] Top-Tier VR Engine Software A Comprehensive Review for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-assemble-visual-media-for-queue-upgrade/"><u>[Updated] 2024 Approved Assemble Visual Media for Queue Upgrade</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-an-in-depth-guide-to-periscope-recording-procedures-for-2024/"><u>[Updated] An In-Depth Guide to Periscope Recording Procedures for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-frequency-fluctuations-for-game-mastery/"><u>[Updated] In 2024, Frequency Fluctuations for Game Mastery</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-video-dimensions-the-key-to-youtube-presence/"><u>[Updated] Mastering Video Dimensions The Key to YouTube Presence</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-narakeet-review-text-to-speech-convenient-voice-maker/"><u>2024 Approved Narakeet Review Text to Speech Convenient Voice Maker</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/achromatic-no-more-blades-leap-to-ultra-hd-clarity-for-2024/"><u>Achromatic No More Blade's Leap to Ultra-HD Clarity for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-samsung-galaxy-s23plus-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Samsung Galaxy S23+?</u></a></li>
-<li><a href="https://win-guides.techidaily.com/how-to-migrate-data-from-western-digital-my-cloud-to-amazon-drive-and-alternative-cloud-services/"><u>How to Migrate Data From Western Digital My Cloud to Amazon Drive and Alternative Cloud Services</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-amp-up-your-audiovideo-quality-with-these-10-android-players/"><u>In 2024, Amp Up Your Audio/Video Quality with These 10 Android Players</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-iphotovidsyncer-seamless-imageplusvideo-playback/"><u>In 2024, IPhotoVidSyncer Seamless Image+Video Playback</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-lut-mastery-for-enhanced-visual-effects-in-premiere-projects/"><u>In 2024, LUT Mastery for Enhanced Visual Effects in Premiere Projects</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/is-photoshops-image-smoothing-worth-the-hype/"><u>Is Photoshop's Image Smoothing Worth the Hype?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/lenovo-x1-carbon-drivers-update-quick-download-for-windows-10-and-7-systems/"><u>Lenovo X1 Carbon Drivers Update – Quick Download for Windows 10 and 7 Systems</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/yearly-roundup-high-fidelity-gadget-unpackers-on-youtube/"><u>Yearly Roundup High-Fidelity Gadget Unpackers on YouTube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-superiorly-crafted-radio-scripts/"><u>[New] Superiorly Crafted Radio Scripts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-virtual-voyage-an-in-depth-jaunt-vr-analysis/"><u>[New] Virtual Voyage An In-Depth Jaunt VR Analysis</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-calculating-the-sequence-length-of-a-20mb-file/"><u>[Updated] 2024 Approved Calculating the Sequence Length of a 20MB File</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-adding-unique-typography-fonts-in-ae-for-2024/"><u>[Updated] Adding Unique Typography Fonts in AE for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exploring-the-latest-advancements-in-lgs-all-round-360-camera/"><u>[Updated] In 2024, Exploring the Latest Advancements in LG's All-Round 360 Camera</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-reclaim-your-iphone-x-experience-with-these-tips/"><u>[Updated] Reclaim Your iPhone X Experience with These Tips</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-proven-methods-for-captivating-title-creation/"><u>2024 Approved Proven Methods for Captivating Title Creation</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/elevate-your-pc-performance-with-a-new-gpu-installation-tutorial/"><u>Elevate Your PC Performance with a New GPU Installation Tutorial</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/instantpause-live-video-cutout-tips/"><u>InstantPause Live Video Cutout Tips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/mastering-free-time-tracker-a-step-by-step-guide-for-2024/"><u>Mastering FREE Time Tracker A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/video-invitation-made-easy-top-apps-for-iphone-and-android-for-2024/"><u>Video Invitation Made Easy Top Apps for iPhone and Android for 2024</u></a></li>
 </ul></div>
 

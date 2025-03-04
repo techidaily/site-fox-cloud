@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Seamless Edits  Navigating Photoshop’s Eraser Function for 2024\""
-date: 2025-02-10T00:55:34.157Z
-updated: 2025-02-15T04:22:58.035Z
+date: 2025-02-27T18:17:33.329Z
+updated: 2025-03-04T18:45:01.572Z
 tags: 
   - screen-recording
   - ai video
@@ -40,10 +40,6 @@ There are three main variations of eraser tools in Photoshop:
 * Magic Eraser
 
 Many people need clarification with Photoshop's Background Eraser and Magic Eraser tools. Therefore, we've discussed their similarities and dissimilarities. You can understand them better and so that you can prefer the one that suits your needs:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similarities
 
@@ -87,10 +83,6 @@ In the Background Eraser tool's **Options bar,** you will find the **"Sampling O
 
 **Background Swatch**: You may sometimes have difficulty positioning the crosshair tool precisely over the color you wish to erase. To prevent this, you can use the Background Swatch Option that helps you pick a color and will only erase the activated color from the BG.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Limits
 
 After you pick a color to erase, the Limits function identifies the location of the pixels that match that color, making it easier for you to erase them precisely.
@@ -104,14 +96,6 @@ The Limit function comes with three options:
 **Find Edges:** This setting will come in handy when you find that the edges around your subject are not sharp enough. The Find Edges option works more precisely than the Contiguous and helps to smooth down the sides.
 
 ![limits function in background eraser tool](https://images.wondershare.com/filmora/article-images/2023/03/limits-function-in-background-eraser-tool.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Tolerance
 
@@ -127,19 +111,11 @@ If, however, the background color is fringing around the subject, use a higher T
 
 The Brush Angle option can help you adjust the angle of your crosshair to quickly erase the pixels in difficult-to-reach areas in your image's background. You can also hit the **"R"** key on your keyboard to rotate the canvas.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Protect Foreground Color
 
 Sometimes, Photoshop erases parts of your subject while removing the background, no matter what Tolerance value you use. To avoid this, the Protected Foreground Color option in the Options bar can come in handy.
 
 This option allows you to choose a color from your subject as a foreground color, and Photoshop will stop erasing it while you drag the brush over the image to remove the background.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Pen Pressure
 
@@ -177,14 +153,6 @@ Step6 Finally, after removing the background, you can place the subject on anoth
 
 ![exporting the final image after erasing background with background eraser](https://images.wondershare.com/filmora/article-images/2023/03/exporting-the-final-image-after-erasing-background-with-background-eraser.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## You May Want to Know: The Working Process of Background Eraser Tool
 
 Now that you've learned **how to use the Background Eraser Tool in Photoshop.** During the process of operating, you might wonder how the software works and changes the BG layer.
@@ -206,10 +174,6 @@ Therefore, as long as we keep the crosshair within the pink area, Photoshop will
 However, if we accidentally erase the blue stripes, we can always go back by simply pressing the **"CTRL+Z"** in Windows and **"Command+Z"** in Mac. To undo multiple steps, hit the **"Ctrl+Alt+Z" (Windows)** or **Command+Option+Z" (Mac)** keys repeatedly.
 
 ## Common FAQs When Using Background Esarser Tool in Photoshop
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Why Is Photoshop Eraser Tool Not Accessible?
 
@@ -271,19 +235,18 @@ Hopefully, you can use the tools in Phoshop with ease and remove images' backgro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-breaking-down-the-barriers-effective-rtmp-streaming-in-premiere-for-2024/"><u>[New] Breaking Down the Barriers Effective RTMP Streaming in Premiere for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-demystifying-gopro-fisheye-photos-with-editing-tricks-for-2024/"><u>[New] Demystifying GoPro Fisheye Photos with Editing Tricks for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-elevate-your-browsing-navigating-safaris-safe-area-mode/"><u>[Updated] 2024 Approved Elevate Your Browsing Navigating Safari's Safe Area Mode</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-innovative-visionaries-choice-top-10-graphics-creation-apps/"><u>[Updated] 2024 Approved Innovative Visionaries' Choice Top 10 Graphics Creation Apps</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-xstream-vision-insight-ultimate-video-studio-exploration/"><u>[Updated] In 2024, XStream Vision Insight Ultimate Video Studio Exploration</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-ranked-your-must-have-5-iphones-for-excellent-podcasting/"><u>[Updated] Ranked Your Must-Have 5 iPhones for Excellent Podcasting</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unlocking-full-potential-in-depth-review-of-lgs-monitor-tech/"><u>[Updated] Unlocking Full Potential In-Depth Review of LG's Monitor Tech</u></a></li>
-<li><a href="https://games-able.techidaily.com/beat-mastery-choosing-between-pen-and-mouse/"><u>Beat Mastery: Choosing Between Pen and Mouse</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-configure-folder-preferences-in-macos-for-better-navigation/"><u>How to Configure Folder Preferences in macOS for Better Navigation</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-exclusive-insights-into-prime-10-streamers/"><u>In 2024, Exclusive Insights Into Prime 10 Streamers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y200-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y200 Bootloader Easily</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-select-vhs-visuals-perfect-for-video-editors/"><u>In 2024, Select VHS Visuals Perfect for Video Editors</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-nokia-150-2023-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Nokia 150 (2023) with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ultimate-guide-to-the-most-durable-and-stylish-ipad-air-cases-of-2n24-a-rigorous-evaluation-zdnet/"><u>Ultimate Guide to the Most Durable and Stylish iPad Air Cases of 2N24: A Rigorous Evaluation | ZDNet</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mp4-gratuitos-convertidos-en-linea-guia-paso-a-paso-con-movavi/"><u>.mp4 Gratuitos Convertidos en Línea: Guía Paso a Paso Con Movavi</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-low-cost-4k-recording-options-for-2024/"><u>[New] Top Low-Cost 4K Recording Options for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unleash-the-power-of-stories-free-online-and-mobile-solutions/"><u>[Updated] Unleash the Power of Stories – Free, Online & Mobile Solutions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-vivid-tone-enhancer-app-for-2024/"><u>[Updated] Vivid Tone Enhancer App for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/call-of-duty-enthusiasts-fixes-and-tips-when-warzone-wont-launch-correctly/"><u>Call of Duty Enthusiasts: Fixes and Tips When Warzone Won't Launch Correctly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tip-mastering-green-screen-techniques/"><u>Fast Tip Mastering Green Screen Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/freezing-fun-at-the-beijing-olympics-2022/"><u>Freezing Fun at the Beijing Olympics 2022</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/guide-to-generating-speech-in-different-languages-with-the-best-tools-for-2024/"><u>Guide to Generating Speech in Different Languages With the Best Tools for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/inspirational-article-leaderboard-maker-for-2024/"><u>Inspirational Article Leaderboard Maker for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/perfect-your-podcast-secrets-for-compelling-opening-videos-for-2024/"><u>Perfect Your Podcast Secrets for Compelling Opening Videos for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/revolutionizing-personal-item-security-with-the-nomad-tracker-card-a-users-in-depth-analysis/"><u>Revolutionizing Personal Item Security with the Nomad Tracker Card – A User's In-Depth Analysis</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/transform-images-into-editable-text-ocr-for-pdfjpg-files-on-ios-via-finereader/"><u>Transform Images Into Editable Text - OCR for PDF/JPG Files on iOS via FineReader</u></a></li>
 </ul></div>
 

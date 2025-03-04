@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Bring Back Windows Photo Viewer  Steps in Win 11 Edition\""
-date: 2024-08-23T01:32:36.011Z
-updated: 2024-08-24T01:32:36.011Z
+date: 2025-02-26T18:55:23.720Z
+updated: 2025-03-04T17:11:50.122Z
 tags: 
   - screen-recording
   - ai video
@@ -69,9 +69,6 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 
 **Step 3**: Tap on ‘Windows Photo Viewer’ and then exit ‘Settings’. Now, you have successfully restored Windows Photo Viewer and you can open photos in Windows Photo Viewer.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Method 2 to get Windows Photo Viewer back
 
 Here comes another way to restore Windows Photo Viewer on your computer. If your computer has been upgraded to Windows 10 from an older version, then Windows Photo Viewer might be lying around somewhere. You can retrieve it to view images.
@@ -86,34 +83,18 @@ Here is the detailed guide –
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-back.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 **Note**: If the Windows Photo Viewer isn't there, here is a backup. You need to change Windows Registry to make Windows Photo Viewer returned. You need to go to [Edwin over on Ten Forums](https://www.tenforums.com/software-apps/8930-windows-photo-viewer-gone-2.html#post290818) to add code on your PC.
 
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ### Conclusion
 
 From the above article, we found out that restoring Windows Photo Viewer on your system is not a tough task. But, without having the proper knowledge you shouldn’t play around with your Photos app. So, this article guides you through a reliable method for restoring Windows Photo Viewer and view your photos like you always loved to. We hope you liked our efforts of enlightening you about Windows Photo Viewer and got the necessary information. Plus, if none of these work, you can use [Windows 10 Photos app alternatives](https://tools.techidaily.com/wondershare/filmora/download/). Thanks for reading! Do comment us below to let us know your views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -137,8 +118,26 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-bring-your-footage-to-life-master-the-art-with-these-11-color-edits-for-2024/"><u>[New] Bring Your Footage to Life Master the Art with These 11 Color Edits for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-enhancing-digital-engagement-through-tighter-zoomed-scenes-for-2024/"><u>[New] Enhancing Digital Engagement Through Tighter Zoomed Scenes for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-hdr-tech-showdown-sns-vs-alternatives/"><u>[New] In 2024, HDR Tech Showdown SNS vs Alternatives</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-optimizing-colors-in-films-via-luts/"><u>[New] In 2024, Optimizing Colors in Films via Luts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-instagram-streamlining-the-process-of-image-addition/"><u>[New] Instagram Streamlining the Process of Image Addition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-checklist-for-hit-titles-online/"><u>[New] The Ultimate Checklist for Hit Titles Online</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-fashion-forward-video-ideas/"><u>[Updated] In 2024, Fashion Forward Video Ideas</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/best-in-class-for-portability-and-power-in-depth-review-and-showdown-between-macbook-air-m3-and-m2-versions/"><u>Best in Class for Portability & Power: In-Depth Review and Showdown Between MacBook Air M3 & M2 Versions</u></a></li>
+<li><a href="https://win11.techidaily.com/exploring-wallpaper-image-storage-on-windows-11/"><u>Exploring Wallpaper Image Storage on Windows 11</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/fpv-mastery-with-top-5-hmds-for-drones-for-2024/"><u>FPV Mastery with Top 5 HMDs for Drones for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-realme-narzo-n53-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Realme Narzo N53 Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-explore-best-locations-for-vr-viewing/"><u>In 2024, Explore Best Locations for VR Viewing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-fundamentals-of-assembling-photos-into-art/"><u>In 2024, The Fundamentals of Assembling Photos Into Art</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-srt-journey-from-novice-to-expert/"><u>In 2024, The SRT Journey From Novice to Expert</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-transfer-your-apple-iphone-14-apps-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Transfer your Apple iPhone 14 Apps to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/movavi-onlineaacogg/"><u>Movavi OnlineフリーAAC音源の迅速かつストレスなしOGGへの変更 - 使い勝手強化版</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quieting-down-crackles-effective-fixes-for-arctis-7-sound-glitches-on-windows-machines/"><u>Quieting Down Crackles: Effective Fixes for Arctis 7 Sound Glitches on Windows Machines</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/transforming-gameplay-narratives-advanced-strategies-for-utilizing-morphvox-in-live-streamed-gaming-sessions/"><u>Transforming Gameplay Narratives Advanced Strategies for Utilizing Morphvox in Live Streamed Gaming Sessions</u></a></li>
+</ul></div>
 

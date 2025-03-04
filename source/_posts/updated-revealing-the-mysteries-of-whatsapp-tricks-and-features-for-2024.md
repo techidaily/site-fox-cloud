@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revealing the Mysteries of WhatsApp  Tricks & Features for 2024\""
-date: 2025-02-13T03:33:25.869Z
-updated: 2025-02-14T20:35:44.027Z
+date: 2025-03-01T17:47:58.983Z
+updated: 2025-03-04T19:06:47.402Z
 tags: 
   - screen-recording
   - ai video
@@ -65,19 +65,11 @@ The monospace is a font stylization now available in WhatsApp that allows you to
 
 ![Whatsapp Text Tricks Monospace](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-monospace.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5.Disable Read Recipients
 
 WhatsApp introduced the Blue Tick feature to notify users when their messages are not only delivered but are seen by the recipients. But it has also been the cause of fallouts between loved ones and even trouble at work for failing to respond despite a Blue Tick. Now you can control the fury with WhatsApp Text Tricks of disabling the Read Recipient feature. Go Settings >> Account >> Privacy >> Read Recipients. By doing this, you won’t be able to see your contact’s blue ticks as no one will be able to see yours. Unlike custom notifications, the Read Recipient feature applies to your entire contact list and cannot be used for one specific contact. The sender would see black double ticks even if you read the message.
 
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 6.Pin Prioritized Contacts
 
@@ -93,10 +85,6 @@ If you wish to save the chats that you exchanged with someone special, you can e
 
 ![Whatsapp Export Chat Logs](https://images.wondershare.com/filmora/article-images/whatsapp-export-chat-logs.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 8.WhatsApp Font Tricks for Formatting
 
 Though we have already mentioned the shortcuts for bold, italics, and other text formatting features, there is another way to format your texts if you forget the shortcuts - go for the Native Settings Strip. Once you are done typing, then tap and hold the text sections you want to format, this will open all the options in a list. You can scroll it to select your formatting command.
@@ -109,19 +97,11 @@ There are plenty of things you can do with one word. It can be bold, italic, mon
 
 ![Apply All Whatsapp Font Tricks](https://images.wondershare.com/filmora/article-images/apply-all-whatsapp-font-tricks.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 10.Share Sections of Messages While Typing
 
 While typing a WhatsApp message if you need to cross-check certain areas with someone else, and don’t want to copy the text or overwrite your clipboard, you can directly share the text without copy-pasting or taking screenshots. This WhatsApp Typing Trick is in the same native setting strip mentioned earlier, which you can access by tapping and holding the text section you want to share, which will open the formatting strip. Once it opens then click on the 3 dots, which will turn the strip into a panel, in the panel you will find what you are looking for. The coolest part is that you can share the text not only in WhatsApp but multiple other apps like Zoom, Skype, Email… even Bluetooth!
 
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What are the Hidden Features of WhatsApp?
 
@@ -159,10 +139,6 @@ Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have
 
 ![Whatsapp Hidden Feature Snooze Whatsapp](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-snooze-whatsapp.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 7.Automatically Delete Messages After 7 Days
 
 Not every message thread is important, and many people have the habit of deleting messages just to feel organized. WhatsApp brings some zero-effort minimalism for you with this new feature available for Android users. Update your app and visit the contact’s page in WhatsApp and you will be able to see the “Disappearing Messages” option. If you enable this, your chats with the particular contact will be deleted automatically on their own.
@@ -184,10 +160,6 @@ This is as simple as it sounds. Tap and hold to select a message in a group and 
 Manage how you are notified of messages from specific contacts and groups. Go to the main page of the contact or group you wish to customize, and there you will find Custom Notifications. Activate the mode to open a wide range of options - notification tones, pop up, preview, etc.
 
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Source: beebom.com
 
@@ -217,10 +189,6 @@ When it comes to WhatsApp Tricks and Trades, you always have to look forward to 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -246,22 +214,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-complete-directors-guide-to-powerdirector-24-software-for-2024/"><u>[New] Complete Director's Guide to PowerDirector '24 Software for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-deciphering-cosmic-constructs-metaverse-vs-multiverse/"><u>[New] Deciphering Cosmic Constructs Metaverse vs Multiverse</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-magix-vpx-the-ultimate-software-showdown/"><u>[New] In 2024, Magix VPX The Ultimate Software Showdown</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-mastering-network-live-broadcasts-via-vlc-for-2024/"><u>[New] Mastering Network Live Broadcasts via VLC for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unlocking-slow-motion-magic-in-instagram-reels-for-2024/"><u>[New] Unlocking Slow Motion Magic in Instagram Reels for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-essential-guide-to-manipulating-time-with-phantom-for-2024/"><u>[Updated] Essential Guide to Manipulating Time with Phantom for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-make-profitable-youtube-ads-for-free-in-2024/"><u>[Updated] How To Make Profitable YouTube Ads for Free, In 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-perfect-iphone-mp3-conversion-top-6-software-recommendations/"><u>[Updated] Perfect iPhone MP3 Conversion Top 6 Software Recommendations</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/expert-tips-on-restoring-files-from-damaged-storage-units/"><u>Expert Tips on Restoring Files From Damaged Storage Units</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/gradual-volume-lessening-in-music-creation-garageband-for-2024/"><u>Gradual Volume Lessening in Music Creation (Garageband) for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-a-closer-inspect-of-the-stunning-dell-p2715q-monitors-capabilities/"><u>In 2024, A Closer Inspect of the Stunning Dell P2715Q Monitor's Capabilities</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-y78-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo Y78 5G Through Google Earth?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-note-30-5g-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Infinix Note 30 5G Phone with Broken Screen</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/rapid-periscope-livestream-optimization-methods-for-2024/"><u>Rapid Periscope Livestream Optimization Methods for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-the-latest-in-hardware-through-toms-reviews/"><u>Unveiling the Latest in Hardware Through Tom's Reviews</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-best-9-french-video-translators-online-and-download-options/"><u>Updated In 2024, Best 9 French Video Translators Online and Download Options</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/vr-surgical-training-and-planning-systems/"><u>VR Surgical Training and Planning Systems</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-elite-powerhouses-of-desktop-technology/"><u>[New] In 2024, Elite Powerhouses of Desktop Technology</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-framed-fantasies-expert-recommendations-on-software-and-sites/"><u>[New] In 2024, Framed Fantasies Expert Recommendations on Software & Sites</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-syncing-youtube-audio-to-film-compositions/"><u>[New] In 2024, Syncing YouTube Audio to Film Compositions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-masterful-selection-top-15-accessories-for-gopro-enthusiasts-for-2024/"><u>[New] Masterful Selection Top 15 Accessories for GoPro Enthusiasts for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-remove-a-background-in-affinity-photo-for-2024/"><u>[New] Remove a Background in Affinity Photo for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-smartphones-ultimate-guide-to-image-editing-and-annotation-for-2024/"><u>[New] Smartphones' Ultimate Guide to Image Editing & Annotation for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-uncloaked-resolved-youtube-shorts-gone-miss/"><u>[Updated] 2024 Approved Uncloaked Resolved YouTube Shorts Gone Miss</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transforming-viewers-experience-with-onestream-broadcasts/"><u>2024 Approved Transforming Viewers' Experience with OneStream Broadcasts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722967230774-discover-the-fresh-updates-to-your-logitech-extreme-3d-gaming-experience/"><u>Discover the Fresh Updates to Your Logitech Extreme 3D Gaming Experience.</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-tips-for-stabilizing-your-pc-during-vr-gaming-sessions/"><u>Expert Tips for Stabilizing Your PC During VR Gaming Sessions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-augmented-realms-blending-tech-and-entertainment/"><u>In 2024, Augmented Realms Blending Tech & Entertainment</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-on-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently On Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-navigating-the-free-path-of-fcp/"><u>In 2024, Navigating the Free Path of FCP</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-samsung-galaxy-f14-5g-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Samsung Galaxy F14 5G Android SIM Unlock APK</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/speedy-installation-guide-for-microsoft-wireless-mouse-5000-drivers-hassle-free-download/"><u>Speedy Installation Guide for Microsoft Wireless Mouse 5000 Drivers | Hassle-Free Download</u></a></li>
 </ul></div>
 
